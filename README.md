@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fruziw334/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fruziw334/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/trrrr">git.io/trrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/xaa">x.co/xaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nyyyy">git.io/nyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppe">x.co/ppe</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/fruziw334/ntdtv/blob/master/gb/2020/07/23/a102900184.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯敦闭馆持续震荡 北京急撤数万在美留学生 >-009fcc?logoWidth=1" title="休斯敦闭馆持续震荡 北京急撤数万在美留学生  " alt="休斯敦闭馆持续震荡 北京急撤数万在美留学生  "></a></p>
 <p><a href="https://github.com/fruziw334/ntdtv/blob/master/gb/2020/07/23/a102900492.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/明成祖朱棣死前留下一道圣旨 让明朝硬气了20>-009fcc?logoWidth=1" title="明成祖朱棣死前留下一道圣旨 让明朝硬气了200年  " alt="明成祖朱棣死前留下一道圣旨 让明朝硬气了200年  "></a></p>
 <p><a href="https://github.com/fruziw334/ntdtv/blob/master/gb/2020/07/23/a102900466.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国西藏一日5震 最高震级达6.6     >-009fcc?logoWidth=1" title="中国西藏一日5震 最高震级达6.6  " alt="中国西藏一日5震 最高震级达6.6  "></a></p>
+<p><a href="https://github.com/fruziw334/ntdtv/blob/master/gb/2020/07/23/a102900461.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/安徽洪水持续泛滥 灾民都靠自救       >-009fcc?logoWidth=1" title="安徽洪水持续泛滥 灾民都靠自救  " alt="安徽洪水持续泛滥 灾民都靠自救  "></a></p>
 <p><a href="https://github.com/fruziw334/ntdtv/blob/master/gb/2020/07/23/a102900446.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台法轮功律师团：吁澳ABC下架煽动仇恨.勿沦>-009fcc?logoWidth=1" title="台法轮功律师团：吁澳ABC下架煽动仇恨.勿沦中共喉舌  " alt="台法轮功律师团：吁澳ABC下架煽动仇恨.勿沦中共喉舌  "></a></p>
 <p><a href="https://github.com/fruziw334/ntdtv/blob/master/gb/2020/07/23/a102900420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：得到可靠情报 谭德塞早已被中共收买 >-009fcc?logoWidth=1" title="蓬佩奥：得到可靠情报 谭德塞早已被中共收买  " alt="蓬佩奥：得到可靠情报 谭德塞早已被中共收买  "></a></p>
-<p><a href="https://github.com/fruziw334/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中驻美领馆为何被关闭？美国务院：从事间谍活动>-009fcc?logoWidth=1" title="中驻美领馆为何被关闭？美国务院：从事间谍活动  " alt="中驻美领馆为何被关闭？美国务院：从事间谍活动  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fruziw334/djy/blob/master/gb/20/7/22/n12276027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/总领事违规现场被抓？休斯顿领馆为何要关   >-009fcc?logoWidth=1" title="总领事违规现场被抓？休斯顿领馆为何要关  " alt="总领事违规现场被抓？休斯顿领馆为何要关  "></a></p>
 <p><a href="https://github.com/fruziw334/djy/blob/master/gb/20/7/23/n12276958.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯顿中领馆烧啥？传福建大征兵       >-009fcc?logoWidth=1" title="休斯顿中领馆烧啥？传福建大征兵  " alt="休斯顿中领馆烧啥？传福建大征兵  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fruziw334/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fruziw334/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fruziw334/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fruziw334/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fruziw334/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fruziw334/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fruziw334/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fruziw334/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fruziw334/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fruziw334/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/trrrr">git.io/trrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/nyyyy">git.io/nyyyy</a></div>
 
