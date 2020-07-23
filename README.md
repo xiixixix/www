@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fruziw334/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fruziw334/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pqqqq">git.io/pqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2pp">x.co/2pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ttttttt">git.io/ttttttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a9a">x.co/a9a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/fruziw334/ntdtv/blob/master/gb/2020/07/23/a102900251.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河酝酿接班人大战？胡春华陈敏尔摆上台  >-009fcc?logoWidth=1" title="北戴河酝酿接班人大战？胡春华陈敏尔摆上台  " alt="北戴河酝酿接班人大战？胡春华陈敏尔摆上台  "></a></p>
 <p><a href="https://github.com/fruziw334/ntdtv/blob/master/gb/2020/07/23/a102900164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：拆中共南海军事设备 美已部署热战  >-009fcc?logoWidth=1" title="袁弓夷：拆中共南海军事设备 美已部署热战  " alt="袁弓夷：拆中共南海军事设备 美已部署热战  "></a></p>
 <p><a href="https://github.com/fruziw334/ntdtv/blob/master/gb/2020/07/23/a102900184.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯敦闭馆持续震荡 北京急撤数万在美留学生 >-009fcc?logoWidth=1" title="休斯敦闭馆持续震荡 北京急撤数万在美留学生  " alt="休斯敦闭馆持续震荡 北京急撤数万在美留学生  "></a></p>
+<p><a href="https://github.com/fruziw334/ntdtv/blob/master/gb/2020/07/23/a102900782.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强被开除党籍 网民感叹“塞翁失马”   >-009fcc?logoWidth=1" title="任志强被开除党籍 网民感叹“塞翁失马”  " alt="任志强被开除党籍 网民感叹“塞翁失马”  "></a></p>
 <p><a href="https://github.com/fruziw334/ntdtv/blob/master/gb/2020/07/23/a102900676.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共威胁拒绝承认香港BNO 被嘲不准盲人用电>-009fcc?logoWidth=1" title="中共威胁拒绝承认香港BNO 被嘲不准盲人用电筒  " alt="中共威胁拒绝承认香港BNO 被嘲不准盲人用电筒  "></a></p>
 <p><a href="https://github.com/fruziw334/ntdtv/blob/master/gb/2020/07/23/a102900718.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国拟制裁中共党员 洛杉矶现退党潮     >-009fcc?logoWidth=1" title="美国拟制裁中共党员 洛杉矶现退党潮  " alt="美国拟制裁中共党员 洛杉矶现退党潮  "></a></p>
 <p><a href="https://github.com/fruziw334/ntdtv/blob/master/gb/2020/07/23/a102900694.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥亲自敲定 与罗冠聪一对一会面     >-009fcc?logoWidth=1" title="蓬佩奥亲自敲定 与罗冠聪一对一会面  " alt="蓬佩奥亲自敲定 与罗冠聪一对一会面  "></a></p>
 <p><a href="https://github.com/fruziw334/ntdtv/blob/master/gb/2020/07/23/a102900638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/每天3分钟 打开免疫力开关 唤醒身体自愈力！>-009fcc?logoWidth=1" title="每天3分钟 打开免疫力开关 唤醒身体自愈力！  " alt="每天3分钟 打开免疫力开关 唤醒身体自愈力！  "></a></p>
-<p><a href="https://github.com/fruziw334/ntdtv/blob/master/gb/2020/07/23/a102900591.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英议员支持法轮功反迫害 外长关注      >-009fcc?logoWidth=1" title="英议员支持法轮功反迫害 外长关注  " alt="英议员支持法轮功反迫害 外长关注  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fruziw334/djy/blob/master/gb/20/7/22/n12276027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/总领事违规现场被抓？休斯顿领馆为何要关   >-009fcc?logoWidth=1" title="总领事违规现场被抓？休斯顿领馆为何要关  " alt="总领事违规现场被抓？休斯顿领馆为何要关  "></a></p>
 <p><a href="https://github.com/fruziw334/djy/blob/master/gb/20/7/23/n12276958.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯顿中领馆烧啥？传福建大征兵       >-009fcc?logoWidth=1" title="休斯顿中领馆烧啥？传福建大征兵  " alt="休斯顿中领馆烧啥？传福建大征兵  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fruziw334/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fruziw334/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fruziw334/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fruziw334/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fruziw334/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fruziw334/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fruziw334/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fruziw334/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fruziw334/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fruziw334/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/pqqqq">git.io/pqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/ttttttt">git.io/ttttttt</a></div>
 
