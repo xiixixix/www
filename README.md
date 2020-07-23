@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fruziw334/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fruziw334/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rcccc">git.io/rcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/388">x.co/388</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iuuuu">git.io/iuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp4">x.co/pp4</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -30,12 +30,12 @@
 <p><a href="https://github.com/fruziw334/djy/blob/master/gb/20/7/23/n12276958.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯顿中领馆烧啥？传福建大征兵       >-009fcc?logoWidth=1" title="休斯顿中领馆烧啥？传福建大征兵  " alt="休斯顿中领馆烧啥？传福建大征兵  "></a></p>
 <p><a href="https://github.com/fruziw334/djy/blob/master/gb/20/7/22/n12276084.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/媒体人：习夺曾庆红钱袋子 守京城防出事   >-009fcc?logoWidth=1" title="媒体人：习夺曾庆红钱袋子 守京城防出事  " alt="媒体人：习夺曾庆红钱袋子 守京城防出事  "></a></p>
 <p><a href="https://github.com/fruziw334/djy/blob/master/gb/20/7/22/n12276017.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：七常委露面辟谣 多“不务正业”    >-009fcc?logoWidth=1" title="钟原：七常委露面辟谣 多“不务正业”  " alt="钟原：七常委露面辟谣 多“不务正业”  "></a></p>
-<p><a href="https://github.com/fruziw334/djy/blob/master/gb/20/7/22/n12276629.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：可能关更多中领馆 火烧文件咋回事   >-009fcc?logoWidth=1" title="川普：可能关更多中领馆 火烧文件咋回事  " alt="川普：可能关更多中领馆 火烧文件咋回事  "></a></p>
 <p><a href="https://github.com/fruziw334/djy/blob/master/gb/20/7/22/n12276198.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美出重拳 习为“内循环”灭火？       >-009fcc?logoWidth=1" title="美出重拳 习为“内循环”灭火？  " alt="美出重拳 习为“内循环”灭火？  "></a></p>
+<p><a href="https://github.com/fruziw334/djy/blob/master/gb/20/7/23/n12276906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国拟制裁中共党员 洛杉矶现退党潮     >-009fcc?logoWidth=1" title="美国拟制裁中共党员 洛杉矶现退党潮  " alt="美国拟制裁中共党员 洛杉矶现退党潮  "></a></p>
 <p><a href="https://github.com/fruziw334/djy/blob/master/gb/20/7/23/n12277572.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平召集座谈会 夏宝龙等多人缺席引猜测  >-009fcc?logoWidth=1" title="习近平召集座谈会 夏宝龙等多人缺席引猜测  " alt="习近平召集座谈会 夏宝龙等多人缺席引猜测  "></a></p>
 <p><a href="https://github.com/fruziw334/djy/blob/master/gb/20/7/21/n12271574.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：五位中纪委书记对待法轮功之我见   >-009fcc?logoWidth=1" title="王友群：五位中纪委书记对待法轮功之我见  " alt="王友群：五位中纪委书记对待法轮功之我见  "></a></p>
 <p><a href="https://github.com/fruziw334/djy/blob/master/gb/20/7/22/n12276405.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥将发表重磅演讲：共产中国和世界未来  >-009fcc?logoWidth=1" title="蓬佩奥将发表重磅演讲：共产中国和世界未来  " alt="蓬佩奥将发表重磅演讲：共产中国和世界未来  "></a></p>
-<p><a href="https://github.com/fruziw334/djy/blob/master/gb/20/7/23/n12276906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国拟制裁中共党员 洛杉矶现退党潮     >-009fcc?logoWidth=1" title="美国拟制裁中共党员 洛杉矶现退党潮  " alt="美国拟制裁中共党员 洛杉矶现退党潮  "></a></p>
+<p><a href="https://github.com/fruziw334/djy/blob/master/gb/20/7/22/n12276629.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：可能关更多中领馆 火烧文件咋回事   >-009fcc?logoWidth=1" title="川普：可能关更多中领馆 火烧文件咋回事  " alt="川普：可能关更多中领馆 火烧文件咋回事  "></a></p>
 <p><a href="https://github.com/fruziw334/djy/blob/master/gb/20/7/23/n12276929.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习等露面辟谣 李克强刻意隐身？       >-009fcc?logoWidth=1" title="习等露面辟谣 李克强刻意隐身？  " alt="习等露面辟谣 李克强刻意隐身？  "></a></p>
 <p><a href="https://github.com/fruziw334/djy/blob/master/gb/20/7/23/n12277723.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：中共外交部一大谎言 14年后删文灭迹>-009fcc?logoWidth=1" title="陈思敏：中共外交部一大谎言 14年后删文灭迹  " alt="陈思敏：中共外交部一大谎言 14年后删文灭迹  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/fruziw334/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fruziw334/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fruziw334/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fruziw334/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fruziw334/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/fruziw334/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fruziw334/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fruziw334/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fruziw334/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/fruziw334/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rcccc">git.io/rcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/iuuuu">git.io/iuuuu</a></div>
 
