@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/lpfeaf3001/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/lpfeaf3001/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/innnn">git.io/innnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3555">x.co/3555</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mxxxx">git.io/mxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp7">x.co/pp7</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,18 +26,18 @@
 <p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/24/a102901660.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普宣布以佛州安全为重 取消共和党全国代表大>-009fcc?logoWidth=1" title="川普宣布以佛州安全为重 取消共和党全国代表大会  " alt="川普宣布以佛州安全为重 取消共和党全国代表大会  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/24/a102901663.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普签署降低药品价格的行政令（同声翻译）  >-009fcc?logoWidth=1" title="川普签署降低药品价格的行政令（同声翻译）  " alt="川普签署降低药品价格的行政令（同声翻译）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/24/n12280529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥“共产中国与自由世界未来”演讲全文  >-009fcc?logoWidth=1" title="蓬佩奥“共产中国与自由世界未来”演讲全文  " alt="蓬佩奥“共产中国与自由世界未来”演讲全文  "></a></p>
+<p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/24/n12281834.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/期限到 休斯顿中领馆关门 警察封路     >-009fcc?logoWidth=1" title="期限到 休斯顿中领馆关门 警察封路  " alt="期限到 休斯顿中领馆关门 警察封路  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/24/n12281618.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾藏匿旧金山中领馆 中共空军女军官被捕   >-009fcc?logoWidth=1" title="曾藏匿旧金山中领馆 中共空军女军官被捕  " alt="曾藏匿旧金山中领馆 中共空军女军官被捕  "></a></p>
-<p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/24/n12281547.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美官员：休斯顿中领馆作恶多端 还涉偷疫苗  >-009fcc?logoWidth=1" title="美官员：休斯顿中领馆作恶多端 还涉偷疫苗  " alt="美官员：休斯顿中领馆作恶多端 还涉偷疫苗  "></a></p>
-<p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/23/n12278294.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯顿中领馆被关 分析：美后续必有三大招  >-009fcc?logoWidth=1" title="休斯顿中领馆被关 分析：美后续必有三大招  " alt="休斯顿中领馆被关 分析：美后续必有三大招  "></a></p>
-<p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/15/n12257798.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件曝中共监控法轮功严密        >-009fcc?logoWidth=1" title="内部文件曝中共监控法轮功严密  " alt="内部文件曝中共监控法轮功严密  "></a></p>
+<p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/24/n12281491.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中关系继续恶化 分析：美国不怕事态升级  >-009fcc?logoWidth=1" title="美中关系继续恶化 分析：美国不怕事态升级  " alt="美中关系继续恶化 分析：美国不怕事态升级  "></a></p>
+<p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/24/n12280529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥“共产中国与自由世界未来”演讲全文  >-009fcc?logoWidth=1" title="蓬佩奥“共产中国与自由世界未来”演讲全文  " alt="蓬佩奥“共产中国与自由世界未来”演讲全文  "></a></p>
+<p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/24/n12281364.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共关闭美驻成都领事馆 白宫发警告     >-009fcc?logoWidth=1" title="中共关闭美驻成都领事馆 白宫发警告  " alt="中共关闭美驻成都领事馆 白宫发警告  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/24/n12279951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院高级官员会见五位法轮功学员     >-009fcc?logoWidth=1" title="美国务院高级官员会见五位法轮功学员  " alt="美国务院高级官员会见五位法轮功学员  "></a></p>
-<p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/24/n12281596.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强被指遭“政治迫害” 他都说了些啥？  >-009fcc?logoWidth=1" title="任志强被指遭“政治迫害” 他都说了些啥？  " alt="任志强被指遭“政治迫害” 他都说了些啥？  "></a></p>
-<p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/23/n12277723.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：中共外交部一大谎言 14年后删文灭迹>-009fcc?logoWidth=1" title="陈思敏：中共外交部一大谎言 14年后删文灭迹  " alt="陈思敏：中共外交部一大谎言 14年后删文灭迹  "></a></p>
+<p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/24/n12281547.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美官员：休斯顿中领馆作恶多端 还涉偷疫苗  >-009fcc?logoWidth=1" title="美官员：休斯顿中领馆作恶多端 还涉偷疫苗  " alt="美官员：休斯顿中领馆作恶多端 还涉偷疫苗  "></a></p>
+<p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/15/n12257798.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件曝中共监控法轮功严密        >-009fcc?logoWidth=1" title="内部文件曝中共监控法轮功严密  " alt="内部文件曝中共监控法轮功严密  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/23/n12279508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥发表讨共檄文 吁中国人民站起来    >-009fcc?logoWidth=1" title="蓬佩奥发表讨共檄文 吁中国人民站起来  " alt="蓬佩奥发表讨共檄文 吁中国人民站起来  "></a></p>
-<p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/24/n12280168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共报复 要美国72小时内关闭驻成都领事馆 >-009fcc?logoWidth=1" title="中共报复 要美国72小时内关闭驻成都领事馆  " alt="中共报复 要美国72小时内关闭驻成都领事馆  "></a></p>
+<p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/24/n12281596.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强被指遭“政治迫害” 他都说了些啥？  >-009fcc?logoWidth=1" title="任志强被指遭“政治迫害” 他都说了些啥？  " alt="任志强被指遭“政治迫害” 他都说了些啥？  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/24/n12281623.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共前外交官：美国关中领馆 新冷战拉开序幕 >-009fcc?logoWidth=1" title="中共前外交官：美国关中领馆 新冷战拉开序幕  " alt="中共前外交官：美国关中领馆 新冷战拉开序幕  "></a></p>
-<p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/24/n12281829.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：风云变 七常委频露面 各放不同信号  >-009fcc?logoWidth=1" title="钟原：风云变 七常委频露面 各放不同信号  " alt="钟原：风云变 七常委频露面 各放不同信号  "></a></p>
+<p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/23/n12278294.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯顿中领馆被关 分析：美后续必有三大招  >-009fcc?logoWidth=1" title="休斯顿中领馆被关 分析：美后续必有三大招  " alt="休斯顿中领馆被关 分析：美后续必有三大招  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/24/n12281623.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共前外交官：美国关中领馆 新冷战正式拉开序>-009fcc?logoWidth=1" title="中共前外交官：美国关中领馆 新冷战正式拉开序幕  " alt="中共前外交官：美国关中领馆 新冷战正式拉开序幕  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/24/a102901012.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥对华演说中文翻译全文(视频)     >-009fcc?logoWidth=1" title="蓬佩奥对华演说中文翻译全文(视频)  " alt="蓬佩奥对华演说中文翻译全文(视频)  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lpfeaf3001/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lpfeaf3001/www/blob/master/README.md?x#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/lpfeaf3001/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lpfeaf3001/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lpfeaf3001/www/blob/master/README.md?k#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/lpfeaf3001/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/innnn">git.io/innnn</a></div>
+<div align="center">短网址: <a href="https://git.io/mxxxx">git.io/mxxxx</a></div>
 
