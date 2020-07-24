@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/lpfeaf3001/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/lpfeaf3001/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/xbbbb">git.io/xbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2228">x.co/2228</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/s9999">git.io/s9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppy">x.co/ppy</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/23/a102900251.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河酝酿接班人大战？胡春华陈敏尔摆上台  >-009fcc?logoWidth=1" title="北戴河酝酿接班人大战？胡春华陈敏尔摆上台  " alt="北戴河酝酿接班人大战？胡春华陈敏尔摆上台  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/23/a102900164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：拆中共南海军事设备 美已部署热战  >-009fcc?logoWidth=1" title="袁弓夷：拆中共南海军事设备 美已部署热战  " alt="袁弓夷：拆中共南海军事设备 美已部署热战  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/23/a102900184.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯敦闭馆持续震荡 北京急撤数万在美留学生 >-009fcc?logoWidth=1" title="休斯敦闭馆持续震荡 北京急撤数万在美留学生  " alt="休斯敦闭馆持续震荡 北京急撤数万在美留学生  "></a></p>
+<p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/23/a102900912.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共休士顿领馆做了啥%3F 被勒令紧急关闭   >-009fcc?logoWidth=1" title="中共休士顿领馆做了啥? 被勒令紧急关闭  " alt="中共休士顿领馆做了啥? 被勒令紧急关闭  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/23/a102900855.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本鼓励从中国撤厂 首批87家企业获助700>-009fcc?logoWidth=1" title="日本鼓励从中国撤厂 首批87家企业获助700亿日元  " alt="日本鼓励从中国撤厂 首批87家企业获助700亿日元  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/23/a102900859.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲舰队驶近南沙群岛 与中共军舰近距对峙  >-009fcc?logoWidth=1" title="澳洲舰队驶近南沙群岛 与中共军舰近距对峙  " alt="澳洲舰队驶近南沙群岛 与中共军舰近距对峙  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/23/a102900815.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/安徽泄洪 七旬老人蹬三轮拉九旬老母连夜逃命（>-009fcc?logoWidth=1" title="安徽泄洪 七旬老人蹬三轮拉九旬老母连夜逃命（视频）  " alt="安徽泄洪 七旬老人蹬三轮拉九旬老母连夜逃命（视频）  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/23/a102900821.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德国转强硬 宣布中止引渡协议并救助港人   >-009fcc?logoWidth=1" title="德国转强硬 宣布中止引渡协议并救助港人  " alt="德国转强硬 宣布中止引渡协议并救助港人  "></a></p>
-<p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/23/a102900848.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/挑战刘醇逸 纽约州参议员共和党人反抗极左势力>-009fcc?logoWidth=1" title="挑战刘醇逸 纽约州参议员共和党人反抗极左势力  " alt="挑战刘醇逸 纽约州参议员共和党人反抗极左势力  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/22/n12276027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/总领事违规现场被抓？休斯顿领馆为何要关   >-009fcc?logoWidth=1" title="总领事违规现场被抓？休斯顿领馆为何要关  " alt="总领事违规现场被抓？休斯顿领馆为何要关  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/23/n12276958.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯顿中领馆烧啥？传福建大征兵       >-009fcc?logoWidth=1" title="休斯顿中领馆烧啥？传福建大征兵  " alt="休斯顿中领馆烧啥？传福建大征兵  "></a></p>
@@ -485,7 +485,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lpfeaf3001/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lpfeaf3001/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/lpfeaf3001/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lpfeaf3001/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/lpfeaf3001/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/xbbbb">git.io/xbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/s9999">git.io/s9999</a></div>
 
