@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/lpfeaf3001/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/lpfeaf3001/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/r2222">git.io/r2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/xpp">x.co/xpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/r5555">git.io/r5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/4445">x.co/4445</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/24/a102901329.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共驻休斯敦领馆拒绝关闭 网友：厚颜无耻  >-009fcc?logoWidth=1" title="中共驻休斯敦领馆拒绝关闭 网友：厚颜无耻  " alt="中共驻休斯敦领馆拒绝关闭 网友：厚颜无耻  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/24/a102901158.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球“灭共”敏感时刻 习近平喊：要守住   >-009fcc?logoWidth=1" title="全球“灭共”敏感时刻 习近平喊：要守住  " alt="全球“灭共”敏感时刻 习近平喊：要守住  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/24/a102901148.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡溃坝预演视频热传 疑官方机构制作(视频)>-009fcc?logoWidth=1" title="三峡溃坝预演视频热传 疑官方机构制作(视频)  " alt="三峡溃坝预演视频热传 疑官方机构制作(视频)  "></a></p>
+<p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/24/a102901663.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普签署降低药品价格的行政令（同声翻译）  >-009fcc?logoWidth=1" title="川普签署降低药品价格的行政令（同声翻译）  " alt="川普签署降低药品价格的行政令（同声翻译）  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/24/a102901597.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共再掀网络禁言风暴 自媒体报道洪灾成重点 >-009fcc?logoWidth=1" title="中共再掀网络禁言风暴 自媒体报道洪灾成重点  " alt="中共再掀网络禁言风暴 自媒体报道洪灾成重点  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/24/a102901618.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7.24白宫发言人新闻简报会（同声翻译）  >-009fcc?logoWidth=1" title="7.24白宫发言人新闻简报会（同声翻译）  " alt="7.24白宫发言人新闻简报会（同声翻译）  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/24/a102901553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西欧疫情反弹 全球多国新确诊破纪录     >-009fcc?logoWidth=1" title="西欧疫情反弹 全球多国新确诊破纪录  " alt="西欧疫情反弹 全球多国新确诊破纪录  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/24/a102901544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙古公安厅前副厅长赵云辉被双开      >-009fcc?logoWidth=1" title="内蒙古公安厅前副厅长赵云辉被双开  " alt="内蒙古公安厅前副厅长赵云辉被双开  "></a></p>
-<p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/24/a102901512.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赴港遭羁押 不惧中共坚持为港发声      >-009fcc?logoWidth=1" title="赴港遭羁押 不惧中共坚持为港发声  " alt="赴港遭羁押 不惧中共坚持为港发声  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/24/n12280529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥“共产中国与自由世界未来”演讲全文  >-009fcc?logoWidth=1" title="蓬佩奥“共产中国与自由世界未来”演讲全文  " alt="蓬佩奥“共产中国与自由世界未来”演讲全文  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/24/n12280168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共报复 要美国72小时内关闭驻成都领事馆 >-009fcc?logoWidth=1" title="中共报复 要美国72小时内关闭驻成都领事馆  " alt="中共报复 要美国72小时内关闭驻成都领事馆  "></a></p>
@@ -40,17 +40,15 @@
 <p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/23/n12278719.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群： 中纪委主管“反”法轮功 疯了吗？ >-009fcc?logoWidth=1" title="王友群： 中纪委主管“反”法轮功 疯了吗？  " alt="王友群： 中纪委主管“反”法轮功 疯了吗？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/23/n12279456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美关系恶化 中共下令全国播放反美影片 三类>-009fcc?logoWidth=1" title="中美关系恶化 中共下令全国播放反美影片 三类影片被禁  " alt="中美关系恶化 中共下令全国播放反美影片 三类影片被禁  "></a></p>
-<p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/23/a102900782.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强被开除党籍 网民感叹“塞翁失马”   >-009fcc?logoWidth=1" title="任志强被开除党籍 网民感叹“塞翁失马”  " alt="任志强被开除党籍 网民感叹“塞翁失马”  "></a></p>
-<p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/24/a102901165.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/关闭中领馆只是开始 川普还有一连串牌可打  >-009fcc?logoWidth=1" title="关闭中领馆只是开始 川普还有一连串牌可打  " alt="关闭中领馆只是开始 川普还有一连串牌可打  "></a></p>
-<p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/24/a102901195.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥点名习近平：笃信破产马列极权思想(视频>-009fcc?logoWidth=1" title="蓬佩奥点名习近平：笃信破产马列极权思想(视频)  " alt="蓬佩奥点名习近平：笃信破产马列极权思想(视频)  "></a></p>
+<p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/24/a102901012.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥对华演说中文翻译全文(视频)     >-009fcc?logoWidth=1" title="蓬佩奥对华演说中文翻译全文(视频)  " alt="蓬佩奥对华演说中文翻译全文(视频)  "></a></p>
+<p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/24/a102901166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/3位重量级嘉宾即时点评：蓬佩奥历史性演讲，代>-009fcc?logoWidth=1" title="3位重量级嘉宾即时点评：蓬佩奥历史性演讲，代替川普发灭共檄文  " alt="3位重量级嘉宾即时点评：蓬佩奥历史性演讲，代替川普发灭共檄文  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/23/n12277511.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美间零对话 中共“战狼”外交的尴尬    >-009fcc?logoWidth=1" title="中美间零对话 中共“战狼”外交的尴尬  " alt="中美间零对话 中共“战狼”外交的尴尬  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/24/n12279865.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习李冲突公开化 加速中共崩盘        >-009fcc?logoWidth=1" title="习李冲突公开化 加速中共崩盘  " alt="习李冲突公开化 加速中共崩盘  "></a></p>
-<p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/24/a102901219.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：中共最大的谎言是宣称代表14亿中国人>-009fcc?logoWidth=1" title="蓬佩奥：中共最大的谎言是宣称代表14亿中国人民  " alt="蓬佩奥：中共最大的谎言是宣称代表14亿中国人民  "></a></p>
-<p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/23/a102900798.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯敦中领馆被关事涉南海？美媒再曝重要细节 >-009fcc?logoWidth=1" title="休斯敦中领馆被关事涉南海？美媒再曝重要细节  " alt="休斯敦中领馆被关事涉南海？美媒再曝重要细节  "></a></p>
+<p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/24/a102901029.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4名中共军方间谍藏美国 3人被捕1人躲中领馆>-009fcc?logoWidth=1" title="4名中共军方间谍藏美国 3人被捕1人躲中领馆  " alt="4名中共军方间谍藏美国 3人被捕1人躲中领馆  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/24/n12280800.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共公安武警包围美驻成都总领馆       >-009fcc?logoWidth=1" title="中共公安武警包围美驻成都总领馆  " alt="中共公安武警包围美驻成都总领馆  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/24/n12279913.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥演讲后见民主人士 愿助中国改变政体  >-009fcc?logoWidth=1" title="蓬佩奥演讲后见民主人士 愿助中国改变政体  " alt="蓬佩奥演讲后见民主人士 愿助中国改变政体  "></a></p>
-<p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/23/a102900919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：副主席遭软禁？习近平斗不过某常委 领>-009fcc?logoWidth=1" title="陈破空：副主席遭软禁？习近平斗不过某常委 领事馆丑闻闹大了 陈全国漏了马脚  " alt="陈破空：副主席遭软禁？习近平斗不过某常委 领事馆丑闻闹大了 陈全国漏了马脚  "></a></p>
-<p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/24/a102901069.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/爆本土感染！辽宁大连进入战时状态 检测19万>-009fcc?logoWidth=1" title="爆本土感染！辽宁大连进入战时状态 检测19万人  " alt="爆本土感染！辽宁大连进入战时状态 检测19万人  "></a></p>
+<p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/23/a102900782.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强被开除党籍 网民感叹“塞翁失马”   >-009fcc?logoWidth=1" title="任志强被开除党籍 网民感叹“塞翁失马”  " alt="任志强被开除党籍 网民感叹“塞翁失马”  "></a></p>
+<p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/24/a102901165.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/关闭中领馆只是开始 川普还有一连串牌可打  >-009fcc?logoWidth=1" title="关闭中领馆只是开始 川普还有一连串牌可打  " alt="关闭中领馆只是开始 川普还有一连串牌可打  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -488,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lpfeaf3001/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lpfeaf3001/www/blob/master/README.md?m#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/lpfeaf3001/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lpfeaf3001/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lpfeaf3001/www/blob/master/README.md?u#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/lpfeaf3001/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/r2222">git.io/r2222</a></div>
+<div align="center">短网址: <a href="https://git.io/r5555">git.io/r5555</a></div>
 
