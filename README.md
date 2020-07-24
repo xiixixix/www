@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/lpfeaf3001/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/lpfeaf3001/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g9999">git.io/g9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/zdd">x.co/zdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyyyyy">git.io/yyyyyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppf">x.co/ppf</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -29,17 +29,18 @@
 <p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/24/n12280529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥“共产中国与自由世界未来”演讲全文  >-009fcc?logoWidth=1" title="蓬佩奥“共产中国与自由世界未来”演讲全文  " alt="蓬佩奥“共产中国与自由世界未来”演讲全文  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/24/n12280168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共报复 要美国72小时内关闭驻成都领事馆 >-009fcc?logoWidth=1" title="中共报复 要美国72小时内关闭驻成都领事馆  " alt="中共报复 要美国72小时内关闭驻成都领事馆  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/23/n12278294.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯顿中领馆被关 分析：美后续必有三大招  >-009fcc?logoWidth=1" title="休斯顿中领馆被关 分析：美后续必有三大招  " alt="休斯顿中领馆被关 分析：美后续必有三大招  "></a></p>
-<p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/23/n12279456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共下令播放反美影片 网民：再次忽悠百姓  >-009fcc?logoWidth=1" title="中共下令播放反美影片 网民：再次忽悠百姓  " alt="中共下令播放反美影片 网民：再次忽悠百姓  "></a></p>
-<p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/23/n12278081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习李矛盾公开化 中共政权加速分崩离析    >-009fcc?logoWidth=1" title="习李矛盾公开化 中共政权加速分崩离析  " alt="习李矛盾公开化 中共政权加速分崩离析  "></a></p>
-<p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/24/n12279951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院高级官员会见五位法轮功学员     >-009fcc?logoWidth=1" title="美国务院高级官员会见五位法轮功学员  " alt="美国务院高级官员会见五位法轮功学员  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/15/n12257798.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件曝中共监控法轮功严密        >-009fcc?logoWidth=1" title="内部文件曝中共监控法轮功严密  " alt="内部文件曝中共监控法轮功严密  "></a></p>
+<p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/24/n12280020.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：中共休斯顿总领事拒绝闭馆 再耍流氓  >-009fcc?logoWidth=1" title="田云：中共休斯顿总领事拒绝闭馆 再耍流氓  " alt="田云：中共休斯顿总领事拒绝闭馆 再耍流氓  "></a></p>
+<p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/24/n12279951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院高级官员会见五位法轮功学员     >-009fcc?logoWidth=1" title="美国务院高级官员会见五位法轮功学员  " alt="美国务院高级官员会见五位法轮功学员  "></a></p>
+<p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/23/n12278081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习李矛盾公开化 中共政权加速分崩离析    >-009fcc?logoWidth=1" title="习李矛盾公开化 中共政权加速分崩离析  " alt="习李矛盾公开化 中共政权加速分崩离析  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/23/n12277723.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：中共外交部一大谎言 14年后删文灭迹>-009fcc?logoWidth=1" title="陈思敏：中共外交部一大谎言 14年后删文灭迹  " alt="陈思敏：中共外交部一大谎言 14年后删文灭迹  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/23/n12279508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥发表讨共檄文 吁中国人民站起来    >-009fcc?logoWidth=1" title="蓬佩奥发表讨共檄文 吁中国人民站起来  " alt="蓬佩奥发表讨共檄文 吁中国人民站起来  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/23/n12278719.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群： 中纪委主管“反”法轮功 疯了吗？ >-009fcc?logoWidth=1" title="王友群： 中纪委主管“反”法轮功 疯了吗？  " alt="王友群： 中纪委主管“反”法轮功 疯了吗？  "></a></p>
-<p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/24/n12279865.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习李冲突公开化 加速中共崩盘        >-009fcc?logoWidth=1" title="习李冲突公开化 加速中共崩盘  " alt="习李冲突公开化 加速中共崩盘  "></a></p>
-<p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/24/n12280020.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：中共休斯顿总领事拒绝闭馆 再耍流氓  >-009fcc?logoWidth=1" title="田云：中共休斯顿总领事拒绝闭馆 再耍流氓  " alt="田云：中共休斯顿总领事拒绝闭馆 再耍流氓  "></a></p>
+<p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/24/n12280153.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/解禁一天 8家科创板公司股东宣布减持63亿元>-009fcc?logoWidth=1" title="解禁一天 8家科创板公司股东宣布减持63亿元  " alt="解禁一天 8家科创板公司股东宣布减持63亿元  "></a></p>
+<p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/23/n12279456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共下令播放反美影片 网民：再次忽悠百姓  >-009fcc?logoWidth=1" title="中共下令播放反美影片 网民：再次忽悠百姓  " alt="中共下令播放反美影片 网民：再次忽悠百姓  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/23/a102900782.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强被开除党籍 网民感叹“塞翁失马”   >-009fcc?logoWidth=1" title="任志强被开除党籍 网民感叹“塞翁失马”  " alt="任志强被开除党籍 网民感叹“塞翁失马”  "></a></p>
+<p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/24/n12279865.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习李冲突公开化 加速中共崩盘        >-009fcc?logoWidth=1" title="习李冲突公开化 加速中共崩盘  " alt="习李冲突公开化 加速中共崩盘  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/2020/07/24/a102901165.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/关闭中领馆只是开始 川普还有一连串牌可打  >-009fcc?logoWidth=1" title="关闭中领馆只是开始 川普还有一连串牌可打  " alt="关闭中领馆只是开始 川普还有一连串牌可打  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/23/n12277511.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美间零对话 中共“战狼”外交的尴尬    >-009fcc?logoWidth=1" title="中美间零对话 中共“战狼”外交的尴尬  " alt="中美间零对话 中共“战狼”外交的尴尬  "></a></p>
 <p><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/20/7/23/n12279110.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金言：三峡大坝与中国龙脉风水揭密      >-009fcc?logoWidth=1" title="金言：三峡大坝与中国龙脉风水揭密  " alt="金言：三峡大坝与中国龙脉风水揭密  "></a></p>
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lpfeaf3001/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lpfeaf3001/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/lpfeaf3001/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/lpfeaf3001/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lpfeaf3001/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lpfeaf3001/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lpfeaf3001/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/lpfeaf3001/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/g9999">git.io/g9999</a></div>
+<div align="center">短网址: <a href="https://git.io/yyyyyyyy">git.io/yyyyyyyy</a></div>
 
