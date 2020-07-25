@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/twuyzx3598/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/twuyzx3598/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jaaaa">git.io/jaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/udd">x.co/udd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/epppp">git.io/epppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/kaa">x.co/kaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/twuyzx3598/ntdtv/blob/master/gb/2020/07/24/a102901376.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共跳脚报复 关闭成都美领馆        >-009fcc?logoWidth=1" title="中共跳脚报复 关闭成都美领馆  " alt="中共跳脚报复 关闭成都美领馆  "></a></p>
 <p><a href="https://github.com/twuyzx3598/ntdtv/blob/master/gb/2020/07/24/a102901190.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球“灭共”浪潮高涨 习喊：要守住     >-009fcc?logoWidth=1" title="全球“灭共”浪潮高涨 习喊：要守住  " alt="全球“灭共”浪潮高涨 习喊：要守住  "></a></p>
 <p><a href="https://github.com/twuyzx3598/ntdtv/blob/master/gb/2020/07/24/a102901325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南方一片汪洋 习近平跑东北视察为哪般？   >-009fcc?logoWidth=1" title="南方一片汪洋 习近平跑东北视察为哪般？  " alt="南方一片汪洋 习近平跑东北视察为哪般？  "></a></p>
+<p><a href="https://github.com/twuyzx3598/ntdtv/blob/master/gb/2020/07/25/a102902131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑山西高官被抓视频热传 场面震撼      >-009fcc?logoWidth=1" title="疑山西高官被抓视频热传 场面震撼  " alt="疑山西高官被抓视频热传 场面震撼  "></a></p>
 <p><a href="https://github.com/twuyzx3598/ntdtv/blob/master/gb/2020/07/25/a102902128.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一年援助北京7千万英镑 英政府挨轰“疯了” >-009fcc?logoWidth=1" title="一年援助北京7千万英镑 英政府挨轰“疯了”  " alt="一年援助北京7千万英镑 英政府挨轰“疯了”  "></a></p>
 <p><a href="https://github.com/twuyzx3598/ntdtv/blob/master/gb/2020/07/25/a102902041.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情再亮红灯 法国强制16国旅客入境病毒检测>-009fcc?logoWidth=1" title="疫情再亮红灯 法国强制16国旅客入境病毒检测  " alt="疫情再亮红灯 法国强制16国旅客入境病毒检测  "></a></p>
 <p><a href="https://github.com/twuyzx3598/ntdtv/blob/master/gb/2020/07/25/a102902103.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/隐藏中领馆的中共女谍被捕 中共被迫弃卒保车 >-009fcc?logoWidth=1" title="隐藏中领馆的中共女谍被捕 中共被迫弃卒保车  " alt="隐藏中领馆的中共女谍被捕 中共被迫弃卒保车  "></a></p>
 <p><a href="https://github.com/twuyzx3598/ntdtv/blob/master/gb/2020/07/25/a102902091.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为中共搜集情报 新加坡男向美国认罪     >-009fcc?logoWidth=1" title="为中共搜集情报 新加坡男向美国认罪  " alt="为中共搜集情报 新加坡男向美国认罪  "></a></p>
-<p><a href="https://github.com/twuyzx3598/ntdtv/blob/master/gb/2020/07/25/a102902039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“三峡大坝之父”病逝 三峡坝体命运难料   >-009fcc?logoWidth=1" title="“三峡大坝之父”病逝 三峡坝体命运难料  " alt="“三峡大坝之父”病逝 三峡坝体命运难料  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/twuyzx3598/djy/blob/master/gb/20/7/24/n12281834.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯顿中领馆关闭 美政府人员进驻      >-009fcc?logoWidth=1" title="休斯顿中领馆关闭 美政府人员进驻  " alt="休斯顿中领馆关闭 美政府人员进驻  "></a></p>
 <p><a href="https://github.com/twuyzx3598/djy/blob/master/gb/20/7/24/n12281618.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾藏匿旧金山中领馆 中共空军女军官被捕   >-009fcc?logoWidth=1" title="曾藏匿旧金山中领馆 中共空军女军官被捕  " alt="曾藏匿旧金山中领馆 中共空军女军官被捕  "></a></p>
@@ -41,6 +41,7 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/twuyzx3598/djy/blob/master/gb/20/7/24/n12281623.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共前外交官：美国关中领馆 新冷战正式拉开序>-009fcc?logoWidth=1" title="中共前外交官：美国关中领馆 新冷战正式拉开序幕  " alt="中共前外交官：美国关中领馆 新冷战正式拉开序幕  "></a></p>
 <p><a href="https://github.com/twuyzx3598/ntdtv/blob/master/gb/2020/07/24/a102901879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/敏感时刻美又曝共谍案 新加坡公民认罪是中共间>-009fcc?logoWidth=1" title="敏感时刻美又曝共谍案 新加坡公民认罪是中共间谍  " alt="敏感时刻美又曝共谍案 新加坡公民认罪是中共间谍  "></a></p>
+<p><a href="https://github.com/twuyzx3598/ntdtv/blob/master/gb/2020/07/25/a102902039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“三峡大坝之父”病逝 三峡坝体命运难料   >-009fcc?logoWidth=1" title="“三峡大坝之父”病逝 三峡坝体命运难料  " alt="“三峡大坝之父”病逝 三峡坝体命运难料  "></a></p>
 <p><a href="https://github.com/twuyzx3598/djy/blob/master/gb/20/7/25/n12282568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球掀退党潮 原大陆“网络宣传员”退党   >-009fcc?logoWidth=1" title="全球掀退党潮 原大陆“网络宣传员”退党  " alt="全球掀退党潮 原大陆“网络宣传员”退党  "></a></p>
 <p><a href="https://github.com/twuyzx3598/djy/blob/master/gb/20/7/24/n12281891.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美重锤下北京买买买 川普：意义不大     >-009fcc?logoWidth=1" title="美重锤下北京买买买 川普：意义不大  " alt="美重锤下北京买买买 川普：意义不大  "></a></p>
 <p><a href="https://github.com/twuyzx3598/ntdtv/blob/master/gb/2020/07/25/a102901941.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥的灭共宣言 制裁习近平和全体党员概率大>-009fcc?logoWidth=1" title="蓬佩奥的灭共宣言 制裁习近平和全体党员概率大增  " alt="蓬佩奥的灭共宣言 制裁习近平和全体党员概率大增  "></a></p>
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/twuyzx3598/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/twuyzx3598/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/twuyzx3598/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/twuyzx3598/www/blob/master/README.md?t#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/twuyzx3598/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/twuyzx3598/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/twuyzx3598/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/twuyzx3598/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/twuyzx3598/www/blob/master/README.md?x#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/twuyzx3598/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jaaaa">git.io/jaaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/epppp">git.io/epppp</a></div>
 
