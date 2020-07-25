@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hwkcku363/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hwkcku363/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nzzzz">git.io/nzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppj">x.co/ppj</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/888888">git.io/888888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppx">x.co/ppx</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -42,7 +42,7 @@
 <p><a href="https://github.com/hwkcku363/ntdtv/blob/master/gb/2020/07/25/a102902292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/诉任志强 拆明天系 习近平三面树敌     >-009fcc?logoWidth=1" title="诉任志强 拆明天系 习近平三面树敌  " alt="诉任志强 拆明天系 习近平三面树敌  "></a></p>
 <p><a href="https://github.com/hwkcku363/ntdtv/blob/master/gb/2020/07/25/a102902103.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/隐藏中领馆的中共女谍被捕 中共被迫弃卒保车 >-009fcc?logoWidth=1" title="隐藏中领馆的中共女谍被捕 中共被迫弃卒保车  " alt="隐藏中领馆的中共女谍被捕 中共被迫弃卒保车  "></a></p>
 <p><a href="https://github.com/hwkcku363/ntdtv/blob/master/gb/2020/07/25/a102902131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑山西高官被抓视频热传 场面震撼      >-009fcc?logoWidth=1" title="疑山西高官被抓视频热传 场面震撼  " alt="疑山西高官被抓视频热传 场面震撼  "></a></p>
-<p><a href="https://github.com/hwkcku363/djy/blob/master/gb/20/7/25/n12282568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球退党大潮  原大陆“网络宣传员”退党  >-009fcc?logoWidth=1" title="全球退党大潮  原大陆“网络宣传员”退党  " alt="全球退党大潮  原大陆“网络宣传员”退党  "></a></p>
+<p><a href="https://github.com/hwkcku363/djy/blob/master/gb/20/7/25/n12282568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟禁中共党员入境 原大陆网络宣传员退党  >-009fcc?logoWidth=1" title="美拟禁中共党员入境 原大陆网络宣传员退党  " alt="美拟禁中共党员入境 原大陆网络宣传员退党  "></a></p>
 <p><a href="https://github.com/hwkcku363/djy/blob/master/gb/20/7/24/n12279951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院高级官员会见五位法轮功学员     >-009fcc?logoWidth=1" title="美国务院高级官员会见五位法轮功学员  " alt="美国务院高级官员会见五位法轮功学员  "></a></p>
 <p><a href="https://github.com/hwkcku363/ntdtv/blob/master/gb/2020/07/25/a102901941.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥的灭共宣言 制裁习近平和全体党员概率大>-009fcc?logoWidth=1" title="蓬佩奥的灭共宣言 制裁习近平和全体党员概率大增  " alt="蓬佩奥的灭共宣言 制裁习近平和全体党员概率大增  "></a></p>
 <p><a href="https://github.com/hwkcku363/djy/blob/master/gb/20/7/25/n12283034.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又卖了 李嘉诚出售成都资产 将获利38亿  >-009fcc?logoWidth=1" title="又卖了 李嘉诚出售成都资产 将获利38亿  " alt="又卖了 李嘉诚出售成都资产 将获利38亿  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hwkcku363/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hwkcku363/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/hwkcku363/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hwkcku363/www/blob/master/README.md?d#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/hwkcku363/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hwkcku363/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hwkcku363/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/hwkcku363/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hwkcku363/www/blob/master/README.md?x#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/hwkcku363/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/nzzzz">git.io/nzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/888888">git.io/888888</a></div>
 
