@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hwkcku363/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hwkcku363/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b8888">git.io/b8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aae">x.co/aae</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/brrrr">git.io/brrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9933">x.co/9933</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/hwkcku363/ntdtv/blob/master/gb/2020/07/25/a102902229.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一旦中美开战你愿为祖国捐多少？网友回答亮了 >-009fcc?logoWidth=1" title="一旦中美开战你愿为祖国捐多少？网友回答亮了  " alt="一旦中美开战你愿为祖国捐多少？网友回答亮了  "></a></p>
 <p><a href="https://github.com/hwkcku363/ntdtv/blob/master/gb/2020/07/25/a102902192.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视直播关闭成都美领馆 网友：有种直播洪水！>-009fcc?logoWidth=1" title="央视直播关闭成都美领馆 网友：有种直播洪水！  " alt="央视直播关闭成都美领馆 网友：有种直播洪水！  "></a></p>
 <p><a href="https://github.com/hwkcku363/ntdtv/blob/master/gb/2020/07/25/a102902158.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美“开战”休斯顿成都领馆被关       >-009fcc?logoWidth=1" title="中美“开战”休斯顿成都领馆被关  " alt="中美“开战”休斯顿成都领馆被关  "></a></p>
+<p><a href="https://github.com/hwkcku363/ntdtv/blob/master/gb/2020/07/25/a102902638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/继美国之后 澳洲声明中共南海主权“没有法律基>-009fcc?logoWidth=1" title="继美国之后 澳洲声明中共南海主权“没有法律基础”  " alt="继美国之后 澳洲声明中共南海主权“没有法律基础”  "></a></p>
 <p><a href="https://github.com/hwkcku363/ntdtv/blob/master/gb/2020/07/25/a102902607.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英拟砍每年7千万英镑对华援助 网友:从来不知>-009fcc?logoWidth=1" title="英拟砍每年7千万英镑对华援助 网友:从来不知道  " alt="英拟砍每年7千万英镑对华援助 网友:从来不知道  "></a></p>
 <p><a href="https://github.com/hwkcku363/ntdtv/blob/master/gb/2020/07/25/a102902574.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港首宗反送中“暴动案”审结 3被告罪名不成>-009fcc?logoWidth=1" title="香港首宗反送中“暴动案”审结 3被告罪名不成立  " alt="香港首宗反送中“暴动案”审结 3被告罪名不成立  "></a></p>
 <p><a href="https://github.com/hwkcku363/ntdtv/blob/master/gb/2020/07/25/a102902503.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国土安全部成立中国工作组 应对中共威胁  >-009fcc?logoWidth=1" title="美国土安全部成立中国工作组 应对中共威胁  " alt="美国土安全部成立中国工作组 应对中共威胁  "></a></p>
 <p><a href="https://github.com/hwkcku363/ntdtv/blob/master/gb/2020/07/25/a102902495.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/尼克松基金主席：蓬佩奥讲话开启大胆的美中关系>-009fcc?logoWidth=1" title="尼克松基金主席：蓬佩奥讲话开启大胆的美中关系新篇章  " alt="尼克松基金主席：蓬佩奥讲话开启大胆的美中关系新篇章  "></a></p>
-<p><a href="https://github.com/hwkcku363/ntdtv/blob/master/gb/2020/07/25/a102902598.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥演讲：中共不等于中国 民运到场支持  >-009fcc?logoWidth=1" title="蓬佩奥演讲：中共不等于中国 民运到场支持  " alt="蓬佩奥演讲：中共不等于中国 民运到场支持  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/hwkcku363/djy/blob/master/gb/20/7/25/n12282678.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中领馆被关闭 专家：美对付中共还有10大招 >-009fcc?logoWidth=1" title="中领馆被关闭 专家：美对付中共还有10大招  " alt="中领馆被关闭 专家：美对付中共还有10大招  "></a></p>
 <p><a href="https://github.com/hwkcku363/djy/blob/master/gb/20/7/24/n12282144.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：中领馆被迫交出空军女军官？      >-009fcc?logoWidth=1" title="沈舟：中领馆被迫交出空军女军官？  " alt="沈舟：中领馆被迫交出空军女军官？  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hwkcku363/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hwkcku363/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/hwkcku363/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hwkcku363/www/blob/master/README.md?e#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/hwkcku363/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hwkcku363/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hwkcku363/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/hwkcku363/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hwkcku363/www/blob/master/README.md?c#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/hwkcku363/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/b8888">git.io/b8888</a></div>
+<div align="center">短网址: <a href="https://git.io/brrrr">git.io/brrrr</a></div>
 
