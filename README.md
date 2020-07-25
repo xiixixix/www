@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hwkcku363/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hwkcku363/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hhhhhhh">git.io/hhhhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp6">x.co/pp6</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bbbbbb">git.io/bbbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3999">x.co/3999</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,6 +39,16 @@
 <p><a href="https://github.com/hwkcku363/djy/blob/master/gb/20/7/24/n12282148.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共不代表14亿中国人民的十个理由 >-009fcc?logoWidth=1" title="王友群：中共不代表14亿中国人民的十个理由  " alt="王友群：中共不代表14亿中国人民的十个理由  "></a></p>
 <p><a href="https://github.com/hwkcku363/djy/blob/master/gb/20/7/24/n12281596.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强被指遭“政治迫害” 他都说了些啥？  >-009fcc?logoWidth=1" title="任志强被指遭“政治迫害” 他都说了些啥？  " alt="任志强被指遭“政治迫害” 他都说了些啥？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/hwkcku363/ntdtv/blob/master/gb/2020/07/25/a102902292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/诉任志强 拆明天系 习近平三面树敌     >-009fcc?logoWidth=1" title="诉任志强 拆明天系 习近平三面树敌  " alt="诉任志强 拆明天系 习近平三面树敌  "></a></p>
+<p><a href="https://github.com/hwkcku363/ntdtv/blob/master/gb/2020/07/25/a102902103.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/隐藏中领馆的中共女谍被捕 中共被迫弃卒保车 >-009fcc?logoWidth=1" title="隐藏中领馆的中共女谍被捕 中共被迫弃卒保车  " alt="隐藏中领馆的中共女谍被捕 中共被迫弃卒保车  "></a></p>
+<p><a href="https://github.com/hwkcku363/ntdtv/blob/master/gb/2020/07/25/a102902131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑山西高官被抓视频热传 场面震撼      >-009fcc?logoWidth=1" title="疑山西高官被抓视频热传 场面震撼  " alt="疑山西高官被抓视频热传 场面震撼  "></a></p>
+<p><a href="https://github.com/hwkcku363/djy/blob/master/gb/20/7/25/n12282568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟禁中共党员入境 原大陆网络宣传员退党  >-009fcc?logoWidth=1" title="美拟禁中共党员入境 原大陆网络宣传员退党  " alt="美拟禁中共党员入境 原大陆网络宣传员退党  "></a></p>
+<p><a href="https://github.com/hwkcku363/djy/blob/master/gb/20/7/24/n12279951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院高级官员会见五位法轮功学员     >-009fcc?logoWidth=1" title="美国务院高级官员会见五位法轮功学员  " alt="美国务院高级官员会见五位法轮功学员  "></a></p>
+<p><a href="https://github.com/hwkcku363/ntdtv/blob/master/gb/2020/07/25/a102901941.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥的灭共宣言 制裁习近平和全体党员概率大>-009fcc?logoWidth=1" title="蓬佩奥的灭共宣言 制裁习近平和全体党员概率大增  " alt="蓬佩奥的灭共宣言 制裁习近平和全体党员概率大增  "></a></p>
+<p><a href="https://github.com/hwkcku363/djy/blob/master/gb/20/7/25/n12283034.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又卖了 李嘉诚出售成都资产 将获利38亿  >-009fcc?logoWidth=1" title="又卖了 李嘉诚出售成都资产 将获利38亿  " alt="又卖了 李嘉诚出售成都资产 将获利38亿  "></a></p>
+<p><a href="https://github.com/hwkcku363/djy/blob/master/gb/20/7/25/n12282620.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被超高估值 中芯国际上市一周股价跌24   >-009fcc?logoWidth=1" title="被超高估值 中芯国际上市一周股价跌24  " alt="被超高估值 中芯国际上市一周股价跌24  "></a></p>
+<p><a href="https://github.com/hwkcku363/ntdtv/blob/master/gb/2020/07/25/a102901944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：国务卿发表讨共檄文 习近平匆忙离京 >-009fcc?logoWidth=1" title="陈破空：国务卿发表讨共檄文 习近平匆忙离京  " alt="陈破空：国务卿发表讨共檄文 习近平匆忙离京  "></a></p>
+<p><a href="https://github.com/hwkcku363/ntdtv/blob/master/gb/2020/07/25/a102902055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：休斯敦中领馆连夜撤离关闭 一个时代结束>-009fcc?logoWidth=1" title="组图：休斯敦中领馆连夜撤离关闭 一个时代结束了  " alt="组图：休斯敦中领馆连夜撤离关闭 一个时代结束了  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -476,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hwkcku363/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hwkcku363/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/hwkcku363/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hwkcku363/www/blob/master/README.md?e#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/hwkcku363/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hwkcku363/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hwkcku363/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/hwkcku363/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hwkcku363/www/blob/master/README.md?o#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/hwkcku363/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hhhhhhh">git.io/hhhhhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/bbbbbb">git.io/bbbbbb</a></div>
 
