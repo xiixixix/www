@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/iwuowc3838/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/iwuowc3838/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/quuuu">git.io/quuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/udd">x.co/udd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rhhhh">git.io/rhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aea">x.co/aea</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/25/a102902055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：休斯敦中领馆连夜撤离关闭 一个时代结束>-009fcc?logoWidth=1" title="组图：休斯敦中领馆连夜撤离关闭 一个时代结束了  " alt="组图：休斯敦中领馆连夜撤离关闭 一个时代结束了  "></a></p>
 <p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/25/a102902020.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：美国捏著中共的“命门” 不怕事态升级 >-009fcc?logoWidth=1" title="分析：美国捏著中共的“命门” 不怕事态升级  " alt="分析：美国捏著中共的“命门” 不怕事态升级  "></a></p>
 <p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/25/a102902010.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯敦中领馆强制关闭细节曝光 美方破门而入(>-009fcc?logoWidth=1" title="休斯敦中领馆强制关闭细节曝光 美方破门而入(视频)  " alt="休斯敦中领馆强制关闭细节曝光 美方破门而入(视频)  "></a></p>
 <p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/24/a102901376.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共跳脚报复 关闭成都美领馆        >-009fcc?logoWidth=1" title="中共跳脚报复 关闭成都美领馆  " alt="中共跳脚报复 关闭成都美领馆  "></a></p>
 <p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/24/a102901190.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球“灭共”浪潮高涨 习喊：要守住     >-009fcc?logoWidth=1" title="全球“灭共”浪潮高涨 习喊：要守住  " alt="全球“灭共”浪潮高涨 习喊：要守住  "></a></p>
 <p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/24/a102901325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南方一片汪洋 习近平跑东北视察为哪般？   >-009fcc?logoWidth=1" title="南方一片汪洋 习近平跑东北视察为哪般？  " alt="南方一片汪洋 习近平跑东北视察为哪般？  "></a></p>
-<p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/24/a102901329.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共驻休斯敦领馆拒绝关闭 网友：厚颜无耻  >-009fcc?logoWidth=1" title="中共驻休斯敦领馆拒绝关闭 网友：厚颜无耻  " alt="中共驻休斯敦领馆拒绝关闭 网友：厚颜无耻  "></a></p>
 <p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/25/a102902039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“三峡大坝之父”病逝 三峡坝体命运难料   >-009fcc?logoWidth=1" title="“三峡大坝之父”病逝 三峡坝体命运难料  " alt="“三峡大坝之父”病逝 三峡坝体命运难料  "></a></p>
 <p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/25/a102902015.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英疫情欧洲之冠 约翰逊承认初期搞不清状况  >-009fcc?logoWidth=1" title="英疫情欧洲之冠 约翰逊承认初期搞不清状况  " alt="英疫情欧洲之冠 约翰逊承认初期搞不清状况  "></a></p>
 <p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/25/a102901989.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈家洛：9月6日 真相与谎言对决      >-009fcc?logoWidth=1" title="陈家洛：9月6日 真相与谎言对决  " alt="陈家洛：9月6日 真相与谎言对决  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/iwuowc3838/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/iwuowc3838/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/iwuowc3838/www/blob/master/README.md?q#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/iwuowc3838/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/iwuowc3838/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/iwuowc3838/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/iwuowc3838/www/blob/master/README.md?k#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/iwuowc3838/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/quuuu">git.io/quuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/rhhhh">git.io/rhhhh</a></div>
 
