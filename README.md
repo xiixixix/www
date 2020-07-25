@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/twuyzx3598/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/twuyzx3598/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gdddd">git.io/gdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/sdd">x.co/sdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/quuuu">git.io/quuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp6">x.co/pp6</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/twuyzx3598/ntdtv/blob/master/gb/2020/07/25/a102902010.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯敦中领馆强制关闭细节曝光 美方破门而入(>-009fcc?logoWidth=1" title="休斯敦中领馆强制关闭细节曝光 美方破门而入(视频)  " alt="休斯敦中领馆强制关闭细节曝光 美方破门而入(视频)  "></a></p>
 <p><a href="https://github.com/twuyzx3598/ntdtv/blob/master/gb/2020/07/24/a102901376.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共跳脚报复 关闭成都美领馆        >-009fcc?logoWidth=1" title="中共跳脚报复 关闭成都美领馆  " alt="中共跳脚报复 关闭成都美领馆  "></a></p>
 <p><a href="https://github.com/twuyzx3598/ntdtv/blob/master/gb/2020/07/24/a102901190.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球“灭共”浪潮高涨 习喊：要守住     >-009fcc?logoWidth=1" title="全球“灭共”浪潮高涨 习喊：要守住  " alt="全球“灭共”浪潮高涨 习喊：要守住  "></a></p>
+<p><a href="https://github.com/twuyzx3598/ntdtv/blob/master/gb/2020/07/25/a102902190.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥呼吁建民主新同盟 扫除美中“碎玻璃” >-009fcc?logoWidth=1" title="蓬佩奥呼吁建民主新同盟 扫除美中“碎玻璃”  " alt="蓬佩奥呼吁建民主新同盟 扫除美中“碎玻璃”  "></a></p>
 <p><a href="https://github.com/twuyzx3598/ntdtv/blob/master/gb/2020/07/25/a102902192.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视直播关成都美领馆 网友：咋不直播安徽淹死>-009fcc?logoWidth=1" title="央视直播关成都美领馆 网友：咋不直播安徽淹死人？  " alt="央视直播关成都美领馆 网友：咋不直播安徽淹死人？  "></a></p>
-<p><a href="https://github.com/twuyzx3598/ntdtv/blob/master/gb/2020/07/25/a102902165.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/报复发射弹药攻击 以色列空袭叙利亚军事基地 >-009fcc?logoWidth=1" title="报复发射弹药攻击 以色列空袭叙利亚军事基地  " alt="报复发射弹药攻击 以色列空袭叙利亚军事基地  "></a></p>
+<p><a href="https://github.com/twuyzx3598/ntdtv/blob/master/gb/2020/07/25/a102902165.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/叙利亚攻击戈兰高地 以色列空袭军事基地报复 >-009fcc?logoWidth=1" title="叙利亚攻击戈兰高地 以色列空袭军事基地报复  " alt="叙利亚攻击戈兰高地 以色列空袭军事基地报复  "></a></p>
 <p><a href="https://github.com/twuyzx3598/ntdtv/blob/master/gb/2020/07/25/a102902164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人权组织谴责《纽时》歧视受迫害信仰群体   >-009fcc?logoWidth=1" title="人权组织谴责《纽时》歧视受迫害信仰群体  " alt="人权组织谴责《纽时》歧视受迫害信仰群体  "></a></p>
 <p><a href="https://github.com/twuyzx3598/ntdtv/blob/master/gb/2020/07/25/a102902156.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院高级官员会见五位法轮功学员     >-009fcc?logoWidth=1" title="美国务院高级官员会见五位法轮功学员  " alt="美国务院高级官员会见五位法轮功学员  "></a></p>
-<p><a href="https://github.com/twuyzx3598/ntdtv/blob/master/gb/2020/07/25/a102902131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑山西高官被抓视频热传 场面震撼      >-009fcc?logoWidth=1" title="疑山西高官被抓视频热传 场面震撼  " alt="疑山西高官被抓视频热传 场面震撼  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/twuyzx3598/djy/blob/master/gb/20/7/24/n12281364.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共关闭美驻成都领事馆 白宫发警告     >-009fcc?logoWidth=1" title="中共关闭美驻成都领事馆 白宫发警告  " alt="中共关闭美驻成都领事馆 白宫发警告  "></a></p>
 <p><a href="https://github.com/twuyzx3598/djy/blob/master/gb/20/7/24/n12281834.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯顿中领馆关闭 美政府人员进驻      >-009fcc?logoWidth=1" title="休斯顿中领馆关闭 美政府人员进驻  " alt="休斯顿中领馆关闭 美政府人员进驻  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/twuyzx3598/djy/blob/master/gb/20/7/25/n12282308.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美接管休斯顿中领馆             >-009fcc?logoWidth=1" title="美接管休斯顿中领馆  " alt="美接管休斯顿中领馆  "></a></p>
 <p><a href="https://github.com/twuyzx3598/djy/blob/master/gb/20/6/26/n12215025.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/肯尼迪：北京一步走错步步错         >-009fcc?logoWidth=1" title="肯尼迪：北京一步走错步步错  " alt="肯尼迪：北京一步走错步步错  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/twuyzx3598/ntdtv/blob/master/gb/2020/07/24/a102901775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共报复为何选中成都美领馆？陆专家:两个考量>-009fcc?logoWidth=1" title="中共报复为何选中成都美领馆？陆专家:两个考量  " alt="中共报复为何选中成都美领馆？陆专家:两个考量  "></a></p>
 <p><a href="https://github.com/twuyzx3598/ntdtv/blob/master/gb/2020/07/25/a102901941.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥的灭共宣言 制裁习近平和全体党员概率大>-009fcc?logoWidth=1" title="蓬佩奥的灭共宣言 制裁习近平和全体党员概率大增  " alt="蓬佩奥的灭共宣言 制裁习近平和全体党员概率大增  "></a></p>
 <p><a href="https://github.com/twuyzx3598/ntdtv/blob/master/gb/2020/07/25/a102902173.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/共谍唐娟深夜被旧金山领事馆推出门外遭逮捕  >-009fcc?logoWidth=1" title="共谍唐娟深夜被旧金山领事馆推出门外遭逮捕  " alt="共谍唐娟深夜被旧金山领事馆推出门外遭逮捕  "></a></p>
 <p><a href="https://github.com/twuyzx3598/ntdtv/blob/master/gb/2020/07/25/a102902039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“三峡大坝之父”病逝 三峡坝体命运难料   >-009fcc?logoWidth=1" title="“三峡大坝之父”病逝 三峡坝体命运难料  " alt="“三峡大坝之父”病逝 三峡坝体命运难料  "></a></p>
@@ -487,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/twuyzx3598/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/twuyzx3598/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/twuyzx3598/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/twuyzx3598/www/blob/master/README.md?o#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/twuyzx3598/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/twuyzx3598/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/twuyzx3598/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/twuyzx3598/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/twuyzx3598/www/blob/master/README.md?e#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/twuyzx3598/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gdddd">git.io/gdddd</a></div>
+<div align="center">短网址: <a href="https://git.io/quuuu">git.io/quuuu</a></div>
 
