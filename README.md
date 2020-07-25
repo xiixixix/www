@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/iwuowc3838/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/iwuowc3838/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kqqqq">git.io/kqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2pp">x.co/2pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/99999999">git.io/99999999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp9">x.co/pp9</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/24/a102901329.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共驻休斯敦领馆拒绝关闭 网友：厚颜无耻  >-009fcc?logoWidth=1" title="中共驻休斯敦领馆拒绝关闭 网友：厚颜无耻  " alt="中共驻休斯敦领馆拒绝关闭 网友：厚颜无耻  "></a></p>
 <p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/24/a102901158.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球“灭共”敏感时刻 习近平喊：要守住   >-009fcc?logoWidth=1" title="全球“灭共”敏感时刻 习近平喊：要守住  " alt="全球“灭共”敏感时刻 习近平喊：要守住  "></a></p>
 <p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/24/a102901148.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡溃坝预演视频热传 疑官方机构制作(视频)>-009fcc?logoWidth=1" title="三峡溃坝预演视频热传 疑官方机构制作(视频)  " alt="三峡溃坝预演视频热传 疑官方机构制作(视频)  "></a></p>
+<p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾藏匿旧金山中领馆 中共空军女军官被捕   >-009fcc?logoWidth=1" title="曾藏匿旧金山中领馆 中共空军女军官被捕  " alt="曾藏匿旧金山中领馆 中共空军女军官被捕  "></a></p>
 <p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/24/a102901788.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共宣称北部湾军演 网友调侃:方便美军南海强>-009fcc?logoWidth=1" title="中共宣称北部湾军演 网友调侃:方便美军南海强拆  " alt="中共宣称北部湾军演 网友调侃:方便美军南海强拆  "></a></p>
 <p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/24/a102901775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共报复为何选中成都美领馆？陆专家:两个考量>-009fcc?logoWidth=1" title="中共报复为何选中成都美领馆？陆专家:两个考量  " alt="中共报复为何选中成都美领馆？陆专家:两个考量  "></a></p>
 <p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/24/a102901854.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/持枪拍照纪念六四被校罚 华裔学生：法庭见  >-009fcc?logoWidth=1" title="持枪拍照纪念六四被校罚 华裔学生：法庭见  " alt="持枪拍照纪念六四被校罚 华裔学生：法庭见  "></a></p>
 <p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/24/a102901817.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪水威胁武汉 官方阻市民观察水情      >-009fcc?logoWidth=1" title="洪水威胁武汉 官方阻市民观察水情  " alt="洪水威胁武汉 官方阻市民观察水情  "></a></p>
-<p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/24/a102901756.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈尔滨冰雹砸死村民 政府不理 百姓寒心   >-009fcc?logoWidth=1" title="哈尔滨冰雹砸死村民 政府不理 百姓寒心  " alt="哈尔滨冰雹砸死村民 政府不理 百姓寒心  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/iwuowc3838/djy/blob/master/gb/20/7/24/n12281834.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯顿中领馆关闭 美政府接管        >-009fcc?logoWidth=1" title="休斯顿中领馆关闭 美政府接管  " alt="休斯顿中领馆关闭 美政府接管  "></a></p>
 <p><a href="https://github.com/iwuowc3838/djy/blob/master/gb/20/7/24/n12281618.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾藏匿旧金山中领馆 中共空军女军官被捕   >-009fcc?logoWidth=1" title="曾藏匿旧金山中领馆 中共空军女军官被捕  " alt="曾藏匿旧金山中领馆 中共空军女军官被捕  "></a></p>
@@ -40,14 +40,15 @@
 <p><a href="https://github.com/iwuowc3838/djy/blob/master/gb/20/7/24/n12281981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/学者：蓬佩奥拉开正邪决战 丧钟为中共敲响  >-009fcc?logoWidth=1" title="学者：蓬佩奥拉开正邪决战 丧钟为中共敲响  " alt="学者：蓬佩奥拉开正邪决战 丧钟为中共敲响  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/24/a102901640.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/共军女研究员被捕 曾躲旧金山中领馆逾月   >-009fcc?logoWidth=1" title="共军女研究员被捕 曾躲旧金山中领馆逾月  " alt="共军女研究员被捕 曾躲旧金山中领馆逾月  "></a></p>
-<p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/24/a102901583.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共直播成都美领馆未见烧文件 男子放鞭炮被抓>-009fcc?logoWidth=1" title="中共直播成都美领馆未见烧文件 男子放鞭炮被抓（视频）  " alt="中共直播成都美领馆未见烧文件 男子放鞭炮被抓（视频）  "></a></p>
+<p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/24/a102901138.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美吹响反共集结号%3F%3F对抗共产党 中国人站出来>-009fcc?logoWidth=1" title="美吹响反共集结号??对抗共产党 中国人站出来  " alt="美吹响反共集结号??对抗共产党 中国人站出来  "></a></p>
 <p><a href="https://github.com/iwuowc3838/djy/blob/master/gb/20/7/24/n12281623.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共前外交官：美国关中领馆 新冷战正式拉开序>-009fcc?logoWidth=1" title="中共前外交官：美国关中领馆 新冷战正式拉开序幕  " alt="中共前外交官：美国关中领馆 新冷战正式拉开序幕  "></a></p>
-<p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/24/a102901075.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谷歌涉操纵搜索结果干预大选 美司法部采取行动>-009fcc?logoWidth=1" title="谷歌涉操纵搜索结果干预大选 美司法部采取行动  " alt="谷歌涉操纵搜索结果干预大选 美司法部采取行动  "></a></p>
+<p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/25/a102901935.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：旧金山总领馆交出间谍嫌犯/蓬佩奥演说开>-009fcc?logoWidth=1" title="文昭：旧金山总领馆交出间谍嫌犯/蓬佩奥演说开启灭共新时代  " alt="文昭：旧金山总领馆交出间谍嫌犯/蓬佩奥演说开启灭共新时代  "></a></p>
+<p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/24/a102901583.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共直播成都美领馆未见烧文件 男子放鞭炮被抓>-009fcc?logoWidth=1" title="中共直播成都美领馆未见烧文件 男子放鞭炮被抓（视频）  " alt="中共直播成都美领馆未见烧文件 男子放鞭炮被抓（视频）  "></a></p>
 <p><a href="https://github.com/iwuowc3838/djy/blob/master/gb/20/7/24/n12281829.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：风云变 七常委频露面 各放不同信号  >-009fcc?logoWidth=1" title="钟原：风云变 七常委频露面 各放不同信号  " alt="钟原：风云变 七常委频露面 各放不同信号  "></a></p>
 <p><a href="https://github.com/iwuowc3838/djy/blob/master/gb/20/7/24/n12281215.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：中国多省遭遇罕见大洪灾        >-009fcc?logoWidth=1" title="组图：中国多省遭遇罕见大洪灾  " alt="组图：中国多省遭遇罕见大洪灾  "></a></p>
+<p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/24/a102901075.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谷歌涉操纵搜索结果干预大选 美司法部采取行动>-009fcc?logoWidth=1" title="谷歌涉操纵搜索结果干预大选 美司法部采取行动  " alt="谷歌涉操纵搜索结果干预大选 美司法部采取行动  "></a></p>
 <p><a href="https://github.com/iwuowc3838/djy/blob/master/gb/20/7/24/n12281798.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北大常务副校长被指涉嫌25篇论文造假    >-009fcc?logoWidth=1" title="北大常务副校长被指涉嫌25篇论文造假  " alt="北大常务副校长被指涉嫌25篇论文造假  "></a></p>
 <p><a href="https://github.com/iwuowc3838/djy/blob/master/gb/20/7/23/n12278081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习李矛盾公开化 中共政权加速分崩离析    >-009fcc?logoWidth=1" title="习李矛盾公开化 中共政权加速分崩离析  " alt="习李矛盾公开化 中共政权加速分崩离析  "></a></p>
-<p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/24/a102901012.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥对华演说中文翻译全文(视频)     >-009fcc?logoWidth=1" title="蓬佩奥对华演说中文翻译全文(视频)  " alt="蓬佩奥对华演说中文翻译全文(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -485,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/iwuowc3838/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/iwuowc3838/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/iwuowc3838/www/blob/master/README.md?x#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/iwuowc3838/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/iwuowc3838/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/iwuowc3838/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/iwuowc3838/www/blob/master/README.md?o#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/iwuowc3838/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kqqqq">git.io/kqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/99999999">git.io/99999999</a></div>
 
