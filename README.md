@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/iwuowc3838/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/iwuowc3838/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/agggg">git.io/agggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aay">x.co/aay</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kdddd">git.io/kdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2pp">x.co/2pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -42,14 +42,14 @@
 <p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/24/a102901758.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都美领馆已被封锁 陆评论员:或有“群众”反>-009fcc?logoWidth=1" title="成都美领馆已被封锁 陆评论员:或有“群众”反美砸馆  " alt="成都美领馆已被封锁 陆评论员:或有“群众”反美砸馆  "></a></p>
 <p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/24/a102901491.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI全美25城扫荡共军学者 3人被捕1人躲>-009fcc?logoWidth=1" title="FBI全美25城扫荡共军学者 3人被捕1人躲藏多人被调查  " alt="FBI全美25城扫荡共军学者 3人被捕1人躲藏多人被调查  "></a></p>
 <p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/25/a102901935.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：旧金山总领馆交出间谍嫌犯/蓬佩奥演说开>-009fcc?logoWidth=1" title="文昭：旧金山总领馆交出间谍嫌犯/蓬佩奥演说开启灭共新时代  " alt="文昭：旧金山总领馆交出间谍嫌犯/蓬佩奥演说开启灭共新时代  "></a></p>
-<p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/24/a102901640.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/共军女研究员被捕 曾躲旧金山中领馆逾月   >-009fcc?logoWidth=1" title="共军女研究员被捕 曾躲旧金山中领馆逾月  " alt="共军女研究员被捕 曾躲旧金山中领馆逾月  "></a></p>
+<p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/24/a102901138.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美吹响反共集结号%3F%3F对抗共产党 中国人站出来>-009fcc?logoWidth=1" title="美吹响反共集结号??对抗共产党 中国人站出来  " alt="美吹响反共集结号??对抗共产党 中国人站出来  "></a></p>
 <p><a href="https://github.com/iwuowc3838/djy/blob/master/gb/20/7/24/n12281891.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美重锤下北京买买买 川普：意义不大     >-009fcc?logoWidth=1" title="美重锤下北京买买买 川普：意义不大  " alt="美重锤下北京买买买 川普：意义不大  "></a></p>
 <p><a href="https://github.com/iwuowc3838/djy/blob/master/gb/20/7/24/n12281782.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：连夜打包撤离 休斯顿中领馆取下血旗  >-009fcc?logoWidth=1" title="组图：连夜打包撤离 休斯顿中领馆取下血旗  " alt="组图：连夜打包撤离 休斯顿中领馆取下血旗  "></a></p>
-<p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/24/a102901138.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美吹响反共集结号%3F%3F对抗共产党 中国人站出来>-009fcc?logoWidth=1" title="美吹响反共集结号??对抗共产党 中国人站出来  " alt="美吹响反共集结号??对抗共产党 中国人站出来  "></a></p>
-<p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/24/a102901583.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共直播成都美领馆未见烧文件 男子放鞭炮被抓>-009fcc?logoWidth=1" title="中共直播成都美领馆未见烧文件 男子放鞭炮被抓（视频）  " alt="中共直播成都美领馆未见烧文件 男子放鞭炮被抓（视频）  "></a></p>
+<p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/24/a102901640.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/共军女研究员被捕 曾躲旧金山中领馆逾月   >-009fcc?logoWidth=1" title="共军女研究员被捕 曾躲旧金山中领馆逾月  " alt="共军女研究员被捕 曾躲旧金山中领馆逾月  "></a></p>
 <p><a href="https://github.com/iwuowc3838/djy/blob/master/gb/20/7/24/n12281798.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北大常务副校长被指涉嫌25篇论文造假    >-009fcc?logoWidth=1" title="北大常务副校长被指涉嫌25篇论文造假  " alt="北大常务副校长被指涉嫌25篇论文造假  "></a></p>
 <p><a href="https://github.com/iwuowc3838/djy/blob/master/gb/20/7/24/n12281981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/学者：蓬佩奥拉开正邪决战 丧钟为中共敲响  >-009fcc?logoWidth=1" title="学者：蓬佩奥拉开正邪决战 丧钟为中共敲响  " alt="学者：蓬佩奥拉开正邪决战 丧钟为中共敲响  "></a></p>
 <p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/24/a102901075.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谷歌涉操纵搜索结果干预大选 美司法部采取行动>-009fcc?logoWidth=1" title="谷歌涉操纵搜索结果干预大选 美司法部采取行动  " alt="谷歌涉操纵搜索结果干预大选 美司法部采取行动  "></a></p>
+<p><a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/2020/07/24/a102901583.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共直播成都美领馆未见烧文件 男子放鞭炮被抓>-009fcc?logoWidth=1" title="中共直播成都美领馆未见烧文件 男子放鞭炮被抓（视频）  " alt="中共直播成都美领馆未见烧文件 男子放鞭炮被抓（视频）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/iwuowc3838/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/iwuowc3838/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/iwuowc3838/www/blob/master/README.md?c#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/iwuowc3838/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/iwuowc3838/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/iwuowc3838/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/iwuowc3838/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/iwuowc3838/www/blob/master/README.md?m#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/iwuowc3838/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/agggg">git.io/agggg</a></div>
+<div align="center">短网址: <a href="https://git.io/kdddd">git.io/kdddd</a></div>
 
