@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ogkrop3702/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ogkrop3702/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/azzzz">git.io/azzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pnp">x.co/pnp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tdddd">git.io/tdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/cpp">x.co/cpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -24,7 +24,7 @@
 <p><a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/2020/07/26/a102902908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南非确诊病例逾43万起 贸工部长也确诊染疫 >-009fcc?logoWidth=1" title="南非确诊病例逾43万起 贸工部长也确诊染疫  " alt="南非确诊病例逾43万起 贸工部长也确诊染疫  "></a></p>
 <p><a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/2020/07/25/a102902193.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/艺术家指尖上的袖珍动物 比本尊还可爱    >-009fcc?logoWidth=1" title="艺术家指尖上的袖珍动物 比本尊还可爱  " alt="艺术家指尖上的袖珍动物 比本尊还可爱  "></a></p>
 <p><a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/2020/07/26/a102902857.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥发出“临战宣言” 跨出全球围堵中共第一>-009fcc?logoWidth=1" title="蓬佩奥发出“临战宣言” 跨出全球围堵中共第一步  " alt="蓬佩奥发出“临战宣言” 跨出全球围堵中共第一步  "></a></p>
-<p><a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/2020/07/26/a102902846.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港新增133人病例 连续4天破百例    >-009fcc?logoWidth=1" title="香港新增133人病例 连续4天破百例  " alt="香港新增133人病例 连续4天破百例  "></a></p>
+<p><a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/2020/07/26/a102902846.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港新增133起病例 连续4天破百例    >-009fcc?logoWidth=1" title="香港新增133起病例 连续4天破百例  " alt="香港新增133起病例 连续4天破百例  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ogkrop3702/djy/blob/master/gb/20/7/25/n12283516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/关闭休斯顿中领馆 透露美对华政策一大转变  >-009fcc?logoWidth=1" title="关闭休斯顿中领馆 透露美对华政策一大转变  " alt="关闭休斯顿中领馆 透露美对华政策一大转变  "></a></p>
 <p><a href="https://github.com/ogkrop3702/djy/blob/master/gb/20/7/25/n12283542.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：蓬佩奥称中共是怪物 一针见血    >-009fcc?logoWidth=1" title="王友群：蓬佩奥称中共是怪物 一针见血  " alt="王友群：蓬佩奥称中共是怪物 一针见血  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ogkrop3702/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ogkrop3702/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ogkrop3702/www/blob/master/README.md?k#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ogkrop3702/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ogkrop3702/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ogkrop3702/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ogkrop3702/www/blob/master/README.md?s#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ogkrop3702/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/azzzz">git.io/azzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/tdddd">git.io/tdddd</a></div>
 
