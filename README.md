@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ogkrop3702/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ogkrop3702/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/chhhh">git.io/chhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p6p">x.co/p6p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/sgggg">git.io/sgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2225">x.co/2225</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/2020/07/25/a102902263.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强再爆经济内幕 政府开支要减50    >-009fcc?logoWidth=1" title="李克强再爆经济内幕 政府开支要减50  " alt="李克强再爆经济内幕 政府开支要减50  "></a></p>
 <p><a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/2020/07/25/a102902245.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：习近平又穿上一件“皇帝新衣”     >-009fcc?logoWidth=1" title="美媒：习近平又穿上一件“皇帝新衣”  " alt="美媒：习近平又穿上一件“皇帝新衣”  "></a></p>
 <p><a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/2020/07/25/a102902231.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/如中美开战你愿为祖国捐多少？/习又穿上一件“>-009fcc?logoWidth=1" title="如中美开战你愿为祖国捐多少？/习又穿上一件“皇帝新衣”  " alt="如中美开战你愿为祖国捐多少？/习又穿上一件“皇帝新衣”  "></a></p>
+<p><a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/2020/07/26/a102902867.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都美领馆放鞭炮者 被揭是中共便衣     >-009fcc?logoWidth=1" title="成都美领馆放鞭炮者 被揭是中共便衣  " alt="成都美领馆放鞭炮者 被揭是中共便衣  "></a></p>
 <p><a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/2020/07/26/a102902857.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥发出“临战宣言” 跨出全球围堵中共第一>-009fcc?logoWidth=1" title="蓬佩奥发出“临战宣言” 跨出全球围堵中共第一步  " alt="蓬佩奥发出“临战宣言” 跨出全球围堵中共第一步  "></a></p>
 <p><a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/2020/07/26/a102902846.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港新增133人病例 连续4天破百例    >-009fcc?logoWidth=1" title="香港新增133人病例 连续4天破百例  " alt="香港新增133人病例 连续4天破百例  "></a></p>
 <p><a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/2020/07/26/a102902835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美官员：休士顿中领馆是窃疫苗基地 惹怒川普 >-009fcc?logoWidth=1" title="美官员：休士顿中领馆是窃疫苗基地 惹怒川普  " alt="美官员：休士顿中领馆是窃疫苗基地 惹怒川普  "></a></p>
 <p><a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/2020/07/26/a102902828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/飓风汉娜挟带强风豪雨登陆德州 或引发山洪暴发>-009fcc?logoWidth=1" title="飓风汉娜挟带强风豪雨登陆德州 或引发山洪暴发  " alt="飓风汉娜挟带强风豪雨登陆德州 或引发山洪暴发  "></a></p>
-<p><a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强再爆经济内幕 政府开支要减50    >-009fcc?logoWidth=1" title="李克强再爆经济内幕 政府开支要减50  " alt="李克强再爆经济内幕 政府开支要减50  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ogkrop3702/djy/blob/master/gb/20/7/25/n12283516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/关闭休斯顿中领馆 透露美对华政策一大转变  >-009fcc?logoWidth=1" title="关闭休斯顿中领馆 透露美对华政策一大转变  " alt="关闭休斯顿中领馆 透露美对华政策一大转变  "></a></p>
 <p><a href="https://github.com/ogkrop3702/djy/blob/master/gb/20/7/25/n12283542.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：蓬佩奥称中共是怪物 一针见血    >-009fcc?logoWidth=1" title="王友群：蓬佩奥称中共是怪物 一针见血  " alt="王友群：蓬佩奥称中共是怪物 一针见血  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ogkrop3702/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ogkrop3702/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ogkrop3702/www/blob/master/README.md?b#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ogkrop3702/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ogkrop3702/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ogkrop3702/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ogkrop3702/www/blob/master/README.md?t#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ogkrop3702/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/chhhh">git.io/chhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/sgggg">git.io/sgggg</a></div>
 
