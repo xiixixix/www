@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tvywxb329/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tvywxb329/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/taaaa">git.io/taaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/epp">x.co/epp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/naaaa">git.io/naaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/qaa">x.co/qaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -19,11 +19,11 @@
 <p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902912.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中领馆被指间谍中心 驱逐刚开始       >-009fcc?logoWidth=1" title="中领馆被指间谍中心 驱逐刚开始  " alt="中领馆被指间谍中心 驱逐刚开始  "></a></p>
 <p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902867.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都美领馆放鞭炮者 被揭是中共便衣     >-009fcc?logoWidth=1" title="成都美领馆放鞭炮者 被揭是中共便衣  " alt="成都美领馆放鞭炮者 被揭是中共便衣  "></a></p>
 <p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒曝中共军队失控 习大秘“指挥”上将   >-009fcc?logoWidth=1" title="港媒曝中共军队失控 习大秘“指挥”上将  " alt="港媒曝中共军队失控 习大秘“指挥”上将  "></a></p>
-<p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/25/a102902352.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度核战略转向中共 北京进入导弹射程范围  >-009fcc?logoWidth=1" title="印度核战略转向中共 北京进入导弹射程范围  " alt="印度核战略转向中共 北京进入导弹射程范围  "></a></p>
 <p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/观众发现女记者脖子有肿块 结果查出甲状腺癌 >-009fcc?logoWidth=1" title="观众发现女记者脖子有肿块 结果查出甲状腺癌  " alt="观众发现女记者脖子有肿块 结果查出甲状腺癌  "></a></p>
 <p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情最致命一天  澳洲维多利亚州新增10人病>-009fcc?logoWidth=1" title="疫情最致命一天  澳洲维多利亚州新增10人病故  " alt="疫情最致命一天  澳洲维多利亚州新增10人病故  "></a></p>
 <p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902932.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西班牙疫情反弹 英突令入境旅客隔离两周   >-009fcc?logoWidth=1" title="西班牙疫情反弹 英突令入境旅客隔离两周  " alt="西班牙疫情反弹 英突令入境旅客隔离两周  "></a></p>
 <p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南非确诊病例逾43万起 贸工部长也确诊染疫 >-009fcc?logoWidth=1" title="南非确诊病例逾43万起 贸工部长也确诊染疫  " alt="南非确诊病例逾43万起 贸工部长也确诊染疫  "></a></p>
+<p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/25/a102902193.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/艺术家指尖上的袖珍动物 比本尊还可爱    >-009fcc?logoWidth=1" title="艺术家指尖上的袖珍动物 比本尊还可爱  " alt="艺术家指尖上的袖珍动物 比本尊还可爱  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tvywxb329/djy/blob/master/gb/20/7/22/n12274382.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭秘中共抗疫中的大数据监控         >-009fcc?logoWidth=1" title="揭秘中共抗疫中的大数据监控  " alt="揭秘中共抗疫中的大数据监控  "></a></p>
 <p><a href="https://github.com/tvywxb329/djy/blob/master/gb/20/7/25/n12283734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI揭秘：中共女军医掩盖身份申请美签内幕 >-009fcc?logoWidth=1" title="FBI揭秘：中共女军医掩盖身份申请美签内幕  " alt="FBI揭秘：中共女军医掩盖身份申请美签内幕  "></a></p>
@@ -36,10 +36,10 @@
 <p><a href="https://github.com/tvywxb329/djy/blob/master/gb/20/7/26/n12284398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阿里巴巴创始人马云被印度法院传唤      >-009fcc?logoWidth=1" title="阿里巴巴创始人马云被印度法院传唤  " alt="阿里巴巴创始人马云被印度法院传唤  "></a></p>
 <p><a href="https://github.com/tvywxb329/djy/blob/master/gb/20/7/26/n12284074.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/秦淮河堤坝内部已被挖空 或随时崩溃     >-009fcc?logoWidth=1" title="秦淮河堤坝内部已被挖空 或随时崩溃  " alt="秦淮河堤坝内部已被挖空 或随时崩溃  "></a></p>
 <p><a href="https://github.com/tvywxb329/djy/blob/master/gb/20/7/26/n12283981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共女军官唐娟已被关进监狱         >-009fcc?logoWidth=1" title="中共女军官唐娟已被关进监狱  " alt="中共女军官唐娟已被关进监狱  "></a></p>
-<p><a href="https://github.com/tvywxb329/djy/blob/master/gb/20/7/26/n12284513.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江水未退第三号洪水已成 上游滑坡致堰塞湖 >-009fcc?logoWidth=1" title="长江水未退第三号洪水已成 上游滑坡致堰塞湖  " alt="长江水未退第三号洪水已成 上游滑坡致堰塞湖  "></a></p>
+<p><a href="https://github.com/tvywxb329/djy/blob/master/gb/20/7/26/n12284513.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江水未退第3号洪水已成 上游滑坡致堰塞湖 >-009fcc?logoWidth=1" title="长江水未退第3号洪水已成 上游滑坡致堰塞湖  " alt="长江水未退第3号洪水已成 上游滑坡致堰塞湖  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902857.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥发出“临战宣言” 跨出全球围堵中共第一>-009fcc?logoWidth=1" title="蓬佩奥发出“临战宣言” 跨出全球围堵中共第一步  " alt="蓬佩奥发出“临战宣言” 跨出全球围堵中共第一步  "></a></p>
-<p><a href="https://github.com/tvywxb329/djy/blob/master/gb/20/7/26/n12284513.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江水未退第3号洪水已成 上游滑坡致堰塞湖 >-009fcc?logoWidth=1" title="长江水未退第3号洪水已成 上游滑坡致堰塞湖  " alt="长江水未退第3号洪水已成 上游滑坡致堰塞湖  "></a></p>
+<p><a href="https://github.com/tvywxb329/djy/blob/master/gb/20/7/26/n12284513.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江水未退第三号洪水已成 上游滑坡致堰塞湖 >-009fcc?logoWidth=1" title="长江水未退第三号洪水已成 上游滑坡致堰塞湖  " alt="长江水未退第三号洪水已成 上游滑坡致堰塞湖  "></a></p>
 <p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902978.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭开炼金术的真正目的！看懂你就发达了    >-009fcc?logoWidth=1" title="揭开炼金术的真正目的！看懂你就发达了  " alt="揭开炼金术的真正目的！看懂你就发达了  "></a></p>
 <p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902902.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥演讲吓坏中共 旧金山总领馆把共军女科学>-009fcc?logoWidth=1" title="蓬佩奥演讲吓坏中共 旧金山总领馆把共军女科学家交给了FBI  " alt="蓬佩奥演讲吓坏中共 旧金山总领馆把共军女科学家交给了FBI  "></a></p>
 <p><a href="https://github.com/tvywxb329/djy/blob/master/gb/20/7/26/n12283929.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/评论：华盛顿日益把中共看作是邪恶的     >-009fcc?logoWidth=1" title="评论：华盛顿日益把中共看作是邪恶的  " alt="评论：华盛顿日益把中共看作是邪恶的  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tvywxb329/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tvywxb329/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tvywxb329/www/blob/master/README.md?y#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/tvywxb329/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tvywxb329/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tvywxb329/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tvywxb329/www/blob/master/README.md?o#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/tvywxb329/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/taaaa">git.io/taaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/naaaa">git.io/naaaa</a></div>
 
