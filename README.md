@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tvywxb329/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tvywxb329/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cnnnn">git.io/cnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9933">x.co/9933</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g6666">git.io/g6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/xpp">x.co/xpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -38,17 +38,15 @@
 <p><a href="https://github.com/tvywxb329/djy/blob/master/gb/20/7/26/n12283981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共女军官唐娟已被关进监狱         >-009fcc?logoWidth=1" title="中共女军官唐娟已被关进监狱  " alt="中共女军官唐娟已被关进监狱  "></a></p>
 <p><a href="https://github.com/tvywxb329/djy/blob/master/gb/20/7/26/n12284513.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江水未退第三号洪水已成 上游滑坡致堰塞湖 >-009fcc?logoWidth=1" title="长江水未退第三号洪水已成 上游滑坡致堰塞湖  " alt="长江水未退第三号洪水已成 上游滑坡致堰塞湖  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902745.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/参观美军基地后 中共代表团目瞪口呆     >-009fcc?logoWidth=1" title="参观美军基地后 中共代表团目瞪口呆  " alt="参观美军基地后 中共代表团目瞪口呆  "></a></p>
-<p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902774.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《圣经》预言中共和中共党员结局(19集）  >-009fcc?logoWidth=1" title="《圣经》预言中共和中共党员结局(19集）  " alt="《圣经》预言中共和中共党员结局(19集）  "></a></p>
-<p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902857.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥发出“临战宣言” 跨出全球围堵中共第一>-009fcc?logoWidth=1" title="蓬佩奥发出“临战宣言” 跨出全球围堵中共第一步  " alt="蓬佩奥发出“临战宣言” 跨出全球围堵中共第一步  "></a></p>
+<p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902771.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美高官改称习总书记 不再称国家主席引热议  >-009fcc?logoWidth=1" title="美高官改称习总书记 不再称国家主席引热议  " alt="美高官改称习总书记 不再称国家主席引热议  "></a></p>
+<p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/25/a102902703.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《推背图》第41象:中共“九十九年成大错” >-009fcc?logoWidth=1" title="《推背图》第41象:中共“九十九年成大错”  " alt="《推背图》第41象:中共“九十九年成大错”  "></a></p>
 <p><a href="https://github.com/tvywxb329/djy/blob/master/gb/20/7/26/n12283929.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/评论：华盛顿日益把中共看作是邪恶的     >-009fcc?logoWidth=1" title="评论：华盛顿日益把中共看作是邪恶的  " alt="评论：华盛顿日益把中共看作是邪恶的  "></a></p>
 <p><a href="https://github.com/tvywxb329/djy/blob/master/gb/20/7/25/n12283665.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙贪腐案频发 贪官为情妇进京买房为儿在美国>-009fcc?logoWidth=1" title="内蒙贪腐案频发 贪官为情妇进京买房为儿在美国装修房  " alt="内蒙贪腐案频发 贪官为情妇进京买房为儿在美国装修房  "></a></p>
-<p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902978.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭开炼金术的真正目的！看懂你就发达了    >-009fcc?logoWidth=1" title="揭开炼金术的真正目的！看懂你就发达了  " alt="揭开炼金术的真正目的！看懂你就发达了  "></a></p>
-<p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902902.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥演讲吓坏中共 旧金山总领馆把共军女科学>-009fcc?logoWidth=1" title="蓬佩奥演讲吓坏中共 旧金山总领馆把共军女科学家交给了FBI  " alt="蓬佩奥演讲吓坏中共 旧金山总领馆把共军女科学家交给了FBI  "></a></p>
+<p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/25/a102902614.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒所与巴国军方协议曝光:扩大生物战能力>-009fcc?logoWidth=1" title="武汉病毒所与巴国军方协议曝光:扩大生物战能力  " alt="武汉病毒所与巴国军方协议曝光:扩大生物战能力  "></a></p>
+<p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902745.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/参观美军基地后 中共代表团目瞪口呆     >-009fcc?logoWidth=1" title="参观美军基地后 中共代表团目瞪口呆  " alt="参观美军基地后 中共代表团目瞪口呆  "></a></p>
 <p><a href="https://github.com/tvywxb329/djy/blob/master/gb/20/7/25/n12283374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共在美猎狐 休斯顿中领馆是活动基地    >-009fcc?logoWidth=1" title="中共在美猎狐 休斯顿中领馆是活动基地  " alt="中共在美猎狐 休斯顿中领馆是活动基地  "></a></p>
 <p><a href="https://github.com/tvywxb329/djy/blob/master/gb/20/7/26/n12284065.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美官员：美中关闭对方领事馆不是一回事    >-009fcc?logoWidth=1" title="美官员：美中关闭对方领事馆不是一回事  " alt="美官员：美中关闭对方领事馆不是一回事  "></a></p>
-<p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902970.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：川普反制中共三绝招 不战而胜     >-009fcc?logoWidth=1" title="王赫：川普反制中共三绝招 不战而胜  " alt="王赫：川普反制中共三绝招 不战而胜  "></a></p>
-<p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902923.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/列宁与斯大林的真实面目           >-009fcc?logoWidth=1" title="列宁与斯大林的真实面目  " alt="列宁与斯大林的真实面目  "></a></p>
+<p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902774.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《圣经》预言中共和中共党员结局(19集）  >-009fcc?logoWidth=1" title="《圣经》预言中共和中共党员结局(19集）  " alt="《圣经》预言中共和中共党员结局(19集）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tvywxb329/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tvywxb329/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tvywxb329/www/blob/master/README.md?u#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/tvywxb329/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tvywxb329/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tvywxb329/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tvywxb329/www/blob/master/README.md?s#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/tvywxb329/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/cnnnn">git.io/cnnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/g6666">git.io/g6666</a></div>
 
