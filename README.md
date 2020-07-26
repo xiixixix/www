@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cakhhr339/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cakhhr339/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/s2222">git.io/s2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3338">x.co/3338</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/htttt">git.io/htttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa6">x.co/aa6</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -46,7 +46,7 @@
 <p><a href="https://github.com/cakhhr339/ntdtv/blob/master/gb/2020/07/25/a102901951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中领馆涉谋杀案？猛料越爆越多！崔天凯招间谍被>-009fcc?logoWidth=1" title="中领馆涉谋杀案？猛料越爆越多！崔天凯招间谍被抓现行  " alt="中领馆涉谋杀案？猛料越爆越多！崔天凯招间谍被抓现行  "></a></p>
 <p><a href="https://github.com/cakhhr339/djy/blob/master/gb/20/7/25/n12283034.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又卖了 李嘉诚出售成都资产 将获利38亿  >-009fcc?logoWidth=1" title="又卖了 李嘉诚出售成都资产 将获利38亿  " alt="又卖了 李嘉诚出售成都资产 将获利38亿  "></a></p>
 <p><a href="https://github.com/cakhhr339/djy/blob/master/gb/20/7/25/n12282620.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被超高估值 中芯国际上市一周股价跌24   >-009fcc?logoWidth=1" title="被超高估值 中芯国际上市一周股价跌24  " alt="被超高估值 中芯国际上市一周股价跌24  "></a></p>
-<p><a href="https://github.com/cakhhr339/ntdtv/blob/master/gb/2020/07/25/a102902708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老黑：蓬佩奥重塑美台关系 CCP永远无法五筒>-009fcc?logoWidth=1" title="老黑：蓬佩奥重塑美台关系 CCP永远无法五筒台湾！  " alt="老黑：蓬佩奥重塑美台关系 CCP永远无法五筒台湾！  "></a></p>
+<p><a href="https://github.com/cakhhr339/ntdtv/blob/master/gb/2020/07/25/a102902708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老黑：蓬佩奥重塑美台关系 CCP永远无法“五>-009fcc?logoWidth=1" title="老黑：蓬佩奥重塑美台关系 CCP永远无法“五筒”台湾！  " alt="老黑：蓬佩奥重塑美台关系 CCP永远无法“五筒”台湾！  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -484,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cakhhr339/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cakhhr339/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cakhhr339/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cakhhr339/www/blob/master/README.md?a#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cakhhr339/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cakhhr339/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cakhhr339/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cakhhr339/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cakhhr339/www/blob/master/README.md?b#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cakhhr339/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/s2222">git.io/s2222</a></div>
+<div align="center">短网址: <a href="https://git.io/htttt">git.io/htttt</a></div>
 
