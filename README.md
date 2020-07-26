@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ogkrop3702/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ogkrop3702/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bbbbb">git.io/bbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/epp">x.co/epp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/adddd">git.io/adddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/xaa">x.co/xaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -19,7 +19,7 @@
 <p><a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/2020/07/26/a102902912.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中领馆被指间谍中心 驱逐刚开始       >-009fcc?logoWidth=1" title="中领馆被指间谍中心 驱逐刚开始  " alt="中领馆被指间谍中心 驱逐刚开始  "></a></p>
 <p><a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/2020/07/26/a102902867.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都美领馆放鞭炮者 被揭是中共便衣     >-009fcc?logoWidth=1" title="成都美领馆放鞭炮者 被揭是中共便衣  " alt="成都美领馆放鞭炮者 被揭是中共便衣  "></a></p>
 <p><a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/2020/07/26/a102902827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒曝中共军队失控 习大秘“指挥”上将   >-009fcc?logoWidth=1" title="港媒曝中共军队失控 习大秘“指挥”上将  " alt="港媒曝中共军队失控 习大秘“指挥”上将  "></a></p>
-<p><a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/2020/07/26/a102902932.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情反弹 英国宣布来自西班牙旅客隔离两周  >-009fcc?logoWidth=1" title="疫情反弹 英国宣布来自西班牙旅客隔离两周  " alt="疫情反弹 英国宣布来自西班牙旅客隔离两周  "></a></p>
+<p><a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/2020/07/26/a102902932.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西班牙疫情反弹 英突令入境旅客隔离两周   >-009fcc?logoWidth=1" title="西班牙疫情反弹 英突令入境旅客隔离两周  " alt="西班牙疫情反弹 英突令入境旅客隔离两周  "></a></p>
 <p><a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/2020/07/26/a102902908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南非确诊病例逾43万起 贸工部长也确诊染疫 >-009fcc?logoWidth=1" title="南非确诊病例逾43万起 贸工部长也确诊染疫  " alt="南非确诊病例逾43万起 贸工部长也确诊染疫  "></a></p>
 <p><a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/2020/07/25/a102902193.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/艺术家指尖上的袖珍动物 比本尊还可爱    >-009fcc?logoWidth=1" title="艺术家指尖上的袖珍动物 比本尊还可爱  " alt="艺术家指尖上的袖珍动物 比本尊还可爱  "></a></p>
 <p><a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/2020/07/26/a102902857.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥发出“临战宣言” 跨出全球围堵中共第一>-009fcc?logoWidth=1" title="蓬佩奥发出“临战宣言” 跨出全球围堵中共第一步  " alt="蓬佩奥发出“临战宣言” 跨出全球围堵中共第一步  "></a></p>
@@ -38,15 +38,14 @@
 <p><a href="https://github.com/ogkrop3702/djy/blob/master/gb/20/7/25/n12283374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共在美猎狐 休斯顿中领馆是活动基地    >-009fcc?logoWidth=1" title="中共在美猎狐 休斯顿中领馆是活动基地  " alt="中共在美猎狐 休斯顿中领馆是活动基地  "></a></p>
 <p><a href="https://github.com/ogkrop3702/djy/blob/master/gb/20/7/25/n12282621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谁在美国充当中共代理人？（3）       >-009fcc?logoWidth=1" title="谁在美国充当中共代理人？（3）  " alt="谁在美国充当中共代理人？（3）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ogkrop3702/djy/blob/master/gb/20/7/26/n12283929.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/评论：华盛顿日益把中共看作是邪恶的     >-009fcc?logoWidth=1" title="评论：华盛顿日益把中共看作是邪恶的  " alt="评论：华盛顿日益把中共看作是邪恶的  "></a></p>
 <p><a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/2020/07/26/a102902953.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/【时事小品】中领馆的火           >-009fcc?logoWidth=1" title="【时事小品】中领馆的火  " alt="【时事小品】中领馆的火  "></a></p>
 <p><a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/2020/07/26/a102902897.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又讲真话 李克强到底要干什么？习李矛盾处于暴>-009fcc?logoWidth=1" title="又讲真话 李克强到底要干什么？习李矛盾处于暴风雨前夜  " alt="又讲真话 李克强到底要干什么？习李矛盾处于暴风雨前夜  "></a></p>
+<p><a href="https://github.com/ogkrop3702/djy/blob/master/gb/20/7/26/n12283929.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/评论：华盛顿日益把中共看作是邪恶的     >-009fcc?logoWidth=1" title="评论：华盛顿日益把中共看作是邪恶的  " alt="评论：华盛顿日益把中共看作是邪恶的  "></a></p>
 <p><a href="https://github.com/ogkrop3702/djy/blob/master/gb/20/7/25/n12283622.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美禁TikTok内幕 中共泄洪秘密曝光   >-009fcc?logoWidth=1" title="美禁TikTok内幕 中共泄洪秘密曝光  " alt="美禁TikTok内幕 中共泄洪秘密曝光  "></a></p>
-<p><a href="https://github.com/ogkrop3702/djy/blob/master/gb/20/7/25/n12283409.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休士顿中领馆是中共间谍网中心 专家指有四大原>-009fcc?logoWidth=1" title="休士顿中领馆是中共间谍网中心 专家指有四大原因：  " alt="休士顿中领馆是中共间谍网中心 专家指有四大原因：  "></a></p>
 <p><a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/2020/07/26/a102902915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传有外交官携中共密件叛逃 南海一触即发 蓬佩>-009fcc?logoWidth=1" title="传有外交官携中共密件叛逃 南海一触即发 蓬佩奥誓灭中共  " alt="传有外交官携中共密件叛逃 南海一触即发 蓬佩奥誓灭中共  "></a></p>
 <p><a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/2020/07/26/a102902909.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/投诚者PK唐娟 开启污点证人反共自救时代  >-009fcc?logoWidth=1" title="投诚者PK唐娟 开启污点证人反共自救时代  " alt="投诚者PK唐娟 开启污点证人反共自救时代  "></a></p>
+<p><a href="https://github.com/ogkrop3702/djy/blob/master/gb/20/7/25/n12283409.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休士顿中领馆是中共间谍网中心 专家指有四大原>-009fcc?logoWidth=1" title="休士顿中领馆是中共间谍网中心 专家指有四大原因：  " alt="休士顿中领馆是中共间谍网中心 专家指有四大原因：  "></a></p>
 <p><a href="https://github.com/ogkrop3702/djy/blob/master/gb/20/7/25/n12283457.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国冷战武器今派用场 尼米兹航母      >-009fcc?logoWidth=1" title="美国冷战武器今派用场 尼米兹航母  " alt="美国冷战武器今派用场 尼米兹航母  "></a></p>
-<p><a href="https://github.com/ogkrop3702/djy/blob/master/gb/20/7/25/n12282306.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球中共肺炎病例超过1600万       >-009fcc?logoWidth=1" title="全球中共肺炎病例超过1600万  " alt="全球中共肺炎病例超过1600万  "></a></p>
 <p><a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/2020/07/25/a102902263.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强再爆经济内幕 政府开支要减50    >-009fcc?logoWidth=1" title="李克强再爆经济内幕 政府开支要减50  " alt="李克强再爆经济内幕 政府开支要减50  "></a></p>
 <p><a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/2020/07/25/a102902229.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一旦中美开战你愿为祖国捐多少？网友回答亮了 >-009fcc?logoWidth=1" title="一旦中美开战你愿为祖国捐多少？网友回答亮了  " alt="一旦中美开战你愿为祖国捐多少？网友回答亮了  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -486,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ogkrop3702/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ogkrop3702/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ogkrop3702/www/blob/master/README.md?g#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ogkrop3702/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ogkrop3702/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ogkrop3702/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ogkrop3702/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ogkrop3702/www/blob/master/README.md?x#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ogkrop3702/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bbbbb">git.io/bbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/adddd">git.io/adddd</a></div>
 
