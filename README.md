@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cakhhr339/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cakhhr339/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rkkkk">git.io/rkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j88">x.co/j88</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k7777">git.io/k7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3666">x.co/3666</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,8 +41,8 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/cakhhr339/djy/blob/master/gb/20/7/24/n12281891.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美重锤下北京买买买 川普：意义不大     >-009fcc?logoWidth=1" title="美重锤下北京买买买 川普：意义不大  " alt="美重锤下北京买买买 川普：意义不大  "></a></p>
 <p><a href="https://github.com/cakhhr339/djy/blob/master/gb/20/7/25/n12282903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杭州失踪女子遭夫杀害后分尸 细节曝光    >-009fcc?logoWidth=1" title="杭州失踪女子遭夫杀害后分尸 细节曝光  " alt="杭州失踪女子遭夫杀害后分尸 细节曝光  "></a></p>
+<p><a href="https://github.com/cakhhr339/ntdtv/blob/master/gb/2020/07/25/a102902357.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何关闭成都美领馆？美专家:中共有特别考量 >-009fcc?logoWidth=1" title="为何关闭成都美领馆？美专家:中共有特别考量  " alt="为何关闭成都美领馆？美专家:中共有特别考量  "></a></p>
 <p><a href="https://github.com/cakhhr339/ntdtv/blob/master/gb/2020/07/26/a102902723.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥中国政策演说被指“临战宣言”     >-009fcc?logoWidth=1" title="蓬佩奥中国政策演说被指“临战宣言”  " alt="蓬佩奥中国政策演说被指“临战宣言”  "></a></p>
-<p><a href="https://github.com/cakhhr339/ntdtv/blob/master/gb/2020/07/25/a102902398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传视频：西安出现感染 北门一酒店被封   >-009fcc?logoWidth=1" title="网传视频：西安出现感染 北门一酒店被封  " alt="网传视频：西安出现感染 北门一酒店被封  "></a></p>
 <p><a href="https://github.com/cakhhr339/djy/blob/master/gb/20/7/24/n12282148.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共不代表14亿中国人民的十个理由 >-009fcc?logoWidth=1" title="王友群：中共不代表14亿中国人民的十个理由  " alt="王友群：中共不代表14亿中国人民的十个理由  "></a></p>
 <p><a href="https://github.com/cakhhr339/djy/blob/master/gb/20/7/24/n12281596.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强被指遭“政治迫害” 他都说了些啥？  >-009fcc?logoWidth=1" title="任志强被指遭“政治迫害” 他都说了些啥？  " alt="任志强被指遭“政治迫害” 他都说了些啥？  "></a></p>
 <p><a href="https://github.com/cakhhr339/ntdtv/blob/master/gb/2020/07/26/a102902727.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐娟被抛出 旧金山领馆烧纸？/TikTok非>-009fcc?logoWidth=1" title="唐娟被抛出 旧金山领馆烧纸？/TikTok非抖音 美欲封禁有绝招  " alt="唐娟被抛出 旧金山领馆烧纸？/TikTok非抖音 美欲封禁有绝招  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cakhhr339/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cakhhr339/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cakhhr339/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cakhhr339/www/blob/master/README.md?k#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cakhhr339/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cakhhr339/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cakhhr339/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cakhhr339/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cakhhr339/www/blob/master/README.md?n#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cakhhr339/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rkkkk">git.io/rkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/k7777">git.io/k7777</a></div>
 
