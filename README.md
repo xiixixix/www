@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tvywxb329/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tvywxb329/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/99999">git.io/99999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/4455">x.co/4455</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/m5555">git.io/m5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/faa">x.co/faa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -38,15 +38,14 @@
 <p><a href="https://github.com/tvywxb329/djy/blob/master/gb/20/7/26/n12283981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共女军官唐娟已被关进监狱         >-009fcc?logoWidth=1" title="中共女军官唐娟已被关进监狱  " alt="中共女军官唐娟已被关进监狱  "></a></p>
 <p><a href="https://github.com/tvywxb329/djy/blob/master/gb/20/7/26/n12284258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共利用瘟疫谋取霸权遭反噬      >-009fcc?logoWidth=1" title="钟原：中共利用瘟疫谋取霸权遭反噬  " alt="钟原：中共利用瘟疫谋取霸权遭反噬  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/tvywxb329/djy/blob/master/gb/20/7/25/n12283374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共在美猎狐 休斯顿中领馆是活动基地    >-009fcc?logoWidth=1" title="中共在美猎狐 休斯顿中领馆是活动基地  " alt="中共在美猎狐 休斯顿中领馆是活动基地  "></a></p>
 <p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902953.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/【时事小品】中领馆的火           >-009fcc?logoWidth=1" title="【时事小品】中领馆的火  " alt="【时事小品】中领馆的火  "></a></p>
 <p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902902.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥演讲吓坏中共 旧金山总领馆把共军女科学>-009fcc?logoWidth=1" title="蓬佩奥演讲吓坏中共 旧金山总领馆把共军女科学家交给了FBI  " alt="蓬佩奥演讲吓坏中共 旧金山总领馆把共军女科学家交给了FBI  "></a></p>
-<p><a href="https://github.com/tvywxb329/djy/blob/master/gb/20/7/25/n12282621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谁在美国充当中共代理人？（3）       >-009fcc?logoWidth=1" title="谁在美国充当中共代理人？（3）  " alt="谁在美国充当中共代理人？（3）  "></a></p>
-<p><a href="https://github.com/tvywxb329/djy/blob/master/gb/20/7/26/n12283929.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/评论：华盛顿日益把中共看作是邪恶的     >-009fcc?logoWidth=1" title="评论：华盛顿日益把中共看作是邪恶的  " alt="评论：华盛顿日益把中共看作是邪恶的  "></a></p>
-<p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902721.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南北战争第三集               >-009fcc?logoWidth=1" title="南北战争第三集  " alt="南北战争第三集  "></a></p>
+<p><a href="https://github.com/tvywxb329/djy/blob/master/gb/20/7/25/n12283374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共在美猎狐 休斯顿中领馆是活动基地    >-009fcc?logoWidth=1" title="中共在美猎狐 休斯顿中领馆是活动基地  " alt="中共在美猎狐 休斯顿中领馆是活动基地  "></a></p>
+<p><a href="https://github.com/tvywxb329/djy/blob/master/gb/20/7/25/n12282566.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥讨共演说四提台湾玄机         >-009fcc?logoWidth=1" title="蓬佩奥讨共演说四提台湾玄机  " alt="蓬佩奥讨共演说四提台湾玄机  "></a></p>
+<p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902970.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：川普反制中共三绝招 不战而胜     >-009fcc?logoWidth=1" title="王赫：川普反制中共三绝招 不战而胜  " alt="王赫：川普反制中共三绝招 不战而胜  "></a></p>
 <p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902923.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/列宁与斯大林的真实面目           >-009fcc?logoWidth=1" title="列宁与斯大林的真实面目  " alt="列宁与斯大林的真实面目  "></a></p>
-<p><a href="https://github.com/tvywxb329/djy/blob/master/gb/20/7/26/n12283949.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军人唐娟被关押加州监狱 周一出庭应讯  >-009fcc?logoWidth=1" title="中共军人唐娟被关押加州监狱 周一出庭应讯  " alt="中共军人唐娟被关押加州监狱 周一出庭应讯  "></a></p>
-<p><a href="https://github.com/tvywxb329/djy/blob/master/gb/20/7/25/n12283622.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美禁TikTok内幕 中共泄洪秘密曝光   >-009fcc?logoWidth=1" title="美禁TikTok内幕 中共泄洪秘密曝光  " alt="美禁TikTok内幕 中共泄洪秘密曝光  "></a></p>
+<p><a href="https://github.com/tvywxb329/djy/blob/master/gb/20/7/26/n12283929.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/评论：华盛顿日益把中共看作是邪恶的     >-009fcc?logoWidth=1" title="评论：华盛顿日益把中共看作是邪恶的  " alt="评论：华盛顿日益把中共看作是邪恶的  "></a></p>
+<p><a href="https://github.com/tvywxb329/djy/blob/master/gb/20/7/25/n12282621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谁在美国充当中共代理人？（3）       >-009fcc?logoWidth=1" title="谁在美国充当中共代理人？（3）  " alt="谁在美国充当中共代理人？（3）  "></a></p>
 <p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902897.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又讲真话 李克强到底要干什么？习李矛盾处于暴>-009fcc?logoWidth=1" title="又讲真话 李克强到底要干什么？习李矛盾处于暴风雨前夜  " alt="又讲真话 李克强到底要干什么？习李矛盾处于暴风雨前夜  "></a></p>
 <p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传有外交官携中共密件叛逃 南海一触即发 蓬佩>-009fcc?logoWidth=1" title="传有外交官携中共密件叛逃 南海一触即发 蓬佩奥誓灭中共  " alt="传有外交官携中共密件叛逃 南海一触即发 蓬佩奥誓灭中共  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -486,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tvywxb329/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tvywxb329/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tvywxb329/www/blob/master/README.md?l#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/tvywxb329/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tvywxb329/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tvywxb329/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tvywxb329/www/blob/master/README.md?z#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/tvywxb329/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/99999">git.io/99999</a></div>
+<div align="center">短网址: <a href="https://git.io/m5555">git.io/m5555</a></div>
 
