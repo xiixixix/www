@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cakhhr339/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cakhhr339/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/keeee">git.io/keeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pjp">x.co/pjp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rkkkk">git.io/rkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j88">x.co/j88</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -34,24 +34,23 @@
 <p><a href="https://github.com/cakhhr339/djy/blob/master/gb/20/7/25/n12283733.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中情局这座雕塑藏密码 世上著名未解之谜  >-009fcc?logoWidth=1" title="美中情局这座雕塑藏密码 世上著名未解之谜  " alt="美中情局这座雕塑藏密码 世上著名未解之谜  "></a></p>
 <p><a href="https://github.com/cakhhr339/djy/blob/master/gb/20/7/25/n12282281.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连疫情扩大 蔓延至东北三省        >-009fcc?logoWidth=1" title="大连疫情扩大 蔓延至东北三省  " alt="大连疫情扩大 蔓延至东北三省  "></a></p>
 <p><a href="https://github.com/cakhhr339/djy/blob/master/gb/20/7/24/n12280529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战胜中共暴政 蓬佩奥重磅演讲全文字幕版   >-009fcc?logoWidth=1" title="战胜中共暴政 蓬佩奥重磅演讲全文字幕版  " alt="战胜中共暴政 蓬佩奥重磅演讲全文字幕版  "></a></p>
-<p><a href="https://github.com/cakhhr339/djy/blob/master/gb/20/7/25/n12282678.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中领馆关闭 专家：美对付中共还有10大招  >-009fcc?logoWidth=1" title="中领馆关闭 专家：美对付中共还有10大招  " alt="中领馆关闭 专家：美对付中共还有10大招  "></a></p>
-<p><a href="https://github.com/cakhhr339/djy/blob/master/gb/20/7/24/n12281727.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：余茂春帮助美国认清中共意识形态    >-009fcc?logoWidth=1" title="分析：余茂春帮助美国认清中共意识形态  " alt="分析：余茂春帮助美国认清中共意识形态  "></a></p>
-<p><a href="https://github.com/cakhhr339/djy/blob/master/gb/20/7/24/n12281829.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：风云变 七常委频露面 各放不同信号  >-009fcc?logoWidth=1" title="钟原：风云变 七常委频露面 各放不同信号  " alt="钟原：风云变 七常委频露面 各放不同信号  "></a></p>
-<p><a href="https://github.com/cakhhr339/djy/blob/master/gb/20/7/24/n12281618.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾藏匿旧金山中领馆 中共空军女军官被捕   >-009fcc?logoWidth=1" title="曾藏匿旧金山中领馆 中共空军女军官被捕  " alt="曾藏匿旧金山中领馆 中共空军女军官被捕  "></a></p>
+<p><a href="https://github.com/cakhhr339/djy/blob/master/gb/20/7/25/n12283374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共在美猎狐 休斯顿中领馆是活动基地    >-009fcc?logoWidth=1" title="中共在美猎狐 休斯顿中领馆是活动基地  " alt="中共在美猎狐 休斯顿中领馆是活动基地  "></a></p>
+<p><a href="https://github.com/cakhhr339/djy/blob/master/gb/20/7/25/n12283622.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美禁TikTok内幕 中共泄洪秘密曝光   >-009fcc?logoWidth=1" title="美禁TikTok内幕 中共泄洪秘密曝光  " alt="美禁TikTok内幕 中共泄洪秘密曝光  "></a></p>
+<p><a href="https://github.com/cakhhr339/djy/blob/master/gb/20/7/25/n12283409.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美称休斯顿中领馆是中共间谍网中心 专家解读 >-009fcc?logoWidth=1" title="美称休斯顿中领馆是中共间谍网中心 专家解读  " alt="美称休斯顿中领馆是中共间谍网中心 专家解读  "></a></p>
+<p><a href="https://github.com/cakhhr339/djy/blob/master/gb/20/7/25/n12283457.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国冷战武器今派用场 尼米兹航母      >-009fcc?logoWidth=1" title="美国冷战武器今派用场 尼米兹航母  " alt="美国冷战武器今派用场 尼米兹航母  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/cakhhr339/djy/blob/master/gb/20/7/24/n12281891.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美重锤下北京买买买 川普：意义不大     >-009fcc?logoWidth=1" title="美重锤下北京买买买 川普：意义不大  " alt="美重锤下北京买买买 川普：意义不大  "></a></p>
 <p><a href="https://github.com/cakhhr339/djy/blob/master/gb/20/7/25/n12282903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杭州失踪女子遭夫杀害后分尸 细节曝光    >-009fcc?logoWidth=1" title="杭州失踪女子遭夫杀害后分尸 细节曝光  " alt="杭州失踪女子遭夫杀害后分尸 细节曝光  "></a></p>
+<p><a href="https://github.com/cakhhr339/ntdtv/blob/master/gb/2020/07/26/a102902723.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥中国政策演说被指“临战宣言”     >-009fcc?logoWidth=1" title="蓬佩奥中国政策演说被指“临战宣言”  " alt="蓬佩奥中国政策演说被指“临战宣言”  "></a></p>
 <p><a href="https://github.com/cakhhr339/ntdtv/blob/master/gb/2020/07/25/a102902398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传视频：西安出现感染 北门一酒店被封   >-009fcc?logoWidth=1" title="网传视频：西安出现感染 北门一酒店被封  " alt="网传视频：西安出现感染 北门一酒店被封  "></a></p>
-<p><a href="https://github.com/cakhhr339/ntdtv/blob/master/gb/2020/07/26/a102902727.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐娟被抛出 旧金山领馆烧纸？/TikTok非>-009fcc?logoWidth=1" title="唐娟被抛出 旧金山领馆烧纸？/TikTok非抖音 美欲封禁有绝招  " alt="唐娟被抛出 旧金山领馆烧纸？/TikTok非抖音 美欲封禁有绝招  "></a></p>
 <p><a href="https://github.com/cakhhr339/djy/blob/master/gb/20/7/24/n12282148.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共不代表14亿中国人民的十个理由 >-009fcc?logoWidth=1" title="王友群：中共不代表14亿中国人民的十个理由  " alt="王友群：中共不代表14亿中国人民的十个理由  "></a></p>
 <p><a href="https://github.com/cakhhr339/djy/blob/master/gb/20/7/24/n12281596.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强被指遭“政治迫害” 他都说了些啥？  >-009fcc?logoWidth=1" title="任志强被指遭“政治迫害” 他都说了些啥？  " alt="任志强被指遭“政治迫害” 他都说了些啥？  "></a></p>
+<p><a href="https://github.com/cakhhr339/ntdtv/blob/master/gb/2020/07/26/a102902727.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐娟被抛出 旧金山领馆烧纸？/TikTok非>-009fcc?logoWidth=1" title="唐娟被抛出 旧金山领馆烧纸？/TikTok非抖音 美欲封禁有绝招  " alt="唐娟被抛出 旧金山领馆烧纸？/TikTok非抖音 美欲封禁有绝招  "></a></p>
 <p><a href="https://github.com/cakhhr339/djy/blob/master/gb/20/7/25/n12282568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟禁中共党员入境 原大陆网络宣传员退党  >-009fcc?logoWidth=1" title="美拟禁中共党员入境 原大陆网络宣传员退党  " alt="美拟禁中共党员入境 原大陆网络宣传员退党  "></a></p>
 <p><a href="https://github.com/cakhhr339/djy/blob/master/gb/20/7/24/n12279951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院高级官员会见五位法轮功学员     >-009fcc?logoWidth=1" title="美国务院高级官员会见五位法轮功学员  " alt="美国务院高级官员会见五位法轮功学员  "></a></p>
-<p><a href="https://github.com/cakhhr339/ntdtv/blob/master/gb/2020/07/25/a102902173.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/共谍唐娟深夜被旧金山领事馆推出门外遭逮捕  >-009fcc?logoWidth=1" title="共谍唐娟深夜被旧金山领事馆推出门外遭逮捕  " alt="共谍唐娟深夜被旧金山领事馆推出门外遭逮捕  "></a></p>
 <p><a href="https://github.com/cakhhr339/djy/blob/master/gb/20/7/25/n12283034.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又卖了 李嘉诚出售成都资产 将获利38亿  >-009fcc?logoWidth=1" title="又卖了 李嘉诚出售成都资产 将获利38亿  " alt="又卖了 李嘉诚出售成都资产 将获利38亿  "></a></p>
-<p><a href="https://github.com/cakhhr339/djy/blob/master/gb/20/7/25/n12282620.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被超高估值 中芯国际上市一周股价跌24   >-009fcc?logoWidth=1" title="被超高估值 中芯国际上市一周股价跌24  " alt="被超高估值 中芯国际上市一周股价跌24  "></a></p>
+<p><a href="https://github.com/cakhhr339/ntdtv/blob/master/gb/2020/07/25/a102902173.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/共谍唐娟深夜被旧金山领事馆推出门外遭逮捕  >-009fcc?logoWidth=1" title="共谍唐娟深夜被旧金山领事馆推出门外遭逮捕  " alt="共谍唐娟深夜被旧金山领事馆推出门外遭逮捕  "></a></p>
 <p><a href="https://github.com/cakhhr339/ntdtv/blob/master/gb/2020/07/25/a102901951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中领馆涉谋杀案？猛料越爆越多！崔天凯招间谍被>-009fcc?logoWidth=1" title="中领馆涉谋杀案？猛料越爆越多！崔天凯招间谍被抓现行  " alt="中领馆涉谋杀案？猛料越爆越多！崔天凯招间谍被抓现行  "></a></p>
-<p><a href="https://github.com/cakhhr339/ntdtv/blob/master/gb/2020/07/25/a102902708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老黑：蓬佩奥重塑美台关系 CCP永远无法“五>-009fcc?logoWidth=1" title="老黑：蓬佩奥重塑美台关系 CCP永远无法“五筒”台湾！  " alt="老黑：蓬佩奥重塑美台关系 CCP永远无法“五筒”台湾！  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -489,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cakhhr339/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cakhhr339/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cakhhr339/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cakhhr339/www/blob/master/README.md?y#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cakhhr339/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cakhhr339/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cakhhr339/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cakhhr339/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cakhhr339/www/blob/master/README.md?k#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cakhhr339/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/keeee">git.io/keeee</a></div>
+<div align="center">短网址: <a href="https://git.io/rkkkk">git.io/rkkkk</a></div>
 
