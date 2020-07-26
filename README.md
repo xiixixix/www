@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tvywxb329/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tvywxb329/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bzzzz">git.io/bzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa9">x.co/aa9</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cnnnn">git.io/cnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9933">x.co/9933</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -19,11 +19,11 @@
 <p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902912.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中领馆被指间谍中心 驱逐刚开始       >-009fcc?logoWidth=1" title="中领馆被指间谍中心 驱逐刚开始  " alt="中领馆被指间谍中心 驱逐刚开始  "></a></p>
 <p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902867.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都美领馆放鞭炮者 被揭是中共便衣     >-009fcc?logoWidth=1" title="成都美领馆放鞭炮者 被揭是中共便衣  " alt="成都美领馆放鞭炮者 被揭是中共便衣  "></a></p>
 <p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒曝中共军队失控 习大秘“指挥”上将   >-009fcc?logoWidth=1" title="港媒曝中共军队失控 习大秘“指挥”上将  " alt="港媒曝中共军队失控 习大秘“指挥”上将  "></a></p>
+<p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102903081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉言论审查及假新闻 马云等被印度法院传召  >-009fcc?logoWidth=1" title="涉言论审查及假新闻 马云等被印度法院传召  " alt="涉言论审查及假新闻 马云等被印度法院传召  "></a></p>
+<p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102903050.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美多州民众收到中国邮寄种子 当局警告勿栽植 >-009fcc?logoWidth=1" title="美多州民众收到中国邮寄种子 当局警告勿栽植  " alt="美多州民众收到中国邮寄种子 当局警告勿栽植  "></a></p>
 <p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102903058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法国南特教堂被烧 卢旺达难民承认纵火    >-009fcc?logoWidth=1" title="法国南特教堂被烧 卢旺达难民承认纵火  " alt="法国南特教堂被烧 卢旺达难民承认纵火  "></a></p>
 <p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102903040.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平访四平 学者:错误理解历史将把中国带入>-009fcc?logoWidth=1" title="习近平访四平 学者:错误理解历史将把中国带入危险  " alt="习近平访四平 学者:错误理解历史将把中国带入危险  "></a></p>
 <p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/观众发现女记者脖子有肿块 结果查出甲状腺癌 >-009fcc?logoWidth=1" title="观众发现女记者脖子有肿块 结果查出甲状腺癌  " alt="观众发现女记者脖子有肿块 结果查出甲状腺癌  "></a></p>
-<p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情最致命一天  澳洲维多利亚州新增10人病>-009fcc?logoWidth=1" title="疫情最致命一天  澳洲维多利亚州新增10人病故  " alt="疫情最致命一天  澳洲维多利亚州新增10人病故  "></a></p>
-<p><a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/2020/07/26/a102902932.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西班牙疫情反弹 英突令入境旅客隔离两周   >-009fcc?logoWidth=1" title="西班牙疫情反弹 英突令入境旅客隔离两周  " alt="西班牙疫情反弹 英突令入境旅客隔离两周  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tvywxb329/djy/blob/master/gb/20/7/22/n12274382.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭秘中共抗疫中的大数据监控         >-009fcc?logoWidth=1" title="揭秘中共抗疫中的大数据监控  " alt="揭秘中共抗疫中的大数据监控  "></a></p>
 <p><a href="https://github.com/tvywxb329/djy/blob/master/gb/20/7/25/n12283734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI揭秘：中共女军医掩盖身份申请美签内幕 >-009fcc?logoWidth=1" title="FBI揭秘：中共女军医掩盖身份申请美签内幕  " alt="FBI揭秘：中共女军医掩盖身份申请美签内幕  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/tvywxb329/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tvywxb329/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tvywxb329/www/blob/master/README.md?z#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/tvywxb329/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/tvywxb329/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tvywxb329/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tvywxb329/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tvywxb329/www/blob/master/README.md?u#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/tvywxb329/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bzzzz">git.io/bzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/cnnnn">git.io/cnnnn</a></div>
 
