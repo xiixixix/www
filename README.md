@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ekzpmt3266/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/assss">git.io/assss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/uqq">x.co/uqq</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kdddd">git.io/kdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa5">x.co/aa5</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -37,8 +37,18 @@
 <p><a href="https://github.com/ekzpmt3266/djy/blob/master/gb/20/7/27/n12286151.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆疫情恶化 传伊宁市半夜通知封城     >-009fcc?logoWidth=1" title="新疆疫情恶化 传伊宁市半夜通知封城  " alt="新疆疫情恶化 传伊宁市半夜通知封城  "></a></p>
 <p><a href="https://github.com/ekzpmt3266/djy/blob/master/gb/20/7/27/n12286654.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江第3号洪水过境重庆 磁器口遭洪水淹没  >-009fcc?logoWidth=1" title="长江第3号洪水过境重庆 磁器口遭洪水淹没  " alt="长江第3号洪水过境重庆 磁器口遭洪水淹没  "></a></p>
 <p><a href="https://github.com/ekzpmt3266/djy/blob/master/gb/20/7/27/n12285639.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：中美冷战被诡道掩盖          >-009fcc?logoWidth=1" title="专家：中美冷战被诡道掩盖  " alt="专家：中美冷战被诡道掩盖  "></a></p>
-<p><a href="https://github.com/ekzpmt3266/djy/blob/master/gb/20/7/27/n12286593.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/TikTok四面楚歌 印度和美国产App下载>-009fcc?logoWidth=1" title="TikTok四面楚歌 印度和美国产App下载量大增  " alt="TikTok四面楚歌 印度和美国产App下载量大增  "></a></p>
+<p><a href="https://github.com/ekzpmt3266/djy/blob/master/gb/20/7/27/n12285522.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军官机场被捕 行前删微信        >-009fcc?logoWidth=1" title="中共军官机场被捕 行前删微信  " alt="中共军官机场被捕 行前删微信  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/ekzpmt3266/djy/blob/master/gb/20/7/27/n12286593.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/TikTok四面楚歌 印度和美国产App下载>-009fcc?logoWidth=1" title="TikTok四面楚歌 印度和美国产App下载量大增  " alt="TikTok四面楚歌 印度和美国产App下载量大增  "></a></p>
+<p><a href="https://github.com/ekzpmt3266/ntdtv/blob/master/gb/2020/07/26/a102903016.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平第三任期无望？观察家：蓬佩奥揭开围堵中>-009fcc?logoWidth=1" title="习近平第三任期无望？观察家：蓬佩奥揭开围堵中共序幕  " alt="习近平第三任期无望？观察家：蓬佩奥揭开围堵中共序幕  "></a></p>
+<p><a href="https://github.com/ekzpmt3266/djy/blob/master/gb/20/7/27/n12285648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参议员克鲁兹：可能会关闭更多中领馆    >-009fcc?logoWidth=1" title="美参议员克鲁兹：可能会关闭更多中领馆  " alt="美参议员克鲁兹：可能会关闭更多中领馆  "></a></p>
+<p><a href="https://github.com/ekzpmt3266/djy/blob/master/gb/20/7/27/n12285558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：中共最怕的来了 美国与中国人民站一起 >-009fcc?logoWidth=1" title="田云：中共最怕的来了 美国与中国人民站一起  " alt="田云：中共最怕的来了 美国与中国人民站一起  "></a></p>
+<p><a href="https://github.com/ekzpmt3266/ntdtv/blob/master/gb/2020/07/26/a102902978.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭开炼金术的真正目的！看懂你就发达了    >-009fcc?logoWidth=1" title="揭开炼金术的真正目的！看懂你就发达了  " alt="揭开炼金术的真正目的！看懂你就发达了  "></a></p>
+<p><a href="https://github.com/ekzpmt3266/ntdtv/blob/master/gb/2020/07/27/a102903363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美外交冲突升级 中共高调进行雷州半岛军演 >-009fcc?logoWidth=1" title="中美外交冲突升级 中共高调进行雷州半岛军演  " alt="中美外交冲突升级 中共高调进行雷州半岛军演  "></a></p>
+<p><a href="https://github.com/ekzpmt3266/djy/blob/master/gb/20/7/25/n12283734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共女军医掩盖身份在美被捕         >-009fcc?logoWidth=1" title="中共女军医掩盖身份在美被捕  " alt="中共女军医掩盖身份在美被捕  "></a></p>
+<p><a href="https://github.com/ekzpmt3266/djy/blob/master/gb/20/7/26/n12285254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：林伯渠第四任妻子朱明自杀之谜    >-009fcc?logoWidth=1" title="王友群：林伯渠第四任妻子朱明自杀之谜  " alt="王友群：林伯渠第四任妻子朱明自杀之谜  "></a></p>
+<p><a href="https://github.com/ekzpmt3266/ntdtv/blob/master/gb/2020/07/27/a102903346.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/视力回春很简单！中医3招改善眼睛老化    >-009fcc?logoWidth=1" title="视力回春很简单！中医3招改善眼睛老化  " alt="视力回春很简单！中医3招改善眼睛老化  "></a></p>
+<p><a href="https://github.com/ekzpmt3266/ntdtv/blob/master/gb/2020/07/26/a102903024.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军机空前逼近上海 学者：无人能排除战争  >-009fcc?logoWidth=1" title="美军机空前逼近上海 学者：无人能排除战争  " alt="美军机空前逼近上海 学者：无人能排除战争  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -476,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ekzpmt3266/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ekzpmt3266/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ekzpmt3266/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ekzpmt3266/www/blob/master/README.md?f#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ekzpmt3266/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ekzpmt3266/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ekzpmt3266/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ekzpmt3266/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ekzpmt3266/www/blob/master/README.md?x#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ekzpmt3266/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/assss">git.io/assss</a></div>
+<div align="center">短网址: <a href="https://git.io/kdddd">git.io/kdddd</a></div>
 
