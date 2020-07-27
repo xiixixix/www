@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ekzpmt3266/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ekzpmt3266/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eqqqq">git.io/eqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/afa">x.co/afa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d5555">git.io/d5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3339">x.co/3339</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -24,7 +24,6 @@
 <p><a href="https://github.com/ekzpmt3266/ntdtv/blob/master/gb/2020/07/27/a102903584.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北妈妈被非法抓捕 绝食抗议18天     >-009fcc?logoWidth=1" title="湖北妈妈被非法抓捕 绝食抗议18天  " alt="湖北妈妈被非法抓捕 绝食抗议18天  "></a></p>
 <p><a href="https://github.com/ekzpmt3266/ntdtv/blob/master/gb/2020/07/27/a102903588.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连中共病毒疫情扩至4省7市        >-009fcc?logoWidth=1" title="大连中共病毒疫情扩至4省7市  " alt="大连中共病毒疫情扩至4省7市  "></a></p>
 <p><a href="https://github.com/ekzpmt3266/ntdtv/blob/master/gb/2020/07/27/a102903519.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美驻成都领事馆撤馆 总领事台妻遭网军攻击  >-009fcc?logoWidth=1" title="美驻成都领事馆撤馆 总领事台妻遭网军攻击  " alt="美驻成都领事馆撤馆 总领事台妻遭网军攻击  "></a></p>
-<p><a href="https://github.com/ekzpmt3266/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夜话中南海：习近平要李克强“摆正位置”   >-009fcc?logoWidth=1" title="夜话中南海：习近平要李克强“摆正位置”  " alt="夜话中南海：习近平要李克强“摆正位置”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ekzpmt3266/djy/blob/master/gb/20/7/26/n12285211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯顿中领馆窃密招人才 十年涉五十案    >-009fcc?logoWidth=1" title="休斯顿中领馆窃密招人才 十年涉五十案  " alt="休斯顿中领馆窃密招人才 十年涉五十案  "></a></p>
 <p><a href="https://github.com/ekzpmt3266/djy/blob/master/gb/20/7/26/n12285067.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓农：中美冷战进入升级快车道？      >-009fcc?logoWidth=1" title="程晓农：中美冷战进入升级快车道？  " alt="程晓农：中美冷战进入升级快车道？  "></a></p>
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ekzpmt3266/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ekzpmt3266/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ekzpmt3266/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ekzpmt3266/www/blob/master/README.md?j#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ekzpmt3266/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ekzpmt3266/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ekzpmt3266/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ekzpmt3266/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ekzpmt3266/www/blob/master/README.md?c#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ekzpmt3266/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/eqqqq">git.io/eqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/d5555">git.io/d5555</a></div>
 
