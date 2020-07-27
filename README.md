@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/lwzrrt304/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/lwzrrt304/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ccccccc">git.io/ccccccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2666">x.co/2666</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ubbbb">git.io/ubbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/gdd">x.co/gdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,14 +41,13 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/26/a102902827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒曝中共军队失控 习近平大秘“指挥”上将 >-009fcc?logoWidth=1" title="港媒曝中共军队失控 习近平大秘“指挥”上将  " alt="港媒曝中共军队失控 习近平大秘“指挥”上将  "></a></p>
 <p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/26/n12285294.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/关系紧张 美军机逼近中国沿海不足80公里  >-009fcc?logoWidth=1" title="关系紧张 美军机逼近中国沿海不足80公里  " alt="关系紧张 美军机逼近中国沿海不足80公里  "></a></p>
-<p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/26/n12285254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：林伯渠第四任妻子朱明自杀之谜    >-009fcc?logoWidth=1" title="王友群：林伯渠第四任妻子朱明自杀之谜  " alt="王友群：林伯渠第四任妻子朱明自杀之谜  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/26/a102902745.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/参观美军基地后 中共代表团目瞪口呆     >-009fcc?logoWidth=1" title="参观美军基地后 中共代表团目瞪口呆  " alt="参观美军基地后 中共代表团目瞪口呆  "></a></p>
+<p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/26/n12285254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：林伯渠第四任妻子朱明自杀之谜    >-009fcc?logoWidth=1" title="王友群：林伯渠第四任妻子朱明自杀之谜  " alt="王友群：林伯渠第四任妻子朱明自杀之谜  "></a></p>
 <p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/26/n12284448.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：中科院集体离职 刘鹤奉令调查有何深意>-009fcc?logoWidth=1" title="陈思敏：中科院集体离职 刘鹤奉令调查有何深意  " alt="陈思敏：中科院集体离职 刘鹤奉令调查有何深意  "></a></p>
-<p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/26/n12284398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阿里巴巴创始人马云被印度法院传唤      >-009fcc?logoWidth=1" title="阿里巴巴创始人马云被印度法院传唤  " alt="阿里巴巴创始人马云被印度法院传唤  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/26/a102903094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江第3号洪水来袭 重庆土石流堰塞湖溢坝  >-009fcc?logoWidth=1" title="长江第3号洪水来袭 重庆土石流堰塞湖溢坝  " alt="长江第3号洪水来袭 重庆土石流堰塞湖溢坝  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/26/a102903039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：美国撤离成都总领馆 央视直播 习近平>-009fcc?logoWidth=1" title="陈破空：美国撤离成都总领馆 央视直播 习近平准备战争  " alt="陈破空：美国撤离成都总领馆 央视直播 习近平准备战争  "></a></p>
+<p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/26/n12284398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阿里巴巴创始人马云被印度法院传唤      >-009fcc?logoWidth=1" title="阿里巴巴创始人马云被印度法院传唤  " alt="阿里巴巴创始人马云被印度法院传唤  "></a></p>
 <p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/26/n12284074.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/秦淮河堤坝内部已被挖空 或随时崩溃     >-009fcc?logoWidth=1" title="秦淮河堤坝内部已被挖空 或随时崩溃  " alt="秦淮河堤坝内部已被挖空 或随时崩溃  "></a></p>
-<p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/26/n12285094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/学者：中共遇到对手 川普是首个不怕对抗的总统>-009fcc?logoWidth=1" title="学者：中共遇到对手 川普是首个不怕对抗的总统  " alt="学者：中共遇到对手 川普是首个不怕对抗的总统  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/26/a102902948.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话:中共关闭成都美领馆报复；蓬佩奥>-009fcc?logoWidth=1" title="外交部大实话:中共关闭成都美领馆报复；蓬佩奥演讲吹响灭共集结号  " alt="外交部大实话:中共关闭成都美领馆报复；蓬佩奥演讲吹响灭共集结号  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/26/a102902931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒曝中共军队失控/传有外交官携中共密件叛逃>-009fcc?logoWidth=1" title="港媒曝中共军队失控/传有外交官携中共密件叛逃  " alt="港媒曝中共军队失控/传有外交官携中共密件叛逃  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -488,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/lwzrrt304/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lwzrrt304/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lwzrrt304/www/blob/master/README.md?a#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/lwzrrt304/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/lwzrrt304/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lwzrrt304/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lwzrrt304/www/blob/master/README.md?z#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/lwzrrt304/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ccccccc">git.io/ccccccc</a></div>
+<div align="center">短网址: <a href="https://git.io/ubbbb">git.io/ubbbb</a></div>
 
