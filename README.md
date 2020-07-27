@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/pgnstk3616/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/pgnstk3616/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aaaaaaa">git.io/aaaaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppd">x.co/ppd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qrrrr">git.io/qrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pfp">x.co/pfp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/pgnstk3616/ntdtv/blob/master/gb/2020/07/26/a102902827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒曝中共军队失控 习大秘“指挥”上将   >-009fcc?logoWidth=1" title="港媒曝中共军队失控 习大秘“指挥”上将  " alt="港媒曝中共军队失控 习大秘“指挥”上将  "></a></p>
 <p><a href="https://github.com/pgnstk3616/ntdtv/blob/master/gb/2020/07/26/a102902948.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话:中共关闭成都美领馆报复；蓬佩奥>-009fcc?logoWidth=1" title="外交部大实话:中共关闭成都美领馆报复；蓬佩奥演讲吹响灭共集结号  " alt="外交部大实话:中共关闭成都美领馆报复；蓬佩奥演讲吹响灭共集结号  "></a></p>
 <p><a href="https://github.com/pgnstk3616/ntdtv/blob/master/gb/2020/07/26/a102902931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒曝中共军队失控/传有外交官携中共密件叛逃>-009fcc?logoWidth=1" title="港媒曝中共军队失控/传有外交官携中共密件叛逃  " alt="港媒曝中共军队失控/传有外交官携中共密件叛逃  "></a></p>
+<p><a href="https://github.com/pgnstk3616/ntdtv/blob/master/gb/2020/07/27/a102903219.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国发出“讨共檄文”？专家：习近平要倒大霉了>-009fcc?logoWidth=1" title="美国发出“讨共檄文”？专家：习近平要倒大霉了  " alt="美国发出“讨共檄文”？专家：习近平要倒大霉了  "></a></p>
 <p><a href="https://github.com/pgnstk3616/ntdtv/blob/master/gb/2020/07/27/a102903214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杰斯：灭共美国付诸行动 世界需选边站    >-009fcc?logoWidth=1" title="杰斯：灭共美国付诸行动 世界需选边站  " alt="杰斯：灭共美国付诸行动 世界需选边站  "></a></p>
 <p><a href="https://github.com/pgnstk3616/ntdtv/blob/master/gb/2020/07/27/a102903207.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾躲中领馆 女军官唐娟出庭         >-009fcc?logoWidth=1" title="曾躲中领馆 女军官唐娟出庭  " alt="曾躲中领馆 女军官唐娟出庭  "></a></p>
 <p><a href="https://github.com/pgnstk3616/ntdtv/blob/master/gb/2020/07/26/a102903109.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大批成都民众美领馆拍照留念 老人哽咽：中美应>-009fcc?logoWidth=1" title="大批成都民众美领馆拍照留念 老人哽咽：中美应该是朋友（视频）  " alt="大批成都民众美领馆拍照留念 老人哽咽：中美应该是朋友（视频）  "></a></p>
 <p><a href="https://github.com/pgnstk3616/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美高官改称习总书记 不再称国家主席引热议  >-009fcc?logoWidth=1" title="美高官改称习总书记 不再称国家主席引热议  " alt="美高官改称习总书记 不再称国家主席引热议  "></a></p>
-<p><a href="https://github.com/pgnstk3616/ntdtv/blob/master/gb/2020/07/26/a102903171.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多座左翼管辖城市发生暴乱 川普批媒体拒报真相>-009fcc?logoWidth=1" title="多座左翼管辖城市发生暴乱 川普批媒体拒报真相  " alt="多座左翼管辖城市发生暴乱 川普批媒体拒报真相  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/pgnstk3616/djy/blob/master/gb/20/7/26/n12285211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯顿中领馆窃密招人才 十年涉五十案    >-009fcc?logoWidth=1" title="休斯顿中领馆窃密招人才 十年涉五十案  " alt="休斯顿中领馆窃密招人才 十年涉五十案  "></a></p>
 <p><a href="https://github.com/pgnstk3616/djy/blob/master/gb/20/7/26/n12285444.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾躲中领馆 女军官唐娟出庭         >-009fcc?logoWidth=1" title="曾躲中领馆 女军官唐娟出庭  " alt="曾躲中领馆 女军官唐娟出庭  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/pgnstk3616/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pgnstk3616/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pgnstk3616/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pgnstk3616/www/blob/master/README.md?f#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/pgnstk3616/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/pgnstk3616/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pgnstk3616/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pgnstk3616/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pgnstk3616/www/blob/master/README.md?l#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/pgnstk3616/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/aaaaaaa">git.io/aaaaaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/qrrrr">git.io/qrrrr</a></div>
 
