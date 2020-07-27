@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/lwzrrt304/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/lwzrrt304/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mffff">git.io/mffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pgp">x.co/pgp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ryyyy">git.io/ryyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/7aa">x.co/7aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/马云被传唤后失踪/蓬佩奥又出招       >-009fcc?logoWidth=1" title="马云被传唤后失踪/蓬佩奥又出招  " alt="马云被传唤后失踪/蓬佩奥又出招  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903437.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南海火药味浓 中共实弹军演 美机逼近上海  >-009fcc?logoWidth=1" title="南海火药味浓 中共实弹军演 美机逼近上海  " alt="南海火药味浓 中共实弹军演 美机逼近上海  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都美领事夫人爆红 披露不为人所知的“贵妇生>-009fcc?logoWidth=1" title="成都美领事夫人爆红 披露不为人所知的“贵妇生活”  " alt="成都美领事夫人爆红 披露不为人所知的“贵妇生活”  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903366.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥又出招：制裁华为等“党企”员工    >-009fcc?logoWidth=1" title="蓬佩奥又出招：制裁华为等“党企”员工  " alt="蓬佩奥又出招：制裁华为等“党企”员工  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903280.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夜话中南海：习近平要李克强“摆正位置”   >-009fcc?logoWidth=1" title="夜话中南海：习近平要李克强“摆正位置”  " alt="夜话中南海：习近平要李克强“摆正位置”  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903265.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/藏匿旧金山中领馆女谍 被曝是江苏国安厅长情妇>-009fcc?logoWidth=1" title="藏匿旧金山中领馆女谍 被曝是江苏国安厅长情妇  " alt="藏匿旧金山中领馆女谍 被曝是江苏国安厅长情妇  "></a></p>
-<p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903247.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平被指“总加速师” 快速推进中共败亡  >-009fcc?logoWidth=1" title="习近平被指“总加速师” 快速推进中共败亡  " alt="习近平被指“总加速师” 快速推进中共败亡  "></a></p>
+<p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官媒声称“夏粮创新高” 引民众热议     >-009fcc?logoWidth=1" title="官媒声称“夏粮创新高” 引民众热议  " alt="官媒声称“夏粮创新高” 引民众热议  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人类的“第三只眼”确实存在 它就在你的脑中 >-009fcc?logoWidth=1" title="人类的“第三只眼”确实存在 它就在你的脑中  " alt="人类的“第三只眼”确实存在 它就在你的脑中  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903498.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/越南岘港出现本土病例 急撤8万游客     >-009fcc?logoWidth=1" title="越南岘港出现本土病例 急撤8万游客  " alt="越南岘港出现本土病例 急撤8万游客  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/信守28年前承诺 他中头奖2200万美元分好>-009fcc?logoWidth=1" title="信守28年前承诺 他中头奖2200万美元分好友一半  " alt="信守28年前承诺 他中头奖2200万美元分好友一半  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903411.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭秘中共抗疫中的大数据监控         >-009fcc?logoWidth=1" title="揭秘中共抗疫中的大数据监控  " alt="揭秘中共抗疫中的大数据监控  "></a></p>
-<p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903416.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江下游防洪坝已严重渗水 肚子里却开餐厅  >-009fcc?logoWidth=1" title="长江下游防洪坝已严重渗水 肚子里却开餐厅  " alt="长江下游防洪坝已严重渗水 肚子里却开餐厅  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/26/n12285211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯顿中领馆窃密招人才 十年涉五十案    >-009fcc?logoWidth=1" title="休斯顿中领馆窃密招人才 十年涉五十案  " alt="休斯顿中领馆窃密招人才 十年涉五十案  "></a></p>
 <p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/26/n12285067.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓农：中美冷战进入升级快车道？      >-009fcc?logoWidth=1" title="程晓农：中美冷战进入升级快车道？  " alt="程晓农：中美冷战进入升级快车道？  "></a></p>
@@ -39,15 +39,17 @@
 <p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/27/n12285986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连99条客运线停运 检测点人挤人     >-009fcc?logoWidth=1" title="大连99条客运线停运 检测点人挤人  " alt="大连99条客运线停运 检测点人挤人  "></a></p>
 <p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/26/n12284930.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平被指是中共灭亡的“总加速师”     >-009fcc?logoWidth=1" title="习近平被指是中共灭亡的“总加速师”  " alt="习近平被指是中共灭亡的“总加速师”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/26/a102903016.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平第三任期无望？观察家：蓬佩奥揭开围堵中>-009fcc?logoWidth=1" title="习近平第三任期无望？观察家：蓬佩奥揭开围堵中共序幕  " alt="习近平第三任期无望？观察家：蓬佩奥揭开围堵中共序幕  "></a></p>
+<p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903416.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江下游防洪坝已严重渗水 肚子里却开餐厅  >-009fcc?logoWidth=1" title="长江下游防洪坝已严重渗水 肚子里却开餐厅  " alt="长江下游防洪坝已严重渗水 肚子里却开餐厅  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/26/a102903024.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军机空前逼近上海 学者：无人能排除战争  >-009fcc?logoWidth=1" title="美军机空前逼近上海 学者：无人能排除战争  " alt="美军机空前逼近上海 学者：无人能排除战争  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美外交冲突升级 中共高调进行雷州半岛军演 >-009fcc?logoWidth=1" title="中美外交冲突升级 中共高调进行雷州半岛军演  " alt="中美外交冲突升级 中共高调进行雷州半岛军演  "></a></p>
-<p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903346.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/视力回春很简单！中医3招改善眼睛老化    >-009fcc?logoWidth=1" title="视力回春很简单！中医3招改善眼睛老化  " alt="视力回春很简单！中医3招改善眼睛老化  "></a></p>
 <p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/26/n12285294.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/关系紧张 美军机逼近中国沿海不足80公里  >-009fcc?logoWidth=1" title="关系紧张 美军机逼近中国沿海不足80公里  " alt="关系紧张 美军机逼近中国沿海不足80公里  "></a></p>
 <p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/26/n12285444.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾躲中领馆 女军官唐娟出庭         >-009fcc?logoWidth=1" title="曾躲中领馆 女军官唐娟出庭  " alt="曾躲中领馆 女军官唐娟出庭  "></a></p>
+<p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903346.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/视力回春很简单！中医3招改善眼睛老化    >-009fcc?logoWidth=1" title="视力回春很简单！中医3招改善眼睛老化  " alt="视力回春很简单！中医3招改善眼睛老化  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903464.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆韭菜呛台湾“18线城市”“台湾华人是世界>-009fcc?logoWidth=1" title="大陆韭菜呛台湾“18线城市”“台湾华人是世界之耻”结果????  " alt="大陆韭菜呛台湾“18线城市”“台湾华人是世界之耻”结果????  "></a></p>
-<p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/26/a102903109.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大批成都民众美领馆拍照留念 老人哽咽：中美应>-009fcc?logoWidth=1" title="大批成都民众美领馆拍照留念 老人哽咽：中美应该是朋友（视频）  " alt="大批成都民众美领馆拍照留念 老人哽咽：中美应该是朋友（视频）  "></a></p>
 <p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/26/n12285254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：林伯渠第四任妻子朱明自杀之谜    >-009fcc?logoWidth=1" title="王友群：林伯渠第四任妻子朱明自杀之谜  " alt="王友群：林伯渠第四任妻子朱明自杀之谜  "></a></p>
 <p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/26/n12284398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阿里巴巴创始人马云被印度法院传唤      >-009fcc?logoWidth=1" title="阿里巴巴创始人马云被印度法院传唤  " alt="阿里巴巴创始人马云被印度法院传唤  "></a></p>
+<p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/26/a102903109.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大批成都民众美领馆拍照留念 老人哽咽：中美应>-009fcc?logoWidth=1" title="大批成都民众美领馆拍照留念 老人哽咽：中美应该是朋友（视频）  " alt="大批成都民众美领馆拍照留念 老人哽咽：中美应该是朋友（视频）  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/26/a102902827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒曝中共军队失控 习近平大秘“指挥”上将 >-009fcc?logoWidth=1" title="港媒曝中共军队失控 习近平大秘“指挥”上将  " alt="港媒曝中共军队失控 习近平大秘“指挥”上将  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -486,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/lwzrrt304/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lwzrrt304/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lwzrrt304/www/blob/master/README.md?i#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/lwzrrt304/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/lwzrrt304/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lwzrrt304/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lwzrrt304/www/blob/master/README.md?t#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/lwzrrt304/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mffff">git.io/mffff</a></div>
+<div align="center">短网址: <a href="https://git.io/ryyyy">git.io/ryyyy</a></div>
 
