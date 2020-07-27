@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/lwzrrt304/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/lwzrrt304/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ubbbb">git.io/ubbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/gdd">x.co/gdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k7777">git.io/k7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2225">x.co/2225</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,24 +20,24 @@
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903219.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国发出“讨共檄文”？专家：习近平要倒大霉了>-009fcc?logoWidth=1" title="美国发出“讨共檄文”？专家：习近平要倒大霉了  " alt="美国发出“讨共檄文”？专家：习近平要倒大霉了  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/26/a102903040.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平访四平 学者:错误理解历史将把中国带入>-009fcc?logoWidth=1" title="习近平访四平 学者:错误理解历史将把中国带入危险  " alt="习近平访四平 学者:错误理解历史将把中国带入危险  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/26/a102903024.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军机空前逼近上海 学者:无人能排除战争  >-009fcc?logoWidth=1" title="美军机空前逼近上海 学者:无人能排除战争  " alt="美军机空前逼近上海 学者:无人能排除战争  "></a></p>
+<p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903280.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夜话中南海：习近平要李克强“摆正位置”   >-009fcc?logoWidth=1" title="夜话中南海：习近平要李克强“摆正位置”  " alt="夜话中南海：习近平要李克强“摆正位置”  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903230.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刘锐绍：香港历经三劫 国际抗共联盟格局现  >-009fcc?logoWidth=1" title="刘锐绍：香港历经三劫 国际抗共联盟格局现  " alt="刘锐绍：香港历经三劫 国际抗共联盟格局现  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/23/a102900492.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/明成祖朱棣死前留下一道圣旨 让明朝硬气了20>-009fcc?logoWidth=1" title="明成祖朱棣死前留下一道圣旨 让明朝硬气了200年  " alt="明成祖朱棣死前留下一道圣旨 让明朝硬气了200年  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杰斯：灭共美国付诸行动 世界需选边站    >-009fcc?logoWidth=1" title="杰斯：灭共美国付诸行动 世界需选边站  " alt="杰斯：灭共美国付诸行动 世界需选边站  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903207.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾躲中领馆 女军官唐娟出庭         >-009fcc?logoWidth=1" title="曾躲中领馆 女军官唐娟出庭  " alt="曾躲中领馆 女军官唐娟出庭  "></a></p>
-<p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/26/a102903109.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大批成都民众美领馆拍照留念 老人哽咽：中美应>-009fcc?logoWidth=1" title="大批成都民众美领馆拍照留念 老人哽咽：中美应该是朋友（视频）  " alt="大批成都民众美领馆拍照留念 老人哽咽：中美应该是朋友（视频）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/26/n12285211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯顿中领馆窃密招人才 十年涉五十案    >-009fcc?logoWidth=1" title="休斯顿中领馆窃密招人才 十年涉五十案  " alt="休斯顿中领馆窃密招人才 十年涉五十案  "></a></p>
 <p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/26/n12285067.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓农：中美冷战进入升级快车道？      >-009fcc?logoWidth=1" title="程晓农：中美冷战进入升级快车道？  " alt="程晓农：中美冷战进入升级快车道？  "></a></p>
-<p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/26/n12285444.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾躲中领馆 女军官唐娟出庭         >-009fcc?logoWidth=1" title="曾躲中领馆 女军官唐娟出庭  " alt="曾躲中领馆 女军官唐娟出庭  "></a></p>
-<p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/26/n12285082.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/颜丹：真正“反美”的中国人有多少？     >-009fcc?logoWidth=1" title="颜丹：真正“反美”的中国人有多少？  " alt="颜丹：真正“反美”的中国人有多少？  "></a></p>
+<p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/27/n12285688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连冷库传染链延至四平长春         >-009fcc?logoWidth=1" title="大连冷库传染链延至四平长春  " alt="大连冷库传染链延至四平长春  "></a></p>
+<p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/22/n12274382.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭秘中共抗疫中的大数据监控         >-009fcc?logoWidth=1" title="揭秘中共抗疫中的大数据监控  " alt="揭秘中共抗疫中的大数据监控  "></a></p>
 <p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/25/n12283734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共女军医掩盖身份在美被捕         >-009fcc?logoWidth=1" title="中共女军医掩盖身份在美被捕  " alt="中共女军医掩盖身份在美被捕  "></a></p>
 <p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/26/n12285212.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强再提过紧日子 中央非急需开支减50  >-009fcc?logoWidth=1" title="李克强再提过紧日子 中央非急需开支减50  " alt="李克强再提过紧日子 中央非急需开支减50  "></a></p>
-<p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/27/n12285648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参议员克鲁兹：可能会关闭更多中领馆    >-009fcc?logoWidth=1" title="美参议员克鲁兹：可能会关闭更多中领馆  " alt="美参议员克鲁兹：可能会关闭更多中领馆  "></a></p>
+<p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/26/n12285082.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/颜丹：真正“反美”的中国人有多少？     >-009fcc?logoWidth=1" title="颜丹：真正“反美”的中国人有多少？  " alt="颜丹：真正“反美”的中国人有多少？  "></a></p>
 <p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/24/n12280529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战胜中共暴政 蓬佩奥重磅演讲全文字幕版   >-009fcc?logoWidth=1" title="战胜中共暴政 蓬佩奥重磅演讲全文字幕版  " alt="战胜中共暴政 蓬佩奥重磅演讲全文字幕版  "></a></p>
 <p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/26/n12284930.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平被指是中共灭亡的“总加速师”     >-009fcc?logoWidth=1" title="习近平被指是中共灭亡的“总加速师”  " alt="习近平被指是中共灭亡的“总加速师”  "></a></p>
 <p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/27/n12285639.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：中美冷战被诡道掩盖          >-009fcc?logoWidth=1" title="专家：中美冷战被诡道掩盖  " alt="专家：中美冷战被诡道掩盖  "></a></p>
-<p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/22/n12274382.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭秘中共抗疫中的大数据监控         >-009fcc?logoWidth=1" title="揭秘中共抗疫中的大数据监控  " alt="揭秘中共抗疫中的大数据监控  "></a></p>
 <p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/26/n12285294.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/关系紧张 美军机逼近中国沿海不足八十公里  >-009fcc?logoWidth=1" title="关系紧张 美军机逼近中国沿海不足八十公里  " alt="关系紧张 美军机逼近中国沿海不足八十公里  "></a></p>
+<p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/26/n12285444.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾躲中领馆 女军官唐娟出庭         >-009fcc?logoWidth=1" title="曾躲中领馆 女军官唐娟出庭  " alt="曾躲中领馆 女军官唐娟出庭  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/26/a102902827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒曝中共军队失控 习近平大秘“指挥”上将 >-009fcc?logoWidth=1" title="港媒曝中共军队失控 习近平大秘“指挥”上将  " alt="港媒曝中共军队失控 习近平大秘“指挥”上将  "></a></p>
 <p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/26/n12285294.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/关系紧张 美军机逼近中国沿海不足80公里  >-009fcc?logoWidth=1" title="关系紧张 美军机逼近中国沿海不足80公里  " alt="关系紧张 美军机逼近中国沿海不足80公里  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/lwzrrt304/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lwzrrt304/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lwzrrt304/www/blob/master/README.md?z#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/lwzrrt304/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/lwzrrt304/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lwzrrt304/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lwzrrt304/www/blob/master/README.md?s#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/lwzrrt304/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ubbbb">git.io/ubbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/k7777">git.io/k7777</a></div>
 
