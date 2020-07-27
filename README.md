@@ -10,20 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/pgnstk3616/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/pgnstk3616/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mssss">git.io/mssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/x99">x.co/x99</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qrrrr">git.io/qrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aia">x.co/aia</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/pgnstk3616/ntdtv/blob/master/gb/2020/07/26/a102903040.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平访四平 学者:错误理解历史将把中国带入>-009fcc?logoWidth=1" title="习近平访四平 学者:错误理解历史将把中国带入危险  " alt="习近平访四平 学者:错误理解历史将把中国带入危险  "></a></p>
 <p><a href="https://github.com/pgnstk3616/ntdtv/blob/master/gb/2020/07/26/a102903024.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军机空前逼近上海 学者:无人能排除战争  >-009fcc?logoWidth=1" title="美军机空前逼近上海 学者:无人能排除战争  " alt="美军机空前逼近上海 学者:无人能排除战争  "></a></p>
+<p><a href="https://github.com/pgnstk3616/ntdtv/blob/master/gb/2020/07/26/a102903016.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平第三任期无望？观察家:蓬佩奥揭开围堵中>-009fcc?logoWidth=1" title="习近平第三任期无望？观察家:蓬佩奥揭开围堵中共序幕  " alt="习近平第三任期无望？观察家:蓬佩奥揭开围堵中共序幕  "></a></p>
+<p><a href="https://github.com/pgnstk3616/ntdtv/blob/master/gb/2020/07/26/a102902827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒曝中共军队失控 习大秘“指挥”上将   >-009fcc?logoWidth=1" title="港媒曝中共军队失控 习大秘“指挥”上将  " alt="港媒曝中共军队失控 习大秘“指挥”上将  "></a></p>
 <p><a href="https://github.com/pgnstk3616/ntdtv/blob/master/gb/2020/07/26/a102902948.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话:中共关闭成都美领馆报复；蓬佩奥>-009fcc?logoWidth=1" title="外交部大实话:中共关闭成都美领馆报复；蓬佩奥演讲吹响灭共集结号  " alt="外交部大实话:中共关闭成都美领馆报复；蓬佩奥演讲吹响灭共集结号  "></a></p>
 <p><a href="https://github.com/pgnstk3616/ntdtv/blob/master/gb/2020/07/26/a102902931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒曝中共军队失控/传有外交官携中共密件叛逃>-009fcc?logoWidth=1" title="港媒曝中共军队失控/传有外交官携中共密件叛逃  " alt="港媒曝中共军队失控/传有外交官携中共密件叛逃  "></a></p>
-<p><a href="https://github.com/pgnstk3616/ntdtv/blob/master/gb/2020/07/26/a102902912.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中领馆被指间谍中心 驱逐刚开始       >-009fcc?logoWidth=1" title="中领馆被指间谍中心 驱逐刚开始  " alt="中领馆被指间谍中心 驱逐刚开始  "></a></p>
-<p><a href="https://github.com/pgnstk3616/ntdtv/blob/master/gb/2020/07/26/a102902867.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都美领馆放鞭炮者 被揭是中共便衣     >-009fcc?logoWidth=1" title="成都美领馆放鞭炮者 被揭是中共便衣  " alt="成都美领馆放鞭炮者 被揭是中共便衣  "></a></p>
+<p><a href="https://github.com/pgnstk3616/ntdtv/blob/master/gb/2020/07/26/a102903109.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大批成都民众美领馆拍照留念 老人哽咽：中美应>-009fcc?logoWidth=1" title="大批成都民众美领馆拍照留念 老人哽咽：中美应该是朋友（视频）  " alt="大批成都民众美领馆拍照留念 老人哽咽：中美应该是朋友（视频）  "></a></p>
 <p><a href="https://github.com/pgnstk3616/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美高官改称习总书记 不再称国家主席引热议  >-009fcc?logoWidth=1" title="美高官改称习总书记 不再称国家主席引热议  " alt="美高官改称习总书记 不再称国家主席引热议  "></a></p>
 <p><a href="https://github.com/pgnstk3616/ntdtv/blob/master/gb/2020/07/26/a102903171.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多座左翼管辖城市发生暴乱 川普批媒体拒报真相>-009fcc?logoWidth=1" title="多座左翼管辖城市发生暴乱 川普批媒体拒报真相  " alt="多座左翼管辖城市发生暴乱 川普批媒体拒报真相  "></a></p>
 <p><a href="https://github.com/pgnstk3616/ntdtv/blob/master/gb/2020/07/26/a102903153.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析: 蓬佩奥讲话解决美中关系四大问题   >-009fcc?logoWidth=1" title="分析: 蓬佩奥讲话解决美中关系四大问题  " alt="分析: 蓬佩奥讲话解决美中关系四大问题  "></a></p>
 <p><a href="https://github.com/pgnstk3616/ntdtv/blob/master/gb/2020/07/26/a102903050.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美多州民众收到中国邮寄种子 当局警告勿栽植 >-009fcc?logoWidth=1" title="美多州民众收到中国邮寄种子 当局警告勿栽植  " alt="美多州民众收到中国邮寄种子 当局警告勿栽植  "></a></p>
-<p><a href="https://github.com/pgnstk3616/ntdtv/blob/master/gb/2020/07/26/a102903090.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉信息审查和假新闻 前印度雇员控告马云及阿里>-009fcc?logoWidth=1" title="涉信息审查和假新闻 前印度雇员控告马云及阿里  " alt="涉信息审查和假新闻 前印度雇员控告马云及阿里  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/pgnstk3616/djy/blob/master/gb/20/7/26/n12285211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯顿中领馆窃密招人才 十年涉五十案    >-009fcc?logoWidth=1" title="休斯顿中领馆窃密招人才 十年涉五十案  " alt="休斯顿中领馆窃密招人才 十年涉五十案  "></a></p>
 <p><a href="https://github.com/pgnstk3616/djy/blob/master/gb/20/7/26/n12285444.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾躲中领馆 女军官唐娟出庭         >-009fcc?logoWidth=1" title="曾躲中领馆 女军官唐娟出庭  " alt="曾躲中领馆 女军官唐娟出庭  "></a></p>
@@ -40,6 +41,7 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/pgnstk3616/djy/blob/master/gb/20/7/26/n12284398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阿里巴巴创始人马云被印度法院传唤      >-009fcc?logoWidth=1" title="阿里巴巴创始人马云被印度法院传唤  " alt="阿里巴巴创始人马云被印度法院传唤  "></a></p>
 <p><a href="https://github.com/pgnstk3616/djy/blob/master/gb/20/7/26/n12284074.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/秦淮河堤坝内部已被挖空 或随时崩溃     >-009fcc?logoWidth=1" title="秦淮河堤坝内部已被挖空 或随时崩溃  " alt="秦淮河堤坝内部已被挖空 或随时崩溃  "></a></p>
+<p><a href="https://github.com/pgnstk3616/ntdtv/blob/master/gb/2020/07/26/a102902867.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都美领馆放鞭炮者 被揭是中共便衣     >-009fcc?logoWidth=1" title="成都美领馆放鞭炮者 被揭是中共便衣  " alt="成都美领馆放鞭炮者 被揭是中共便衣  "></a></p>
 <p><a href="https://github.com/pgnstk3616/ntdtv/blob/master/gb/2020/07/26/a102903067.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东北西北疫情两头烧 卫健委官员急赴大连   >-009fcc?logoWidth=1" title="东北西北疫情两头烧 卫健委官员急赴大连  " alt="东北西北疫情两头烧 卫健委官员急赴大连  "></a></p>
 <p><a href="https://github.com/pgnstk3616/djy/blob/master/gb/20/7/26/n12283981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共女军官唐娟已被关进监狱         >-009fcc?logoWidth=1" title="中共女军官唐娟已被关进监狱  " alt="中共女军官唐娟已被关进监狱  "></a></p>
 <p><a href="https://github.com/pgnstk3616/djy/blob/master/gb/20/7/26/n12284513.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江水未退第三号洪水已成 上游滑坡致堰塞湖 >-009fcc?logoWidth=1" title="长江水未退第三号洪水已成 上游滑坡致堰塞湖  " alt="长江水未退第三号洪水已成 上游滑坡致堰塞湖  "></a></p>
@@ -489,8 +491,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/pgnstk3616/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pgnstk3616/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pgnstk3616/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pgnstk3616/www/blob/master/README.md?d#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/pgnstk3616/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/pgnstk3616/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pgnstk3616/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pgnstk3616/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pgnstk3616/www/blob/master/README.md?m#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/pgnstk3616/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mssss">git.io/mssss</a></div>
+<div align="center">短网址: <a href="https://git.io/qrrrr">git.io/qrrrr</a></div>
 
