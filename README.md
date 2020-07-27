@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/lwzrrt304/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/lwzrrt304/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/deeee">git.io/deeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppf">x.co/ppf</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/m9999">git.io/m9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2228">x.co/2228</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903437.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南海火药味浓 中共实弹军演 美机逼近上海  >-009fcc?logoWidth=1" title="南海火药味浓 中共实弹军演 美机逼近上海  " alt="南海火药味浓 中共实弹军演 美机逼近上海  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都美领事夫人爆红 披露不为人所知的“贵妇生>-009fcc?logoWidth=1" title="成都美领事夫人爆红 披露不为人所知的“贵妇生活”  " alt="成都美领事夫人爆红 披露不为人所知的“贵妇生活”  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903366.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥又出招：制裁华为等“党企”员工    >-009fcc?logoWidth=1" title="蓬佩奥又出招：制裁华为等“党企”员工  " alt="蓬佩奥又出招：制裁华为等“党企”员工  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903280.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夜话中南海：习近平要李克强“摆正位置”   >-009fcc?logoWidth=1" title="夜话中南海：习近平要李克强“摆正位置”  " alt="夜话中南海：习近平要李克强“摆正位置”  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903265.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/藏匿旧金山中领馆女谍 被曝是江苏国安厅长情妇>-009fcc?logoWidth=1" title="藏匿旧金山中领馆女谍 被曝是江苏国安厅长情妇  " alt="藏匿旧金山中领馆女谍 被曝是江苏国安厅长情妇  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903247.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平被指“总加速师” 快速推进中共败亡  >-009fcc?logoWidth=1" title="习近平被指“总加速师” 快速推进中共败亡  " alt="习近平被指“总加速师” 快速推进中共败亡  "></a></p>
-<p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/下游快跑！官方下令三峡大坝、淮河、太湖超级泄>-009fcc?logoWidth=1" title="下游快跑！官方下令三峡大坝、淮河、太湖超级泄洪  " alt="下游快跑！官方下令三峡大坝、淮河、太湖超级泄洪  "></a></p>
+<p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903498.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/越南岘港出现本土病例 急撤8万游客     >-009fcc?logoWidth=1" title="越南岘港出现本土病例 急撤8万游客  " alt="越南岘港出现本土病例 急撤8万游客  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/信守28年前承诺 他中头奖2200万美元分好>-009fcc?logoWidth=1" title="信守28年前承诺 他中头奖2200万美元分好友一半  " alt="信守28年前承诺 他中头奖2200万美元分好友一半  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903411.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭秘中共抗疫中的大数据监控         >-009fcc?logoWidth=1" title="揭秘中共抗疫中的大数据监控  " alt="揭秘中共抗疫中的大数据监控  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903416.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江下游防洪坝已严重渗水 肚子里却开餐厅  >-009fcc?logoWidth=1" title="长江下游防洪坝已严重渗水 肚子里却开餐厅  " alt="长江下游防洪坝已严重渗水 肚子里却开餐厅  "></a></p>
 <p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903402.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/投资人避险 金价惊涨每盎司1930美元   >-009fcc?logoWidth=1" title="投资人避险 金价惊涨每盎司1930美元  " alt="投资人避险 金价惊涨每盎司1930美元  "></a></p>
-<p><a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/2020/07/27/a102903383.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/马云被传唤后失踪 阿里公关：找1天也找不到人>-009fcc?logoWidth=1" title="马云被传唤后失踪 阿里公关：找1天也找不到人  " alt="马云被传唤后失踪 阿里公关：找1天也找不到人  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/26/n12285211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/休斯顿中领馆窃密招人才 十年涉五十案    >-009fcc?logoWidth=1" title="休斯顿中领馆窃密招人才 十年涉五十案  " alt="休斯顿中领馆窃密招人才 十年涉五十案  "></a></p>
 <p><a href="https://github.com/lwzrrt304/djy/blob/master/gb/20/7/26/n12285067.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓农：中美冷战进入升级快车道？      >-009fcc?logoWidth=1" title="程晓农：中美冷战进入升级快车道？  " alt="程晓农：中美冷战进入升级快车道？  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/lwzrrt304/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lwzrrt304/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lwzrrt304/www/blob/master/README.md?m#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/lwzrrt304/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/lwzrrt304/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lwzrrt304/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lwzrrt304/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lwzrrt304/www/blob/master/README.md?v#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/lwzrrt304/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/deeee">git.io/deeee</a></div>
+<div align="center">短网址: <a href="https://git.io/m9999">git.io/m9999</a></div>
 
