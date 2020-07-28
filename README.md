@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gwdimn300/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gwdimn300/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/djjjj">git.io/djjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa4">x.co/aa4</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ghhhh">git.io/ghhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3222">x.co/3222</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -35,11 +35,14 @@
 <p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12288187.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/连花清瘟无效 中共略过不提背后       >-009fcc?logoWidth=1" title="连花清瘟无效 中共略过不提背后  " alt="连花清瘟无效 中共略过不提背后  "></a></p>
 <p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12289882.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邢天行：这个最黑暗日子里最耀眼的神奇    >-009fcc?logoWidth=1" title="邢天行：这个最黑暗日子里最耀眼的神奇  " alt="邢天行：这个最黑暗日子里最耀眼的神奇  "></a></p>
 <p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12289150.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乌鲁木齐疫情急 传正建方舱         >-009fcc?logoWidth=1" title="乌鲁木齐疫情急 传正建方舱  " alt="乌鲁木齐疫情急 传正建方舱  "></a></p>
+<p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12288237.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中博弈 美将公布UFO真相？       >-009fcc?logoWidth=1" title="美中博弈 美将公布UFO真相？  " alt="美中博弈 美将公布UFO真相？  "></a></p>
+<p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12289440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福州进入战时状态 大连输入患者接触超千人  >-009fcc?logoWidth=1" title="福州进入战时状态 大连输入患者接触超千人  " alt="福州进入战时状态 大连输入患者接触超千人  "></a></p>
+<p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12289667.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/忧美国制裁 外资银行关闭香港官员账户    >-009fcc?logoWidth=1" title="忧美国制裁 外资银行关闭香港官员账户  " alt="忧美国制裁 外资银行关闭香港官员账户  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/29/n12290376.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：“天灭中共”车队环绕纽约中领馆慢驶  >-009fcc?logoWidth=1" title="组图：“天灭中共”车队环绕纽约中领馆慢驶  " alt="组图：“天灭中共”车队环绕纽约中领馆慢驶  "></a></p>
+<p><a href="https://github.com/gwdimn300/ntdtv/blob/master/gb/2020/07/28/a102904170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大肆营造战争氛围 北京居民：一打就败  >-009fcc?logoWidth=1" title="中共大肆营造战争氛围 北京居民：一打就败  " alt="中共大肆营造战争氛围 北京居民：一打就败  "></a></p>
 <p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12290288.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连核检再爆冲突 现全面暂停        >-009fcc?logoWidth=1" title="大连核检再爆冲突 现全面暂停  " alt="大连核检再爆冲突 现全面暂停  "></a></p>
 <p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12290166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/粮食危机？中共下令各省“粮产只增不减”   >-009fcc?logoWidth=1" title="粮食危机？中共下令各省“粮产只增不减”  " alt="粮食危机？中共下令各省“粮产只增不减”  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/gwdimn300/ntdtv/blob/master/gb/2020/07/28/a102904170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大肆营造战争氛围 北京居民：一打就败  >-009fcc?logoWidth=1" title="中共大肆营造战争氛围 北京居民：一打就败  " alt="中共大肆营造战争氛围 北京居民：一打就败  "></a></p>
 <p><a href="https://github.com/gwdimn300/ntdtv/blob/master/gb/2020/07/28/a102904400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京再度沦陷 中国疫情此起彼伏       >-009fcc?logoWidth=1" title="北京再度沦陷 中国疫情此起彼伏  " alt="北京再度沦陷 中国疫情此起彼伏  "></a></p>
 <p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12288577.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆确诊病例暴增 引发民众恐慌       >-009fcc?logoWidth=1" title="新疆确诊病例暴增 引发民众恐慌  " alt="新疆确诊病例暴增 引发民众恐慌  "></a></p>
 <p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12288656.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军机逼近上海？京沪临战宣导        >-009fcc?logoWidth=1" title="美军机逼近上海？京沪临战宣导  " alt="美军机逼近上海？京沪临战宣导  "></a></p>
@@ -486,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gwdimn300/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gwdimn300/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gwdimn300/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gwdimn300/www/blob/master/README.md?s#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/gwdimn300/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gwdimn300/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gwdimn300/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gwdimn300/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gwdimn300/www/blob/master/README.md?j#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/gwdimn300/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/djjjj">git.io/djjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/ghhhh">git.io/ghhhh</a></div>
 
