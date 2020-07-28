@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gwdimn300/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gwdimn300/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d8888">git.io/d8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/maa">x.co/maa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/88888">git.io/88888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j99">x.co/j99</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/gwdimn300/ntdtv/blob/master/gb/2020/07/28/a102904389.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/间谍猖獗 美或关更多中领馆         >-009fcc?logoWidth=1" title="间谍猖獗 美或关更多中领馆  " alt="间谍猖獗 美或关更多中领馆  "></a></p>
 <p><a href="https://github.com/gwdimn300/ntdtv/blob/master/gb/2020/07/28/a102904326.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国制裁风暴来袭 香港官员账户被外资银行关闭>-009fcc?logoWidth=1" title="美国制裁风暴来袭 香港官员账户被外资银行关闭  " alt="美国制裁风暴来袭 香港官员账户被外资银行关闭  "></a></p>
 <p><a href="https://github.com/gwdimn300/ntdtv/blob/master/gb/2020/07/28/a102904292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平保党没人听？郑也夫：特权阶层用脚投了票>-009fcc?logoWidth=1" title="习近平保党没人听？郑也夫：特权阶层用脚投了票  " alt="习近平保党没人听？郑也夫：特权阶层用脚投了票  "></a></p>
+<p><a href="https://github.com/gwdimn300/ntdtv/blob/master/gb/2020/07/28/a102904844.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/选不赢就推迟？传港府拟延后立法会选举一年  >-009fcc?logoWidth=1" title="选不赢就推迟？传港府拟延后立法会选举一年  " alt="选不赢就推迟？传港府拟延后立法会选举一年  "></a></p>
+<p><a href="https://github.com/gwdimn300/ntdtv/blob/master/gb/2020/07/28/a102904853.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国民众收到来自中国不明种子 各级政府发警告>-009fcc?logoWidth=1" title="美国民众收到来自中国不明种子 各级政府发警告  " alt="美国民众收到来自中国不明种子 各级政府发警告  "></a></p>
 <p><a href="https://github.com/gwdimn300/ntdtv/blob/master/gb/2020/07/28/a102904865.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被中共抛弃 唐娟出庭 要美方指定律师    >-009fcc?logoWidth=1" title="被中共抛弃 唐娟出庭 要美方指定律师  " alt="被中共抛弃 唐娟出庭 要美方指定律师  "></a></p>
 <p><a href="https://github.com/gwdimn300/ntdtv/blob/master/gb/2020/07/28/a102904845.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情紧急 新疆多地封城 传乌鲁木齐正建方舱 >-009fcc?logoWidth=1" title="疫情紧急 新疆多地封城 传乌鲁木齐正建方舱  " alt="疫情紧急 新疆多地封城 传乌鲁木齐正建方舱  "></a></p>
 <p><a href="https://github.com/gwdimn300/ntdtv/blob/master/gb/2020/07/28/a102904725.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦：中共病毒非自然界产生 海鲜市场是替罪>-009fcc?logoWidth=1" title="闫丽梦：中共病毒非自然界产生 海鲜市场是替罪羊  " alt="闫丽梦：中共病毒非自然界产生 海鲜市场是替罪羊  "></a></p>
-<p><a href="https://github.com/gwdimn300/ntdtv/blob/master/gb/2020/07/28/a102904687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又一家：新西兰宣布暂停与香港引渡协议    >-009fcc?logoWidth=1" title="又一家：新西兰宣布暂停与香港引渡协议  " alt="又一家：新西兰宣布暂停与香港引渡协议  "></a></p>
-<p><a href="https://github.com/gwdimn300/ntdtv/blob/master/gb/2020/07/28/a102904681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热帖：让数据说话 中国经济内循环纯属做梦  >-009fcc?logoWidth=1" title="热帖：让数据说话 中国经济内循环纯属做梦  " alt="热帖：让数据说话 中国经济内循环纯属做梦  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/27/n12287868.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共如何招间谍 窃F--35机密       >-009fcc?logoWidth=1" title="中共如何招间谍 窃F-35机密  " alt="中共如何招间谍 窃F-35机密  "></a></p>
 <p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12290365.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁前奏？美银行关闭香港高官个人账户    >-009fcc?logoWidth=1" title="制裁前奏？美银行关闭香港高官个人账户  " alt="制裁前奏？美银行关闭香港高官个人账户  "></a></p>
@@ -35,10 +35,24 @@
 <p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12290486.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新一波疫情蔓延6省市 北京最大小区现病例  >-009fcc?logoWidth=1" title="新一波疫情蔓延6省市 北京最大小区现病例  " alt="新一波疫情蔓延6省市 北京最大小区现病例  "></a></p>
 <p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12289882.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邢天行：这个最黑暗日子里最耀眼的神奇    >-009fcc?logoWidth=1" title="邢天行：这个最黑暗日子里最耀眼的神奇  " alt="邢天行：这个最黑暗日子里最耀眼的神奇  "></a></p>
 <p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12290555.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/防出逃？武汉加强管控公职人员因私出国证件  >-009fcc?logoWidth=1" title="防出逃？武汉加强管控公职人员因私出国证件  " alt="防出逃？武汉加强管控公职人员因私出国证件  "></a></p>
+<p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12290493.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连封小区 居民面临断菜断粮        >-009fcc?logoWidth=1" title="大连封小区 居民面临断菜断粮  " alt="大连封小区 居民面临断菜断粮  "></a></p>
+<p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12290403.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙古厅级“房哥” 坐拥36套房竟称无房产 >-009fcc?logoWidth=1" title="内蒙古厅级“房哥” 坐拥36套房竟称无房产  " alt="内蒙古厅级“房哥” 坐拥36套房竟称无房产  "></a></p>
 <p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12288187.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/连花清瘟无效 中共略过不提背后       >-009fcc?logoWidth=1" title="连花清瘟无效 中共略过不提背后  " alt="连花清瘟无效 中共略过不提背后  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12289150.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乌鲁木齐疫情急 传正建方舱         >-009fcc?logoWidth=1" title="乌鲁木齐疫情急 传正建方舱  " alt="乌鲁木齐疫情急 传正建方舱  "></a></p>
 <p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12288237.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中博弈 美将公布UFO真相？       >-009fcc?logoWidth=1" title="美中博弈 美将公布UFO真相？  " alt="美中博弈 美将公布UFO真相？  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/gwdimn300/ntdtv/blob/master/gb/2020/07/28/a102904170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大肆营造战争氛围 北京居民：一打就败  >-009fcc?logoWidth=1" title="中共大肆营造战争氛围 北京居民：一打就败  " alt="中共大肆营造战争氛围 北京居民：一打就败  "></a></p>
+<p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12289440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福州进入战时状态 大连输入患者接触超千人  >-009fcc?logoWidth=1" title="福州进入战时状态 大连输入患者接触超千人  " alt="福州进入战时状态 大连输入患者接触超千人  "></a></p>
+<p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12289667.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/忧美国制裁 外资银行关闭香港官员账户    >-009fcc?logoWidth=1" title="忧美国制裁 外资银行关闭香港官员账户  " alt="忧美国制裁 外资银行关闭香港官员账户  "></a></p>
+<p><a href="https://github.com/gwdimn300/ntdtv/blob/master/gb/2020/07/28/a102904400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京再度沦陷 中国疫情此起彼伏       >-009fcc?logoWidth=1" title="北京再度沦陷 中国疫情此起彼伏  " alt="北京再度沦陷 中国疫情此起彼伏  "></a></p>
+<p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12290288.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连核检再爆冲突 现全面暂停        >-009fcc?logoWidth=1" title="大连核检再爆冲突 现全面暂停  " alt="大连核检再爆冲突 现全面暂停  "></a></p>
+<p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12290166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/粮食危机？中共下令各省“粮产只增不减”   >-009fcc?logoWidth=1" title="粮食危机？中共下令各省“粮产只增不减”  " alt="粮食危机？中共下令各省“粮产只增不减”  "></a></p>
+<p><a href="https://github.com/gwdimn300/ntdtv/blob/master/gb/2020/07/28/a102904117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：兵临城下！美机抵近上海156公里 中共>-009fcc?logoWidth=1" title="文昭：兵临城下！美机抵近上海156公里 中共有人真想打  " alt="文昭：兵临城下！美机抵近上海156公里 中共有人真想打  "></a></p>
+<p><a href="https://github.com/gwdimn300/ntdtv/blob/master/gb/2020/07/28/a102904353.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾女星遭大陆水军网络霸凌皆因她是美国驻成都>-009fcc?logoWidth=1" title="台湾女星遭大陆水军网络霸凌皆因她是美国驻成都领事夫人!  " alt="台湾女星遭大陆水军网络霸凌皆因她是美国驻成都领事夫人!  "></a></p>
+<p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/27/n12287863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战狼们乌鸦嘴 美重击下习无选择       >-009fcc?logoWidth=1" title="战狼们乌鸦嘴 美重击下习无选择  " alt="战狼们乌鸦嘴 美重击下习无选择  "></a></p>
+<p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12288656.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军机逼近上海？京沪临战宣导        >-009fcc?logoWidth=1" title="美军机逼近上海？京沪临战宣导  " alt="美军机逼近上海？京沪临战宣导  "></a></p>
+<p><a href="https://github.com/gwdimn300/ntdtv/blob/master/gb/2020/07/27/a102904071.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：成都市民夹道送别美领馆 王沪宁密令播>-009fcc?logoWidth=1" title="陈破空：成都市民夹道送别美领馆 王沪宁密令播出这部老电影  " alt="陈破空：成都市民夹道送别美领馆 王沪宁密令播出这部老电影  "></a></p>
+<p><a href="https://github.com/gwdimn300/ntdtv/blob/master/gb/2020/07/27/a102903886.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都美领馆降旗关闭 男子举“习近平万岁”被抓>-009fcc?logoWidth=1" title="成都美领馆降旗关闭 男子举“习近平万岁”被抓  " alt="成都美领馆降旗关闭 男子举“习近平万岁”被抓  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -477,7 +491,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/gwdimn300/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gwdimn300/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gwdimn300/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gwdimn300/www/blob/master/README.md?q#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/gwdimn300/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gwdimn300/www/blob/master/README.md?u#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/gwdimn300/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/d8888">git.io/d8888</a></div>
+<div align="center">短网址: <a href="https://git.io/88888">git.io/88888</a></div>
 
