@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gwdimn300/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gwdimn300/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dcccc">git.io/dcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/xaa">x.co/xaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ddddd">git.io/ddddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2225">x.co/2225</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,22 +27,24 @@
 <p><a href="https://github.com/gwdimn300/ntdtv/blob/master/gb/2020/07/28/a102904642.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港疫情失控  北京“借机”协建方舱医院  >-009fcc?logoWidth=1" title="香港疫情失控  北京“借机”协建方舱医院  " alt="香港疫情失控  北京“借机”协建方舱医院  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/27/n12287868.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共如何招间谍 窃F--35机密       >-009fcc?logoWidth=1" title="中共如何招间谍 窃F-35机密  " alt="中共如何招间谍 窃F-35机密  "></a></p>
+<p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12290365.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁前奏？美银行关闭香港高官个人账户    >-009fcc?logoWidth=1" title="制裁前奏？美银行关闭香港高官个人账户  " alt="制裁前奏？美银行关闭香港高官个人账户  "></a></p>
 <p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12288979.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：美驻成都领事馆从容告别 打脸中共   >-009fcc?logoWidth=1" title="田云：美驻成都领事馆从容告别 打脸中共  " alt="田云：美驻成都领事馆从容告别 打脸中共  "></a></p>
 <p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12288827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：全球灭共时代 习近平往哪里去？   >-009fcc?logoWidth=1" title="王友群：全球灭共时代 习近平往哪里去？  " alt="王友群：全球灭共时代 习近平往哪里去？  "></a></p>
-<p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12289150.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乌鲁木齐疫情急 传正建方舱         >-009fcc?logoWidth=1" title="乌鲁木齐疫情急 传正建方舱  " alt="乌鲁木齐疫情急 传正建方舱  "></a></p>
-<p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12288489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大使深度介入尼泊尔领导层之争      >-009fcc?logoWidth=1" title="中共大使深度介入尼泊尔领导层之争  " alt="中共大使深度介入尼泊尔领导层之争  "></a></p>
 <p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12288187.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/连花清瘟无效 中共略过不提背后       >-009fcc?logoWidth=1" title="连花清瘟无效 中共略过不提背后  " alt="连花清瘟无效 中共略过不提背后  "></a></p>
-<p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/27/n12287898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连核酸检测混乱 多起冲突         >-009fcc?logoWidth=1" title="大连核酸检测混乱 多起冲突  " alt="大连核酸检测混乱 多起冲突  "></a></p>
+<p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12288333.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁自上而下 从中共高官始         >-009fcc?logoWidth=1" title="制裁自上而下 从中共高官始  " alt="制裁自上而下 从中共高官始  "></a></p>
+<p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12289150.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乌鲁木齐疫情急 传正建方舱         >-009fcc?logoWidth=1" title="乌鲁木齐疫情急 传正建方舱  " alt="乌鲁木齐疫情急 传正建方舱  "></a></p>
 <p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/24/n12280529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战胜中共暴政 蓬佩奥重磅演讲全文字幕版   >-009fcc?logoWidth=1" title="战胜中共暴政 蓬佩奥重磅演讲全文字幕版  " alt="战胜中共暴政 蓬佩奥重磅演讲全文字幕版  "></a></p>
+<p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/27/n12287898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连核酸检测混乱 多起冲突         >-009fcc?logoWidth=1" title="大连核酸检测混乱 多起冲突  " alt="大连核酸检测混乱 多起冲突  "></a></p>
+<p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12288577.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆确诊病例暴增 引发民众恐慌       >-009fcc?logoWidth=1" title="新疆确诊病例暴增 引发民众恐慌  " alt="新疆确诊病例暴增 引发民众恐慌  "></a></p>
+<p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12288656.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军机绕上海 共军演习“躲很远”      >-009fcc?logoWidth=1" title="美军机绕上海 共军演习“躲很远”  " alt="美军机绕上海 共军演习“躲很远”  "></a></p>
+<p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12289395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆知名财经博主：经济内循环？别乱做梦了  >-009fcc?logoWidth=1" title="大陆知名财经博主：经济内循环？别乱做梦了  " alt="大陆知名财经博主：经济内循环？别乱做梦了  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/27/n12287633.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/秦淮河大堤被挖空建餐厅 涉事机构连夜拆除  >-009fcc?logoWidth=1" title="秦淮河大堤被挖空建餐厅 涉事机构连夜拆除  " alt="秦淮河大堤被挖空建餐厅 涉事机构连夜拆除  "></a></p>
 <p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12288450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/女军官唐娟被发现有逃跑风险         >-009fcc?logoWidth=1" title="女军官唐娟被发现有逃跑风险  " alt="女军官唐娟被发现有逃跑风险  "></a></p>
-<p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/23/n12279331.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共鼓励“网上信访”的背后         >-009fcc?logoWidth=1" title="中共鼓励“网上信访”的背后  " alt="中共鼓励“网上信访”的背后  "></a></p>
-<p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12288577.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆确诊病例暴增 引发民众恐慌       >-009fcc?logoWidth=1" title="新疆确诊病例暴增 引发民众恐慌  " alt="新疆确诊病例暴增 引发民众恐慌  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gwdimn300/ntdtv/blob/master/gb/2020/07/28/a102904170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大肆营造战争氛围 北京居民：一打就败  >-009fcc?logoWidth=1" title="中共大肆营造战争氛围 北京居民：一打就败  " alt="中共大肆营造战争氛围 北京居民：一打就败  "></a></p>
+<p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/23/n12279331.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共鼓励“网上信访”的背后         >-009fcc?logoWidth=1" title="中共鼓励“网上信访”的背后  " alt="中共鼓励“网上信访”的背后  "></a></p>
 <p><a href="https://github.com/gwdimn300/ntdtv/blob/master/gb/2020/07/28/a102904400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京再度沦陷 中国疫情此起彼伏       >-009fcc?logoWidth=1" title="北京再度沦陷 中国疫情此起彼伏  " alt="北京再度沦陷 中国疫情此起彼伏  "></a></p>
 <p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12288656.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军机逼近上海？京沪临战宣导        >-009fcc?logoWidth=1" title="美军机逼近上海？京沪临战宣导  " alt="美军机逼近上海？京沪临战宣导  "></a></p>
-<p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12289395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆知名财经博主：经济内循环？别乱做梦了  >-009fcc?logoWidth=1" title="大陆知名财经博主：经济内循环？别乱做梦了  " alt="大陆知名财经博主：经济内循环？别乱做梦了  "></a></p>
 <p><a href="https://github.com/gwdimn300/ntdtv/blob/master/gb/2020/07/28/a102904117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：兵临城下！美机抵近上海156公里 中共>-009fcc?logoWidth=1" title="文昭：兵临城下！美机抵近上海156公里 中共有人真想打  " alt="文昭：兵临城下！美机抵近上海156公里 中共有人真想打  "></a></p>
 <p><a href="https://github.com/gwdimn300/ntdtv/blob/master/gb/2020/07/28/a102904353.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾女星遭大陆水军网络霸凌皆因她是美国驻成都>-009fcc?logoWidth=1" title="台湾女星遭大陆水军网络霸凌皆因她是美国驻成都领事夫人!  " alt="台湾女星遭大陆水军网络霸凌皆因她是美国驻成都领事夫人!  "></a></p>
 <p><a href="https://github.com/gwdimn300/djy/blob/master/gb/20/7/28/n12288879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：美国正在切断与中共政权的关系     >-009fcc?logoWidth=1" title="杨威：美国正在切断与中共政权的关系  " alt="杨威：美国正在切断与中共政权的关系  "></a></p>
@@ -486,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gwdimn300/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gwdimn300/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gwdimn300/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gwdimn300/www/blob/master/README.md?d#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/gwdimn300/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gwdimn300/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gwdimn300/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gwdimn300/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gwdimn300/www/blob/master/README.md?q#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/gwdimn300/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dcccc">git.io/dcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/ddddd">git.io/ddddd</a></div>
 
