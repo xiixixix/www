@@ -10,13 +10,13 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ydpjuk3949/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ydpjuk3949/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hqqqq">git.io/hqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3335">x.co/3335</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/66666666">git.io/66666666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/vdd">x.co/vdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/ydpjuk3949/ntdtv/blob/master/gb/2020/07/28/a102904389.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/间谍猖獗 美或关更多中领馆         >-009fcc?logoWidth=1" title="间谍猖獗 美或关更多中领馆  " alt="间谍猖獗 美或关更多中领馆  "></a></p>
 <p><a href="https://github.com/ydpjuk3949/ntdtv/blob/master/gb/2020/07/28/a102904292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平保党没人听？郑也夫：特权阶层用脚投了票>-009fcc?logoWidth=1" title="习近平保党没人听？郑也夫：特权阶层用脚投了票  " alt="习近平保党没人听？郑也夫：特权阶层用脚投了票  "></a></p>
-<p><a href="https://github.com/ydpjuk3949/ntdtv/blob/master/gb/2020/07/28/a102904242.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国宣布制裁中共党员 蓬佩奥发重磅声明   >-009fcc?logoWidth=1" title="美国宣布制裁中共党员 蓬佩奥发重磅声明  " alt="美国宣布制裁中共党员 蓬佩奥发重磅声明  "></a></p>
+<p><a href="https://github.com/ydpjuk3949/ntdtv/blob/master/gb/2020/07/28/a102904242.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国制裁中共党员 蓬佩奥发重磅声明     >-009fcc?logoWidth=1" title="美国制裁中共党员 蓬佩奥发重磅声明  " alt="美国制裁中共党员 蓬佩奥发重磅声明  "></a></p>
 <p><a href="https://github.com/ydpjuk3949/ntdtv/blob/master/gb/2020/07/28/a102904212.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共接班人摆上台 外宣放风胡春华接班李克强 >-009fcc?logoWidth=1" title="中共接班人摆上台 外宣放风胡春华接班李克强  " alt="中共接班人摆上台 外宣放风胡春华接班李克强  "></a></p>
 <p><a href="https://github.com/ydpjuk3949/ntdtv/blob/master/gb/2020/07/28/a102904204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网文：满手好牌，是怎么被那位一把手打烂的？ >-009fcc?logoWidth=1" title="网文：满手好牌，是怎么被那位一把手打烂的？  " alt="网文：满手好牌，是怎么被那位一把手打烂的？  "></a></p>
 <p><a href="https://github.com/ydpjuk3949/ntdtv/blob/master/gb/2020/07/28/a102904170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大肆营造战争氛围 北京居民：一打就败  >-009fcc?logoWidth=1" title="中共大肆营造战争氛围 北京居民：一打就败  " alt="中共大肆营造战争氛围 北京居民：一打就败  "></a></p>
@@ -41,11 +41,10 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ydpjuk3949/ntdtv/blob/master/gb/2020/07/28/a102904140.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军方间谍机场被捕 出逃前删除微信    >-009fcc?logoWidth=1" title="中共军方间谍机场被捕 出逃前删除微信  " alt="中共军方间谍机场被捕 出逃前删除微信  "></a></p>
 <p><a href="https://github.com/ydpjuk3949/ntdtv/blob/master/gb/2020/07/28/a102904226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港专家：中共官员隐瞒疫情 销毁病毒证据  >-009fcc?logoWidth=1" title="香港专家：中共官员隐瞒疫情 销毁病毒证据  " alt="香港专家：中共官员隐瞒疫情 销毁病毒证据  "></a></p>
-<p><a href="https://github.com/ydpjuk3949/djy/blob/master/gb/20/7/27/n12285598.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“黑人命也是命”运动之虚伪性        >-009fcc?logoWidth=1" title="“黑人命也是命”运动之虚伪性  " alt="“黑人命也是命”运动之虚伪性  "></a></p>
 <p><a href="https://github.com/ydpjuk3949/ntdtv/blob/master/gb/2020/07/27/a102903886.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都美领馆降旗关闭 男子举“习近平万岁”被抓>-009fcc?logoWidth=1" title="成都美领馆降旗关闭 男子举“习近平万岁”被抓  " alt="成都美领馆降旗关闭 男子举“习近平万岁”被抓  "></a></p>
 <p><a href="https://github.com/ydpjuk3949/ntdtv/blob/master/gb/2020/07/28/a102904252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军动员已够局部战争！武汉遭开闸      >-009fcc?logoWidth=1" title="美军动员已够局部战争！武汉遭开闸  " alt="美军动员已够局部战争！武汉遭开闸  "></a></p>
+<p><a href="https://github.com/ydpjuk3949/djy/blob/master/gb/20/7/27/n12285598.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“黑人命也是命”运动之虚伪性        >-009fcc?logoWidth=1" title="“黑人命也是命”运动之虚伪性  " alt="“黑人命也是命”运动之虚伪性  "></a></p>
 <p><a href="https://github.com/ydpjuk3949/djy/blob/master/gb/20/7/27/n12287863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战狼们乌鸦嘴 美重击下习无选择       >-009fcc?logoWidth=1" title="战狼们乌鸦嘴 美重击下习无选择  " alt="战狼们乌鸦嘴 美重击下习无选择  "></a></p>
-<p><a href="https://github.com/ydpjuk3949/djy/blob/master/gb/20/7/26/n12285082.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/颜丹：真正“反美”的中国人有多少？     >-009fcc?logoWidth=1" title="颜丹：真正“反美”的中国人有多少？  " alt="颜丹：真正“反美”的中国人有多少？  "></a></p>
 <p><a href="https://github.com/ydpjuk3949/ntdtv/blob/master/gb/2020/07/28/a102904315.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：中共最怕的来了 美国与中国人民站一起 >-009fcc?logoWidth=1" title="田云：中共最怕的来了 美国与中国人民站一起  " alt="田云：中共最怕的来了 美国与中国人民站一起  "></a></p>
 <p><a href="https://github.com/ydpjuk3949/ntdtv/blob/master/gb/2020/07/27/a102904071.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：成都市民夹道送别美领馆 王沪宁密令播>-009fcc?logoWidth=1" title="陈破空：成都市民夹道送别美领馆 王沪宁密令播出这部老电影  " alt="陈破空：成都市民夹道送别美领馆 王沪宁密令播出这部老电影  "></a></p>
 <p><a href="https://github.com/ydpjuk3949/djy/blob/master/gb/20/7/27/n12286654.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江第3号洪水过境重庆 磁器口遭洪水淹没  >-009fcc?logoWidth=1" title="长江第3号洪水过境重庆 磁器口遭洪水淹没  " alt="长江第3号洪水过境重庆 磁器口遭洪水淹没  "></a></p>
@@ -489,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ydpjuk3949/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ydpjuk3949/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ydpjuk3949/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ydpjuk3949/www/blob/master/README.md?f#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ydpjuk3949/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ydpjuk3949/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ydpjuk3949/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ydpjuk3949/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ydpjuk3949/www/blob/master/README.md?a#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ydpjuk3949/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hqqqq">git.io/hqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/66666666">git.io/66666666</a></div>
 
