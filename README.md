@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/okeegw326/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/okeegw326/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a7777">git.io/a7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/qdd">x.co/qdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a3333">git.io/a3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u55">x.co/u55</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/okeegw326/ntdtv/blob/master/gb/2020/07/28/a102904212.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共接班人摆上台 外宣放风胡春华接班李克强 >-009fcc?logoWidth=1" title="中共接班人摆上台 外宣放风胡春华接班李克强  " alt="中共接班人摆上台 外宣放风胡春华接班李克强  "></a></p>
 <p><a href="https://github.com/okeegw326/ntdtv/blob/master/gb/2020/07/28/a102904204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网文：满手好牌，是怎么被那位一把手打烂的？ >-009fcc?logoWidth=1" title="网文：满手好牌，是怎么被那位一把手打烂的？  " alt="网文：满手好牌，是怎么被那位一把手打烂的？  "></a></p>
 <p><a href="https://github.com/okeegw326/ntdtv/blob/master/gb/2020/07/28/a102904140.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军方间谍机场被捕 出逃前删除微信    >-009fcc?logoWidth=1" title="中共军方间谍机场被捕 出逃前删除微信  " alt="中共军方间谍机场被捕 出逃前删除微信  "></a></p>
 <p><a href="https://github.com/okeegw326/ntdtv/blob/master/gb/2020/07/27/a102904034.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平考察刚离开 四平疫情爆发多村被封   >-009fcc?logoWidth=1" title="习近平考察刚离开 四平疫情爆发多村被封  " alt="习近平考察刚离开 四平疫情爆发多村被封  "></a></p>
 <p><a href="https://github.com/okeegw326/ntdtv/blob/master/gb/2020/07/27/a102903544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第3号洪水来袭 三峡大坝上游再爆地震    >-009fcc?logoWidth=1" title="第3号洪水来袭 三峡大坝上游再爆地震  " alt="第3号洪水来袭 三峡大坝上游再爆地震  "></a></p>
 <p><a href="https://github.com/okeegw326/ntdtv/blob/master/gb/2020/07/27/a102903501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/马云被传唤后失踪/蓬佩奥又出招       >-009fcc?logoWidth=1" title="马云被传唤后失踪/蓬佩奥又出招  " alt="马云被传唤后失踪/蓬佩奥又出招  "></a></p>
-<p><a href="https://github.com/okeegw326/ntdtv/blob/master/gb/2020/07/27/a102903437.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南海火药味浓 中共实弹军演 美机逼近上海  >-009fcc?logoWidth=1" title="南海火药味浓 中共实弹军演 美机逼近上海  " alt="南海火药味浓 中共实弹军演 美机逼近上海  "></a></p>
 <p><a href="https://github.com/okeegw326/ntdtv/blob/master/gb/2020/07/28/a102904170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大肆营造战争氛围 北京居民：一打就败  >-009fcc?logoWidth=1" title="中共大肆营造战争氛围 北京居民：一打就败  " alt="中共大肆营造战争氛围 北京居民：一打就败  "></a></p>
 <p><a href="https://github.com/okeegw326/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夜话中南海：习近平要李克强“摆正位置”   >-009fcc?logoWidth=1" title="夜话中南海：习近平要李克强“摆正位置”  " alt="夜话中南海：习近平要李克强“摆正位置”  "></a></p>
 <p><a href="https://github.com/okeegw326/ntdtv/blob/master/gb/2020/07/27/a102903392.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新唐人亚太台官网网路维修中 敬请先以相关平台>-009fcc?logoWidth=1" title="新唐人亚太台官网网路维修中 敬请先以相关平台观看  " alt="新唐人亚太台官网网路维修中 敬请先以相关平台观看  "></a></p>
@@ -39,8 +39,8 @@
 <p><a href="https://github.com/okeegw326/djy/blob/master/gb/20/7/27/n12286591.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美撤离成都领馆 发文忆友谊：永远想念你们  >-009fcc?logoWidth=1" title="美撤离成都领馆 发文忆友谊：永远想念你们  " alt="美撤离成都领馆 发文忆友谊：永远想念你们  "></a></p>
 <p><a href="https://github.com/okeegw326/djy/blob/master/gb/20/7/27/n12286654.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江第3号洪水过境重庆 磁器口遭洪水淹没  >-009fcc?logoWidth=1" title="长江第3号洪水过境重庆 磁器口遭洪水淹没  " alt="长江第3号洪水过境重庆 磁器口遭洪水淹没  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/okeegw326/ntdtv/blob/master/gb/2020/07/27/a102903976.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/友好告别VS仓惶逃离 美中领馆人员对比鲜明引>-009fcc?logoWidth=1" title="友好告别VS仓惶逃离 美中领馆人员对比鲜明引热议  " alt="友好告别VS仓惶逃离 美中领馆人员对比鲜明引热议  "></a></p>
 <p><a href="https://github.com/okeegw326/ntdtv/blob/master/gb/2020/07/27/a102903819.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/3号洪峰淹没重庆古镇 安徽罔顾人命再决堤泄洪>-009fcc?logoWidth=1" title="3号洪峰淹没重庆古镇 安徽罔顾人命再决堤泄洪  " alt="3号洪峰淹没重庆古镇 安徽罔顾人命再决堤泄洪  "></a></p>
-<p><a href="https://github.com/okeegw326/ntdtv/blob/master/gb/2020/07/27/a102903822.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连疫情扩散4省7市 疫源凯洋公司业务遍及2>-009fcc?logoWidth=1" title="大连疫情扩散4省7市 疫源凯洋公司业务遍及20省市  " alt="大连疫情扩散4省7市 疫源凯洋公司业务遍及20省市  "></a></p>
 <p><a href="https://github.com/okeegw326/ntdtv/blob/master/gb/2020/07/27/a102903845.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新加坡籍中共间谍在美认罪内幕:涉F--35战机>-009fcc?logoWidth=1" title="新加坡籍中共间谍在美认罪内幕:涉F-35战机情报  " alt="新加坡籍中共间谍在美认罪内幕:涉F-35战机情报  "></a></p>
 <p><a href="https://github.com/okeegw326/djy/blob/master/gb/20/7/27/n12287337.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒传播或与社交距离无关 意小岛是例证 >-009fcc?logoWidth=1" title="中共病毒传播或与社交距离无关 意小岛是例证  " alt="中共病毒传播或与社交距离无关 意小岛是例证  "></a></p>
 <p><a href="https://github.com/okeegw326/djy/blob/master/gb/20/7/27/n12285522.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军官机场被捕 行前删微信        >-009fcc?logoWidth=1" title="中共军官机场被捕 行前删微信  " alt="中共军官机场被捕 行前删微信  "></a></p>
@@ -48,6 +48,7 @@
 <p><a href="https://github.com/okeegw326/ntdtv/blob/master/gb/2020/07/27/a102903280.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夜话中南海：习近平要李克强“摆正位置”   >-009fcc?logoWidth=1" title="夜话中南海：习近平要李克强“摆正位置”  " alt="夜话中南海：习近平要李克强“摆正位置”  "></a></p>
 <p><a href="https://github.com/okeegw326/djy/blob/master/gb/20/7/27/n12285648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参议员克鲁兹：可能会关闭更多中领馆    >-009fcc?logoWidth=1" title="美参议员克鲁兹：可能会关闭更多中领馆  " alt="美参议员克鲁兹：可能会关闭更多中领馆  "></a></p>
 <p><a href="https://github.com/okeegw326/djy/blob/master/gb/20/7/27/n12287439.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“中国影视第一股”股价剩4元 负债累累   >-009fcc?logoWidth=1" title="“中国影视第一股”股价剩4元 负债累累  " alt="“中国影视第一股”股价剩4元 负债累累  "></a></p>
+<p><a href="https://github.com/okeegw326/ntdtv/blob/master/gb/2020/07/27/a102903437.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南海火药味浓 中共实弹军演 美机逼近上海  >-009fcc?logoWidth=1" title="南海火药味浓 中共实弹军演 美机逼近上海  " alt="南海火药味浓 中共实弹军演 美机逼近上海  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -485,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/okeegw326/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/okeegw326/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/okeegw326/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/okeegw326/www/blob/master/README.md?u#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/okeegw326/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/okeegw326/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/okeegw326/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/okeegw326/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/okeegw326/www/blob/master/README.md?w#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/okeegw326/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/a7777">git.io/a7777</a></div>
+<div align="center">短网址: <a href="https://git.io/a3333">git.io/a3333</a></div>
 
