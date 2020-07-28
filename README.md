@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/okeegw326/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/okeegw326/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b6666">git.io/b6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3366">x.co/3366</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/akkkk">git.io/akkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aau">x.co/aau</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,13 +40,13 @@
 <p><a href="https://github.com/okeegw326/djy/blob/master/gb/20/7/27/n12286654.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江第3号洪水过境重庆 磁器口遭洪水淹没  >-009fcc?logoWidth=1" title="长江第3号洪水过境重庆 磁器口遭洪水淹没  " alt="长江第3号洪水过境重庆 磁器口遭洪水淹没  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/okeegw326/ntdtv/blob/master/gb/2020/07/27/a102903867.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共营造战争氛围遭讽 学者:制造恐惧加强管控>-009fcc?logoWidth=1" title="中共营造战争氛围遭讽 学者:制造恐惧加强管控  " alt="中共营造战争氛围遭讽 学者:制造恐惧加强管控  "></a></p>
-<p><a href="https://github.com/okeegw326/ntdtv/blob/master/gb/2020/07/27/a102903841.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/严防中共渗透 英国拟全面改写叛国法     >-009fcc?logoWidth=1" title="严防中共渗透 英国拟全面改写叛国法  " alt="严防中共渗透 英国拟全面改写叛国法  "></a></p>
-<p><a href="https://github.com/okeegw326/ntdtv/blob/master/gb/2020/07/27/a102903764.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美澳2 2部长会议强化围堵中共 拟扩大五眼联>-009fcc?logoWidth=1" title="美澳2 2部长会议强化围堵中共 拟扩大五眼联盟  " alt="美澳2 2部长会议强化围堵中共 拟扩大五眼联盟  "></a></p>
 <p><a href="https://github.com/okeegw326/djy/blob/master/gb/20/7/27/n12287337.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒传播或与社交距离无关 意小岛是例证 >-009fcc?logoWidth=1" title="中共病毒传播或与社交距离无关 意小岛是例证  " alt="中共病毒传播或与社交距离无关 意小岛是例证  "></a></p>
 <p><a href="https://github.com/okeegw326/djy/blob/master/gb/20/7/27/n12285522.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军官机场被捕 行前删微信        >-009fcc?logoWidth=1" title="中共军官机场被捕 行前删微信  " alt="中共军官机场被捕 行前删微信  "></a></p>
-<p><a href="https://github.com/okeegw326/ntdtv/blob/master/gb/2020/07/27/a102903383.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/马云被传唤后失踪 阿里公关：找1天也找不到人>-009fcc?logoWidth=1" title="马云被传唤后失踪 阿里公关：找1天也找不到人  " alt="马云被传唤后失踪 阿里公关：找1天也找不到人  "></a></p>
+<p><a href="https://github.com/okeegw326/ntdtv/blob/master/gb/2020/07/27/a102903841.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/严防中共渗透 英国拟全面改写叛国法     >-009fcc?logoWidth=1" title="严防中共渗透 英国拟全面改写叛国法  " alt="严防中共渗透 英国拟全面改写叛国法  "></a></p>
+<p><a href="https://github.com/okeegw326/ntdtv/blob/master/gb/2020/07/27/a102903764.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美澳2 2部长会议强化围堵中共 拟扩大五眼联>-009fcc?logoWidth=1" title="美澳2 2部长会议强化围堵中共 拟扩大五眼联盟  " alt="美澳2 2部长会议强化围堵中共 拟扩大五眼联盟  "></a></p>
 <p><a href="https://github.com/okeegw326/djy/blob/master/gb/20/7/27/n12285648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参议员克鲁兹：可能会关闭更多中领馆    >-009fcc?logoWidth=1" title="美参议员克鲁兹：可能会关闭更多中领馆  " alt="美参议员克鲁兹：可能会关闭更多中领馆  "></a></p>
 <p><a href="https://github.com/okeegw326/djy/blob/master/gb/20/7/27/n12287439.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“中国影视第一股”股价剩4元 负债累累   >-009fcc?logoWidth=1" title="“中国影视第一股”股价剩4元 负债累累  " alt="“中国影视第一股”股价剩4元 负债累累  "></a></p>
+<p><a href="https://github.com/okeegw326/ntdtv/blob/master/gb/2020/07/27/a102903383.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/马云被传唤后失踪 阿里公关：找1天也找不到人>-009fcc?logoWidth=1" title="马云被传唤后失踪 阿里公关：找1天也找不到人  " alt="马云被传唤后失踪 阿里公关：找1天也找不到人  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -484,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/okeegw326/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/okeegw326/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/okeegw326/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/okeegw326/www/blob/master/README.md?e#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/okeegw326/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/okeegw326/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/okeegw326/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/okeegw326/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/okeegw326/www/blob/master/README.md?k#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/okeegw326/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/b6666">git.io/b6666</a></div>
+<div align="center">短网址: <a href="https://git.io/akkkk">git.io/akkkk</a></div>
 
