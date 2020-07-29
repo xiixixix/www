@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ouvbwa307/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ouvbwa307/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ibbbb">git.io/ibbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/mdd">x.co/mdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/neeee">git.io/neeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppj">x.co/ppj</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,6 +41,7 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/二波疫情更可怕 人类回不去旧常态      >-009fcc?logoWidth=1" title="二波疫情更可怕 人类回不去旧常态  " alt="二波疫情更可怕 人类回不去旧常态  "></a></p>
 <p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905411.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：惊涛骇浪终到来 中共高官何时梦醒？ >-009fcc?logoWidth=1" title="李正宽：惊涛骇浪终到来 中共高官何时梦醒？  " alt="李正宽：惊涛骇浪终到来 中共高官何时梦醒？  "></a></p>
+<p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905397.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共步苏联后尘 解读蓬佩奥的不是“遏制”  >-009fcc?logoWidth=1" title="中共步苏联后尘 解读蓬佩奥的不是“遏制”  " alt="中共步苏联后尘 解读蓬佩奥的不是“遏制”  "></a></p>
 <p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/28/n12290052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官方乌鸦嘴 好的不灵坏的灵       >-009fcc?logoWidth=1" title="中共官方乌鸦嘴 好的不灵坏的灵  " alt="中共官方乌鸦嘴 好的不灵坏的灵  "></a></p>
 <p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/28/n12290486.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国新一波疫情蔓延到6省 北京最大小区中招 >-009fcc?logoWidth=1" title="中国新一波疫情蔓延到6省 北京最大小区中招  " alt="中国新一波疫情蔓延到6省 北京最大小区中招  "></a></p>
 <p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905288.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒：战狼外交碰壁 北京动用“美人计”   >-009fcc?logoWidth=1" title="外媒：战狼外交碰壁 北京动用“美人计”  " alt="外媒：战狼外交碰壁 北京动用“美人计”  "></a></p>
@@ -484,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ouvbwa307/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ouvbwa307/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ouvbwa307/www/blob/master/README.md?t#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ouvbwa307/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ouvbwa307/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ouvbwa307/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ouvbwa307/www/blob/master/README.md?u#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ouvbwa307/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ibbbb">git.io/ibbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/neeee">git.io/neeee</a></div>
 
