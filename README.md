@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ouvbwa307/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ouvbwa307/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/88888">git.io/88888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppq">x.co/ppq</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/m8888">git.io/m8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3999">x.co/3999</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -33,7 +33,7 @@
 <p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/29/n12292669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美提案拟禁外国间谍及家人获签证 剑指中共  >-009fcc?logoWidth=1" title="美提案拟禁外国间谍及家人获签证 剑指中共  " alt="美提案拟禁外国间谍及家人获签证 剑指中共  "></a></p>
 <p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/29/n12292544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：内斗加剧 习近平急于展示军权     >-009fcc?logoWidth=1" title="钟原：内斗加剧 习近平急于展示军权  " alt="钟原：内斗加剧 习近平急于展示军权  "></a></p>
 <p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/29/n12292672.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平亚投行年会未提一带一路 释何信号？  >-009fcc?logoWidth=1" title="习近平亚投行年会未提一带一路 释何信号？  " alt="习近平亚投行年会未提一带一路 释何信号？  "></a></p>
-<p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/28/n12289882.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邢天行：这个最黑暗日子里最耀眼的神奇    >-009fcc?logoWidth=1" title="邢天行：这个最黑暗日子里最耀眼的神奇  " alt="邢天行：这个最黑暗日子里最耀眼的神奇  "></a></p>
+<p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/29/n12291219.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/好友家人念真言转危为安           >-009fcc?logoWidth=1" title="好友家人念真言转危为安  " alt="好友家人念真言转危为安  "></a></p>
 <p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/29/n12292429.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共避提唐娟 与力挺孟晚舟成鲜明对比    >-009fcc?logoWidth=1" title="中共避提唐娟 与力挺孟晚舟成鲜明对比  " alt="中共避提唐娟 与力挺孟晚舟成鲜明对比  "></a></p>
 <p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/29/n12292598.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美官员：川普政府拟大幅减少中共外交人员   >-009fcc?logoWidth=1" title="美官员：川普政府拟大幅减少中共外交人员  " alt="美官员：川普政府拟大幅减少中共外交人员  "></a></p>
 <p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/29/n12291361.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瞒收中共资金 哈佛教授再被追加多项指控   >-009fcc?logoWidth=1" title="瞒收中共资金 哈佛教授再被追加多项指控  " alt="瞒收中共资金 哈佛教授再被追加多项指控  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ouvbwa307/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ouvbwa307/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ouvbwa307/www/blob/master/README.md?g#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ouvbwa307/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ouvbwa307/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ouvbwa307/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ouvbwa307/www/blob/master/README.md?e#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ouvbwa307/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/88888">git.io/88888</a></div>
+<div align="center">短网址: <a href="https://git.io/m8888">git.io/m8888</a></div>
 
