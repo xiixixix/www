@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ouvbwa307/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ouvbwa307/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h6666">git.io/h6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppa">x.co/ppa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uyyyy">git.io/uyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pgp">x.co/pgp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/太恐怖！重庆道路突塌 2楼深巨坑瞬间吞两人(>-009fcc?logoWidth=1" title="太恐怖！重庆道路突塌 2楼深巨坑瞬间吞两人(视频)  " alt="太恐怖！重庆道路突塌 2楼深巨坑瞬间吞两人(视频)  "></a></p>
 <p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905815.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/促白宫列中共为跨国犯罪组织 数百团体活动家联>-009fcc?logoWidth=1" title="促白宫列中共为跨国犯罪组织 数百团体活动家联署  " alt="促白宫列中共为跨国犯罪组织 数百团体活动家联署  "></a></p>
 <p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧盟制裁港版国安法  英国关切立法会选举  >-009fcc?logoWidth=1" title="欧盟制裁港版国安法  英国关切立法会选举  " alt="欧盟制裁港版国安法  英国关切立法会选举  "></a></p>
+<p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905837.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连疫情扩散至福州 日本各府县均出病例   >-009fcc?logoWidth=1" title="大连疫情扩散至福州 日本各府县均出病例  " alt="大连疫情扩散至福州 日本各府县均出病例  "></a></p>
 <p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港国安法恐怖突升级 学生组织前成员遭上门拘>-009fcc?logoWidth=1" title="香港国安法恐怖突升级 学生组织前成员遭上门拘捕  " alt="香港国安法恐怖突升级 学生组织前成员遭上门拘捕  "></a></p>
-<p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒重创心脏 近8成康复者心脏结构改变 >-009fcc?logoWidth=1" title="中共病毒重创心脏 近8成康复者心脏结构改变  " alt="中共病毒重创心脏 近8成康复者心脏结构改变  "></a></p>
-<p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐娟走出中领馆时 女儿已被送回中国疑成人质 >-009fcc?logoWidth=1" title="唐娟走出中领馆时 女儿已被送回中国疑成人质  " alt="唐娟走出中领馆时 女儿已被送回中国疑成人质  "></a></p>
+<p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905776.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网民揭中国奶业六大罪状被抓 数千万人声援  >-009fcc?logoWidth=1" title="网民揭中国奶业六大罪状被抓 数千万人声援  " alt="网民揭中国奶业六大罪状被抓 数千万人声援  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/24/n12280824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习恭维之计失效 川普发反共檄文       >-009fcc?logoWidth=1" title="习恭维之计失效 川普发反共檄文  " alt="习恭维之计失效 川普发反共檄文  "></a></p>
 <p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/29/n12292556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美互关领馆 两国“告别”方式反差大    >-009fcc?logoWidth=1" title="中美互关领馆 两国“告别”方式反差大  " alt="中美互关领馆 两国“告别”方式反差大  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ouvbwa307/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ouvbwa307/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ouvbwa307/www/blob/master/README.md?l#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ouvbwa307/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ouvbwa307/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ouvbwa307/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ouvbwa307/www/blob/master/README.md?d#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ouvbwa307/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/h6666">git.io/h6666</a></div>
+<div align="center">短网址: <a href="https://git.io/uyyyy">git.io/uyyyy</a></div>
 
