@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rkanci323/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rkanci323/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jyyyy">git.io/jyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/6pp">x.co/6pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rcccc">git.io/rcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/xaa">x.co/xaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,28 +20,30 @@
 <p><a href="https://github.com/rkanci323/ntdtv/blob/master/gb/2020/07/28/a102904930.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/冷战加剧军事对峙升温 BBC:中美或终极“热>-009fcc?logoWidth=1" title="冷战加剧军事对峙升温 BBC:中美或终极“热战”  " alt="冷战加剧军事对峙升温 BBC:中美或终极“热战”  "></a></p>
 <p><a href="https://github.com/rkanci323/ntdtv/blob/master/gb/2020/07/28/a102904458.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐娟背景复杂 疑赴美牵线人曝光       >-009fcc?logoWidth=1" title="唐娟背景复杂 疑赴美牵线人曝光  " alt="唐娟背景复杂 疑赴美牵线人曝光  "></a></p>
 <p><a href="https://github.com/rkanci323/ntdtv/blob/master/gb/2020/07/28/a102904440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：谁在搅黄习近平的“中国梦”%3F     >-009fcc?logoWidth=1" title="美媒：谁在搅黄习近平的“中国梦”?  " alt="美媒：谁在搅黄习近平的“中国梦”?  "></a></p>
+<p><a href="https://github.com/rkanci323/ntdtv/blob/master/gb/2020/07/29/a102905288.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒：战狼外交碰壁 北京动用“美人计”   >-009fcc?logoWidth=1" title="外媒：战狼外交碰壁 北京动用“美人计”  " alt="外媒：战狼外交碰壁 北京动用“美人计”  "></a></p>
 <p><a href="https://github.com/rkanci323/ntdtv/blob/master/gb/2020/07/28/a102904172.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：围剿中共正式开始          >-009fcc?logoWidth=1" title="袁弓夷：围剿中共正式开始  " alt="袁弓夷：围剿中共正式开始  "></a></p>
 <p><a href="https://github.com/rkanci323/ntdtv/blob/master/gb/2020/07/29/a102905199.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反制“港区国安法”欧盟限制出口镇压设备   >-009fcc?logoWidth=1" title="反制“港区国安法”欧盟限制出口镇压设备  " alt="反制“港区国安法”欧盟限制出口镇压设备  "></a></p>
 <p><a href="https://github.com/rkanci323/ntdtv/blob/master/gb/2020/07/29/a102905171.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南海紧张升温 越南向日本借钱建6艘巡逻舰  >-009fcc?logoWidth=1" title="南海紧张升温 越南向日本借钱建6艘巡逻舰  " alt="南海紧张升温 越南向日本借钱建6艘巡逻舰  "></a></p>
 <p><a href="https://github.com/rkanci323/ntdtv/blob/master/gb/2020/07/29/a102905068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁自上而下 从中共高官开始        >-009fcc?logoWidth=1" title="制裁自上而下 从中共高官开始  " alt="制裁自上而下 从中共高官开始  "></a></p>
-<p><a href="https://github.com/rkanci323/ntdtv/blob/master/gb/2020/07/29/a102905156.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国居民收到中国神秘种子包裹 27州发出警告>-009fcc?logoWidth=1" title="美国居民收到中国神秘种子包裹 27州发出警告  " alt="美国居民收到中国神秘种子包裹 27州发出警告  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rkanci323/djy/blob/master/gb/20/7/28/n12289743.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平要保政权 北大教授：权贵阶层用脚投票 >-009fcc?logoWidth=1" title="习近平要保政权 北大教授：权贵阶层用脚投票  " alt="习近平要保政权 北大教授：权贵阶层用脚投票  "></a></p>
 <p><a href="https://github.com/rkanci323/djy/blob/master/gb/20/7/28/n12290545.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国从31日起恢复对55类中国商品征税   >-009fcc?logoWidth=1" title="美国从31日起恢复对55类中国商品征税  " alt="美国从31日起恢复对55类中国商品征税  "></a></p>
+<p><a href="https://github.com/rkanci323/djy/blob/master/gb/20/7/29/n12291361.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瞒收中共资金 哈佛教授再被追加多项指控   >-009fcc?logoWidth=1" title="瞒收中共资金 哈佛教授再被追加多项指控  " alt="瞒收中共资金 哈佛教授再被追加多项指控  "></a></p>
 <p><a href="https://github.com/rkanci323/djy/blob/master/gb/20/7/27/n12287868.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共如何招间谍 窃F--35机密       >-009fcc?logoWidth=1" title="中共如何招间谍 窃F-35机密  " alt="中共如何招间谍 窃F-35机密  "></a></p>
 <p><a href="https://github.com/rkanci323/djy/blob/master/gb/20/7/28/n12290365.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁前奏？美银行关闭香港高官个人账户    >-009fcc?logoWidth=1" title="制裁前奏？美银行关闭香港高官个人账户  " alt="制裁前奏？美银行关闭香港高官个人账户  "></a></p>
-<p><a href="https://github.com/rkanci323/djy/blob/master/gb/20/7/28/n12290644.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中闭馆两样情 中南海沉默无对策      >-009fcc?logoWidth=1" title="美中闭馆两样情 中南海沉默无对策  " alt="美中闭馆两样情 中南海沉默无对策  "></a></p>
 <p><a href="https://github.com/rkanci323/djy/blob/master/gb/20/7/28/n12288333.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁自上而下 从中共高官始         >-009fcc?logoWidth=1" title="制裁自上而下 从中共高官始  " alt="制裁自上而下 从中共高官始  "></a></p>
-<p><a href="https://github.com/rkanci323/djy/blob/master/gb/20/7/28/n12290486.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情蔓延 北京最大小区现病例        >-009fcc?logoWidth=1" title="疫情蔓延 北京最大小区现病例  " alt="疫情蔓延 北京最大小区现病例  "></a></p>
+<p><a href="https://github.com/rkanci323/djy/blob/master/gb/20/7/29/n12291090.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余茂春助美反击中共 重庆母校急除状元名   >-009fcc?logoWidth=1" title="余茂春助美反击中共 重庆母校急除状元名  " alt="余茂春助美反击中共 重庆母校急除状元名  "></a></p>
 <p><a href="https://github.com/rkanci323/djy/blob/master/gb/20/7/28/n12289882.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邢天行：这个最黑暗日子里最耀眼的神奇    >-009fcc?logoWidth=1" title="邢天行：这个最黑暗日子里最耀眼的神奇  " alt="邢天行：这个最黑暗日子里最耀眼的神奇  "></a></p>
 <p><a href="https://github.com/rkanci323/djy/blob/master/gb/20/7/28/n12290555.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/防出逃？武汉加强管控公职人员因私出国证件  >-009fcc?logoWidth=1" title="防出逃？武汉加强管控公职人员因私出国证件  " alt="防出逃？武汉加强管控公职人员因私出国证件  "></a></p>
 <p><a href="https://github.com/rkanci323/djy/blob/master/gb/20/7/29/n12290939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共加紧囤粮 暴露粮食危机？        >-009fcc?logoWidth=1" title="中共加紧囤粮 暴露粮食危机？  " alt="中共加紧囤粮 暴露粮食危机？  "></a></p>
+<p><a href="https://github.com/rkanci323/djy/blob/master/gb/20/7/28/n12290486.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情蔓延 北京最大小区现病例        >-009fcc?logoWidth=1" title="疫情蔓延 北京最大小区现病例  " alt="疫情蔓延 北京最大小区现病例  "></a></p>
 <p><a href="https://github.com/rkanci323/djy/blob/master/gb/20/7/28/n12290052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官方被指乌鸦嘴 好的不灵坏的灵     >-009fcc?logoWidth=1" title="中共官方被指乌鸦嘴 好的不灵坏的灵  " alt="中共官方被指乌鸦嘴 好的不灵坏的灵  "></a></p>
-<p><a href="https://github.com/rkanci323/djy/blob/master/gb/20/7/28/n12290493.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连封小区 居民面临断菜断粮        >-009fcc?logoWidth=1" title="大连封小区 居民面临断菜断粮  " alt="大连封小区 居民面临断菜断粮  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rkanci323/ntdtv/blob/master/gb/2020/07/29/a102905122.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：中共四面楚歌 缺有实力“真朋友”   >-009fcc?logoWidth=1" title="港媒：中共四面楚歌 缺有实力“真朋友”  " alt="港媒：中共四面楚歌 缺有实力“真朋友”  "></a></p>
 <p><a href="https://github.com/rkanci323/djy/blob/master/gb/20/7/28/n12290052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官方乌鸦嘴 好的不灵坏的灵       >-009fcc?logoWidth=1" title="中共官方乌鸦嘴 好的不灵坏的灵  " alt="中共官方乌鸦嘴 好的不灵坏的灵  "></a></p>
+<p><a href="https://github.com/rkanci323/djy/blob/master/gb/20/7/28/n12290493.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连封小区 居民面临断菜断粮        >-009fcc?logoWidth=1" title="大连封小区 居民面临断菜断粮  " alt="大连封小区 居民面临断菜断粮  "></a></p>
 <p><a href="https://github.com/rkanci323/ntdtv/blob/master/gb/2020/07/29/a102905041.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：中共向全球中国人征税，“虽远必割”时代>-009fcc?logoWidth=1" title="文昭：中共向全球中国人征税，“虽远必割”时代到来！  " alt="文昭：中共向全球中国人征税，“虽远必割”时代到来！  "></a></p>
+<p><a href="https://github.com/rkanci323/ntdtv/blob/master/gb/2020/07/29/a102905156.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国居民收到中国神秘种子包裹 27州发出警告>-009fcc?logoWidth=1" title="美国居民收到中国神秘种子包裹 27州发出警告  " alt="美国居民收到中国神秘种子包裹 27州发出警告  "></a></p>
 <p><a href="https://github.com/rkanci323/djy/blob/master/gb/20/7/28/n12290187.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：李克强“临时工”就业模式再被封杀   >-009fcc?logoWidth=1" title="钟原：李克强“临时工”就业模式再被封杀  " alt="钟原：李克强“临时工”就业模式再被封杀  "></a></p>
 <p><a href="https://github.com/rkanci323/djy/blob/master/gb/20/7/28/n12290426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/A股主力资金现出逃潮 连续6日净流出    >-009fcc?logoWidth=1" title="A股主力资金现出逃潮 连续6日净流出  " alt="A股主力资金现出逃潮 连续6日净流出  "></a></p>
 <p><a href="https://github.com/rkanci323/ntdtv/blob/master/gb/2020/07/28/a102904725.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦：中共病毒非自然界产生 海鲜市场是替罪>-009fcc?logoWidth=1" title="闫丽梦：中共病毒非自然界产生 海鲜市场是替罪羊  " alt="闫丽梦：中共病毒非自然界产生 海鲜市场是替罪羊  "></a></p>
@@ -486,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rkanci323/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rkanci323/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rkanci323/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rkanci323/www/blob/master/README.md?v#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/rkanci323/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rkanci323/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rkanci323/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rkanci323/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rkanci323/www/blob/master/README.md?t#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/rkanci323/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jyyyy">git.io/jyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/rcccc">git.io/rcccc</a></div>
 
