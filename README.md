@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/sqmopf394/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/sqmopf394/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jxxxx">git.io/jxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p2p">x.co/p2p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aaaaaaaa">git.io/aaaaaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a8a">x.co/a8a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -24,7 +24,7 @@
 <p><a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/2020/07/29/a102905068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁自上而下 从中共高官开始        >-009fcc?logoWidth=1" title="制裁自上而下 从中共高官开始  " alt="制裁自上而下 从中共高官开始  "></a></p>
 <p><a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/2020/07/29/a102905156.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国居民收到中国神秘种子包裹 27州发出警告>-009fcc?logoWidth=1" title="美国居民收到中国神秘种子包裹 27州发出警告  " alt="美国居民收到中国神秘种子包裹 27州发出警告  "></a></p>
 <p><a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/2020/07/29/a102905149.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉一马弊案 纳吉布7项罪名成立遭判12年  >-009fcc?logoWidth=1" title="涉一马弊案 纳吉布7项罪名成立遭判12年  " alt="涉一马弊案 纳吉布7项罪名成立遭判12年  "></a></p>
-<p><a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/2020/07/29/a102905128.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美澳将组建军事同盟 共同应对中共挑战    >-009fcc?logoWidth=1" title="美澳将组建军事同盟 共同应对中共挑战  " alt="美澳将组建军事同盟 共同应对中共挑战  "></a></p>
+<p><a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/2020/07/29/a102905148.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网友热议中美闭馆风度谁好？         >-009fcc?logoWidth=1" title="网友热议中美闭馆风度谁好？  " alt="网友热议中美闭馆风度谁好？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/sqmopf394/djy/blob/master/gb/20/7/28/n12289743.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平要保政权 北大教授：权贵阶层用脚投票 >-009fcc?logoWidth=1" title="习近平要保政权 北大教授：权贵阶层用脚投票  " alt="习近平要保政权 北大教授：权贵阶层用脚投票  "></a></p>
 <p><a href="https://github.com/sqmopf394/djy/blob/master/gb/20/7/28/n12290545.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国从31日起恢复对55类中国商品征税   >-009fcc?logoWidth=1" title="美国从31日起恢复对55类中国商品征税  " alt="美国从31日起恢复对55类中国商品征税  "></a></p>
@@ -40,15 +40,13 @@
 <p><a href="https://github.com/sqmopf394/djy/blob/master/gb/20/7/28/n12290493.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连封小区 居民面临断菜断粮        >-009fcc?logoWidth=1" title="大连封小区 居民面临断菜断粮  " alt="大连封小区 居民面临断菜断粮  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/sqmopf394/djy/blob/master/gb/20/7/28/n12290052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官方乌鸦嘴 好的不灵坏的灵       >-009fcc?logoWidth=1" title="中共官方乌鸦嘴 好的不灵坏的灵  " alt="中共官方乌鸦嘴 好的不灵坏的灵  "></a></p>
-<p><a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/2020/07/29/a102905148.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网友热议中美闭馆风度谁好？         >-009fcc?logoWidth=1" title="网友热议中美闭馆风度谁好？  " alt="网友热议中美闭馆风度谁好？  "></a></p>
-<p><a href="https://github.com/sqmopf394/djy/blob/master/gb/20/7/28/n12290187.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：李克强“临时工”就业模式再被封杀   >-009fcc?logoWidth=1" title="钟原：李克强“临时工”就业模式再被封杀  " alt="钟原：李克强“临时工”就业模式再被封杀  "></a></p>
 <p><a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/2020/07/28/a102904725.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦：中共病毒非自然界产生 海鲜市场是替罪>-009fcc?logoWidth=1" title="闫丽梦：中共病毒非自然界产生 海鲜市场是替罪羊  " alt="闫丽梦：中共病毒非自然界产生 海鲜市场是替罪羊  "></a></p>
 <p><a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/2020/07/28/a102904713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美大报公开策反中共 谁是叛逃者？      >-009fcc?logoWidth=1" title="美大报公开策反中共 谁是叛逃者？  " alt="美大报公开策反中共 谁是叛逃者？  "></a></p>
+<p><a href="https://github.com/sqmopf394/djy/blob/master/gb/20/7/28/n12290187.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：李克强“临时工”就业模式再被封杀   >-009fcc?logoWidth=1" title="钟原：李克强“临时工”就业模式再被封杀  " alt="钟原：李克强“临时工”就业模式再被封杀  "></a></p>
+<p><a href="https://github.com/sqmopf394/djy/blob/master/gb/20/7/28/n12290166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/粮食危机？中共下令各省“粮产只增不减”   >-009fcc?logoWidth=1" title="粮食危机？中共下令各省“粮产只增不减”  " alt="粮食危机？中共下令各省“粮产只增不减”  "></a></p>
+<p><a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/2020/07/28/a102904697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谁摧毁习近平“中国梦”？专家分析北京政策六大>-009fcc?logoWidth=1" title="谁摧毁习近平“中国梦”？专家分析北京政策六大败笔  " alt="谁摧毁习近平“中国梦”？专家分析北京政策六大败笔  "></a></p>
 <p><a href="https://github.com/sqmopf394/djy/blob/master/gb/20/7/28/n12290426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/A股主力资金现出逃潮 连续6日净流出    >-009fcc?logoWidth=1" title="A股主力资金现出逃潮 连续6日净流出  " alt="A股主力资金现出逃潮 连续6日净流出  "></a></p>
 <p><a href="https://github.com/sqmopf394/djy/blob/master/gb/20/7/28/n12290288.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连核酸检测再爆冲突 现暂停        >-009fcc?logoWidth=1" title="大连核酸检测再爆冲突 现暂停  " alt="大连核酸检测再爆冲突 现暂停  "></a></p>
-<p><a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/2020/07/28/a102904697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谁摧毁习近平“中国梦”？专家分析北京政策六大>-009fcc?logoWidth=1" title="谁摧毁习近平“中国梦”？专家分析北京政策六大败笔  " alt="谁摧毁习近平“中国梦”？专家分析北京政策六大败笔  "></a></p>
-<p><a href="https://github.com/sqmopf394/djy/blob/master/gb/20/7/28/n12289395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆知名财经博主：经济内循环？别乱做梦了  >-009fcc?logoWidth=1" title="大陆知名财经博主：经济内循环？别乱做梦了  " alt="大陆知名财经博主：经济内循环？别乱做梦了  "></a></p>
-<p><a href="https://github.com/sqmopf394/djy/blob/master/gb/20/7/28/n12288237.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中博弈 美将公布UFO真相？       >-009fcc?logoWidth=1" title="美中博弈 美将公布UFO真相？  " alt="美中博弈 美将公布UFO真相？  "></a></p>
 <p><a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京东城六月飞雪 大连检测人山人海爆冲突  >-009fcc?logoWidth=1" title="北京东城六月飞雪 大连检测人山人海爆冲突  " alt="北京东城六月飞雪 大连检测人山人海爆冲突  "></a></p>
 <p><a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/2020/07/28/a102904212.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共接班人摆上台 外宣放风胡春华接班李克强 >-009fcc?logoWidth=1" title="中共接班人摆上台 外宣放风胡春华接班李克强  " alt="中共接班人摆上台 外宣放风胡春华接班李克强  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -488,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/sqmopf394/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/sqmopf394/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/sqmopf394/www/blob/master/README.md?x#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/sqmopf394/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/sqmopf394/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/sqmopf394/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/sqmopf394/www/blob/master/README.md?f#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/sqmopf394/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jxxxx">git.io/jxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/aaaaaaaa">git.io/aaaaaaaa</a></div>
 
