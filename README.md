@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ouvbwa307/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ouvbwa307/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rrrrrrrr">git.io/rrrrrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/psp">x.co/psp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyy">git.io/yyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/edd">x.co/edd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905227.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京高层防美空袭？网民笑了：老百姓不用怕  >-009fcc?logoWidth=1" title="北京高层防美空袭？网民笑了：老百姓不用怕  " alt="北京高层防美空袭？网民笑了：老百姓不用怕  "></a></p>
 <p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905210.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余茂春助川普“灭共”惹恼北京 重庆母校急除状>-009fcc?logoWidth=1" title="余茂春助川普“灭共”惹恼北京 重庆母校急除状元名  " alt="余茂春助川普“灭共”惹恼北京 重庆母校急除状元名  "></a></p>
 <p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/太恐怖！重庆道路突塌 2楼深巨坑瞬间吞两人(>-009fcc?logoWidth=1" title="太恐怖！重庆道路突塌 2楼深巨坑瞬间吞两人(视频)  " alt="太恐怖！重庆道路突塌 2楼深巨坑瞬间吞两人(视频)  "></a></p>
+<p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905878.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/没钱了？ 习近平亚投行致辞未提大撒币    >-009fcc?logoWidth=1" title="没钱了？ 习近平亚投行致辞未提大撒币  " alt="没钱了？ 习近平亚投行致辞未提大撒币  "></a></p>
 <p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905904.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉肺炎受害家属发起第二起索赔诉讼     >-009fcc?logoWidth=1" title="武汉肺炎受害家属发起第二起索赔诉讼  " alt="武汉肺炎受害家属发起第二起索赔诉讼  "></a></p>
 <p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905858.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆疫情急速上升 封城抢建方舱医院     >-009fcc?logoWidth=1" title="新疆疫情急速上升 封城抢建方舱医院  " alt="新疆疫情急速上升 封城抢建方舱医院  "></a></p>
+<p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905853.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京最大小区爆疫情 全楼封闭 食物短缺   >-009fcc?logoWidth=1" title="北京最大小区爆疫情 全楼封闭 食物短缺  " alt="北京最大小区爆疫情 全楼封闭 食物短缺  "></a></p>
 <p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905815.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/促白宫列中共为跨国犯罪组织 数百团体活动家联>-009fcc?logoWidth=1" title="促白宫列中共为跨国犯罪组织 数百团体活动家联署  " alt="促白宫列中共为跨国犯罪组织 数百团体活动家联署  "></a></p>
-<p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧盟制裁港版国安法  英国关切立法会选举  >-009fcc?logoWidth=1" title="欧盟制裁港版国安法  英国关切立法会选举  " alt="欧盟制裁港版国安法  英国关切立法会选举  "></a></p>
-<p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905837.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连疫情扩散至福州 日本各府县均出病例   >-009fcc?logoWidth=1" title="大连疫情扩散至福州 日本各府县均出病例  " alt="大连疫情扩散至福州 日本各府县均出病例  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/24/n12280824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习恭维之计失效 川普发反共檄文       >-009fcc?logoWidth=1" title="习恭维之计失效 川普发反共檄文  " alt="习恭维之计失效 川普发反共檄文  "></a></p>
 <p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/29/n12292556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美互关领馆 两国“告别”方式反差大    >-009fcc?logoWidth=1" title="中美互关领馆 两国“告别”方式反差大  " alt="中美互关领馆 两国“告别”方式反差大  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ouvbwa307/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ouvbwa307/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ouvbwa307/www/blob/master/README.md?e#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ouvbwa307/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ouvbwa307/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ouvbwa307/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ouvbwa307/www/blob/master/README.md?e#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ouvbwa307/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rrrrrrrr">git.io/rrrrrrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/yyyyy">git.io/yyyyy</a></div>
 
