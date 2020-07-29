@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/sqmopf394/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/sqmopf394/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/n9999">git.io/n9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/fdd">x.co/fdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ezzzz">git.io/ezzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a6a">x.co/a6a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,17 +39,16 @@
 <p><a href="https://github.com/sqmopf394/djy/blob/master/gb/20/7/28/n12290403.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙古厅级“房哥” 坐拥36套房竟称无房产 >-009fcc?logoWidth=1" title="内蒙古厅级“房哥” 坐拥36套房竟称无房产  " alt="内蒙古厅级“房哥” 坐拥36套房竟称无房产  "></a></p>
 <p><a href="https://github.com/sqmopf394/djy/blob/master/gb/20/7/28/n12288187.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/连花清瘟无效 中共略过不提背后       >-009fcc?logoWidth=1" title="连花清瘟无效 中共略过不提背后  " alt="连花清瘟无效 中共略过不提背后  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/2020/07/28/a102904527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/互关领馆 美方如何再出招  美中缠斗 外星人>-009fcc?logoWidth=1" title="互关领馆 美方如何再出招  美中缠斗 外星人在监控？  " alt="互关领馆 美方如何再出招  美中缠斗 外星人在监控？  "></a></p>
 <p><a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/2020/07/28/a102904212.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共接班人摆上台 外宣放风胡春华接班李克强 >-009fcc?logoWidth=1" title="中共接班人摆上台 外宣放风胡春华接班李克强  " alt="中共接班人摆上台 外宣放风胡春华接班李克强  "></a></p>
-<p><a href="https://github.com/sqmopf394/djy/blob/master/gb/20/7/28/n12290403.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙古曝厅级“房哥” 坐拥36套房产竟谎称租>-009fcc?logoWidth=1" title="内蒙古曝厅级“房哥” 坐拥36套房产竟谎称租房  " alt="内蒙古曝厅级“房哥” 坐拥36套房产竟谎称租房  "></a></p>
-<p><a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/2020/07/27/a102903834.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东亚政治专家：习近平要倒大霉了       >-009fcc?logoWidth=1" title="东亚政治专家：习近平要倒大霉了  " alt="东亚政治专家：习近平要倒大霉了  "></a></p>
 <p><a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/2020/07/28/a102904204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网文：满手好牌，是怎么被那位一把手打烂的？ >-009fcc?logoWidth=1" title="网文：满手好牌，是怎么被那位一把手打烂的？  " alt="网文：满手好牌，是怎么被那位一把手打烂的？  "></a></p>
+<p><a href="https://github.com/sqmopf394/djy/blob/master/gb/20/7/28/n12290403.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙古曝厅级“房哥” 坐拥36套房产竟谎称租>-009fcc?logoWidth=1" title="内蒙古曝厅级“房哥” 坐拥36套房产竟谎称租房  " alt="内蒙古曝厅级“房哥” 坐拥36套房产竟谎称租房  "></a></p>
 <p><a href="https://github.com/sqmopf394/djy/blob/master/gb/20/7/28/n12289150.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乌鲁木齐疫情急 传正建方舱         >-009fcc?logoWidth=1" title="乌鲁木齐疫情急 传正建方舱  " alt="乌鲁木齐疫情急 传正建方舱  "></a></p>
 <p><a href="https://github.com/sqmopf394/djy/blob/master/gb/20/7/28/n12288237.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中博弈 美将公布UFO真相？       >-009fcc?logoWidth=1" title="美中博弈 美将公布UFO真相？  " alt="美中博弈 美将公布UFO真相？  "></a></p>
 <p><a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/2020/07/28/a102904170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大肆营造战争氛围 北京居民：一打就败  >-009fcc?logoWidth=1" title="中共大肆营造战争氛围 北京居民：一打就败  " alt="中共大肆营造战争氛围 北京居民：一打就败  "></a></p>
+<p><a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/2020/07/28/a102904400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京再度沦陷 中国疫情此起彼伏       >-009fcc?logoWidth=1" title="北京再度沦陷 中国疫情此起彼伏  " alt="北京再度沦陷 中国疫情此起彼伏  "></a></p>
 <p><a href="https://github.com/sqmopf394/djy/blob/master/gb/20/7/28/n12290288.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连核酸检测再爆冲突 现暂停        >-009fcc?logoWidth=1" title="大连核酸检测再爆冲突 现暂停  " alt="大连核酸检测再爆冲突 现暂停  "></a></p>
 <p><a href="https://github.com/sqmopf394/djy/blob/master/gb/20/7/28/n12290166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/粮食危机？中共下令各省“粮产只增不减”   >-009fcc?logoWidth=1" title="粮食危机？中共下令各省“粮产只增不减”  " alt="粮食危机？中共下令各省“粮产只增不减”  "></a></p>
-<p><a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/2020/07/28/a102904400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京再度沦陷 中国疫情此起彼伏       >-009fcc?logoWidth=1" title="北京再度沦陷 中国疫情此起彼伏  " alt="北京再度沦陷 中国疫情此起彼伏  "></a></p>
+<p><a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/2020/07/28/a102904527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/互关领馆 美方如何再出招  美中缠斗 外星人>-009fcc?logoWidth=1" title="互关领馆 美方如何再出招  美中缠斗 外星人在监控？  " alt="互关领馆 美方如何再出招  美中缠斗 外星人在监控？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/sqmopf394/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/sqmopf394/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/sqmopf394/www/blob/master/README.md?n#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/sqmopf394/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/sqmopf394/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/sqmopf394/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/sqmopf394/www/blob/master/README.md?a#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/sqmopf394/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/n9999">git.io/n9999</a></div>
+<div align="center">短网址: <a href="https://git.io/ezzzz">git.io/ezzzz</a></div>
 
