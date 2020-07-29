@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ouvbwa307/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ouvbwa307/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/czzzz">git.io/czzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/iaa">x.co/iaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jrrrr">git.io/jrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/gaa">x.co/gaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905227.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京高层防美空袭？网民笑了：老百姓不用怕  >-009fcc?logoWidth=1" title="北京高层防美空袭？网民笑了：老百姓不用怕  " alt="北京高层防美空袭？网民笑了：老百姓不用怕  "></a></p>
 <p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905210.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余茂春助川普“灭共”惹恼北京 重庆母校急除状>-009fcc?logoWidth=1" title="余茂春助川普“灭共”惹恼北京 重庆母校急除状元名  " alt="余茂春助川普“灭共”惹恼北京 重庆母校急除状元名  "></a></p>
 <p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/太恐怖！重庆道路突塌 2楼深巨坑瞬间吞两人(>-009fcc?logoWidth=1" title="太恐怖！重庆道路突塌 2楼深巨坑瞬间吞两人(视频)  " alt="太恐怖！重庆道路突塌 2楼深巨坑瞬间吞两人(视频)  "></a></p>
+<p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港国安法恐怖突升级 学生组织前成员遭上门拘>-009fcc?logoWidth=1" title="香港国安法恐怖突升级 学生组织前成员遭上门拘捕  " alt="香港国安法恐怖突升级 学生组织前成员遭上门拘捕  "></a></p>
 <p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒重创心脏 近8成康复者心脏结构改变 >-009fcc?logoWidth=1" title="中共病毒重创心脏 近8成康复者心脏结构改变  " alt="中共病毒重创心脏 近8成康复者心脏结构改变  "></a></p>
 <p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐娟走出中领馆时 女儿已被送回中国疑成人质 >-009fcc?logoWidth=1" title="唐娟走出中领馆时 女儿已被送回中国疑成人质  " alt="唐娟走出中领馆时 女儿已被送回中国疑成人质  "></a></p>
-<p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905778.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普就恢复二叠纪盆地的能源主导地位讲话（同声>-009fcc?logoWidth=1" title="川普就恢复二叠纪盆地的能源主导地位讲话（同声翻译）  " alt="川普就恢复二叠纪盆地的能源主导地位讲话（同声翻译）  "></a></p>
-<p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905749.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/声援港人 欧盟27国联合反制港版国安法   >-009fcc?logoWidth=1" title="声援港人 欧盟27国联合反制港版国安法  " alt="声援港人 欧盟27国联合反制港版国安法  "></a></p>
-<p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905693.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国7月31日起恢复对55类中国商品征税  >-009fcc?logoWidth=1" title="美国7月31日起恢复对55类中国商品征税  " alt="美国7月31日起恢复对55类中国商品征税  "></a></p>
+<p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉参与千人计划 哈佛教授因瞒税再被控    >-009fcc?logoWidth=1" title="涉参与千人计划 哈佛教授因瞒税再被控  " alt="涉参与千人计划 哈佛教授因瞒税再被控  "></a></p>
+<p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905778.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普就恢复二叠纪盆地能源主导地位讲话（同声翻>-009fcc?logoWidth=1" title="川普就恢复二叠纪盆地能源主导地位讲话（同声翻译）  " alt="川普就恢复二叠纪盆地能源主导地位讲话（同声翻译）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/24/n12280824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习恭维之计失效 川普发反共檄文       >-009fcc?logoWidth=1" title="习恭维之计失效 川普发反共檄文  " alt="习恭维之计失效 川普发反共檄文  "></a></p>
 <p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/29/n12292556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美互关领馆 两国“告别”方式反差大    >-009fcc?logoWidth=1" title="中美互关领馆 两国“告别”方式反差大  " alt="中美互关领馆 两国“告别”方式反差大  "></a></p>
@@ -39,16 +39,14 @@
 <p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/29/n12291361.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瞒收中共资金 哈佛教授再被追加多项指控   >-009fcc?logoWidth=1" title="瞒收中共资金 哈佛教授再被追加多项指控  " alt="瞒收中共资金 哈佛教授再被追加多项指控  "></a></p>
 <p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/29/n12292724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与唐娟是军校校友 加大教授李健健受质疑   >-009fcc?logoWidth=1" title="与唐娟是军校校友 加大教授李健健受质疑  " alt="与唐娟是军校校友 加大教授李健健受质疑  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/29/n12291090.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余茂春助美反击中共 重庆母校急除状元名   >-009fcc?logoWidth=1" title="余茂春助美反击中共 重庆母校急除状元名  " alt="余茂春助美反击中共 重庆母校急除状元名  "></a></p>
-<p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/29/n12290939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共加紧囤粮 暴露粮食危机？        >-009fcc?logoWidth=1" title="中共加紧囤粮 暴露粮食危机？  " alt="中共加紧囤粮 暴露粮食危机？  "></a></p>
+<p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/29/n12292429.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共避提唐娟 与力挺孟晚舟形成鲜明对比   >-009fcc?logoWidth=1" title="中共避提唐娟 与力挺孟晚舟形成鲜明对比  " alt="中共避提唐娟 与力挺孟晚舟形成鲜明对比  "></a></p>
 <p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/二波疫情更可怕 人类回不去旧常态      >-009fcc?logoWidth=1" title="二波疫情更可怕 人类回不去旧常态  " alt="二波疫情更可怕 人类回不去旧常态  "></a></p>
-<p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/28/n12290555.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/防出逃？武汉加强管控公职人员因私出国证件  >-009fcc?logoWidth=1" title="防出逃？武汉加强管控公职人员因私出国证件  " alt="防出逃？武汉加强管控公职人员因私出国证件  "></a></p>
-<p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/29/n12292127.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉协和医院护士坠楼身亡 孩子不足2岁   >-009fcc?logoWidth=1" title="武汉协和医院护士坠楼身亡 孩子不足2岁  " alt="武汉协和医院护士坠楼身亡 孩子不足2岁  "></a></p>
 <p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905411.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：惊涛骇浪终到来 中共高官何时梦醒？ >-009fcc?logoWidth=1" title="李正宽：惊涛骇浪终到来 中共高官何时梦醒？  " alt="李正宽：惊涛骇浪终到来 中共高官何时梦醒？  "></a></p>
 <p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905397.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共步苏联后尘 解读蓬佩奥的不是“遏制”  >-009fcc?logoWidth=1" title="中共步苏联后尘 解读蓬佩奥的不是“遏制”  " alt="中共步苏联后尘 解读蓬佩奥的不是“遏制”  "></a></p>
-<p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/29/n12291727.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员促政府慎防TikTok干预大选    >-009fcc?logoWidth=1" title="美议员促政府慎防TikTok干预大选  " alt="美议员促政府慎防TikTok干预大选  "></a></p>
+<p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/29/n12291426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：中国老百姓不需要害怕美军空袭     >-009fcc?logoWidth=1" title="沈舟：中国老百姓不需要害怕美军空袭  " alt="沈舟：中国老百姓不需要害怕美军空袭  "></a></p>
+<p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/29/n12291090.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余茂春助美反击中共 重庆母校急除状元名   >-009fcc?logoWidth=1" title="余茂春助美反击中共 重庆母校急除状元名  " alt="余茂春助美反击中共 重庆母校急除状元名  "></a></p>
 <p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905288.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒：战狼外交碰壁 北京动用“美人计”   >-009fcc?logoWidth=1" title="外媒：战狼外交碰壁 北京动用“美人计”  " alt="外媒：战狼外交碰壁 北京动用“美人计”  "></a></p>
-<p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/28/n12290052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官方乌鸦嘴 好的不灵坏的灵       >-009fcc?logoWidth=1" title="中共官方乌鸦嘴 好的不灵坏的灵  " alt="中共官方乌鸦嘴 好的不灵坏的灵  "></a></p>
+<p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/29/n12290959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥有望2024？学者喊话习近平     >-009fcc?logoWidth=1" title="蓬佩奥有望2024？学者喊话习近平  " alt="蓬佩奥有望2024？学者喊话习近平  "></a></p>
 <p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/28/n12290486.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国新一波疫情蔓延到6省 北京最大小区中招 >-009fcc?logoWidth=1" title="中国新一波疫情蔓延到6省 北京最大小区中招  " alt="中国新一波疫情蔓延到6省 北京最大小区中招  "></a></p>
 <p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/28/a102904731.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京东城六月飞雪 党媒“辟谣”露破绽（视频）>-009fcc?logoWidth=1" title="北京东城六月飞雪 党媒“辟谣”露破绽（视频）  " alt="北京东城六月飞雪 党媒“辟谣”露破绽（视频）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -488,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ouvbwa307/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ouvbwa307/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ouvbwa307/www/blob/master/README.md?m#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ouvbwa307/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ouvbwa307/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ouvbwa307/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ouvbwa307/www/blob/master/README.md?l#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ouvbwa307/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/czzzz">git.io/czzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/jrrrr">git.io/jrrrr</a></div>
 
