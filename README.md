@@ -10,11 +10,12 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rkanci323/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rkanci323/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/q7777">git.io/q7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppa">x.co/ppa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rpppp">git.io/rpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j55">x.co/j55</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/rkanci323/ntdtv/blob/master/gb/2020/07/29/a102905372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦吁推翻中共政权/袁弓夷：围剿中共正式开>-009fcc?logoWidth=1" title="闫丽梦吁推翻中共政权/袁弓夷：围剿中共正式开始  " alt="闫丽梦吁推翻中共政权/袁弓夷：围剿中共正式开始  "></a></p>
+<p><a href="https://github.com/rkanci323/ntdtv/blob/master/gb/2020/07/29/a102905311.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政治段子：华春莹、胡锡进、王沪宁打听退党  >-009fcc?logoWidth=1" title="政治段子：华春莹、胡锡进、王沪宁打听退党  " alt="政治段子：华春莹、胡锡进、王沪宁打听退党  "></a></p>
 <p><a href="https://github.com/rkanci323/ntdtv/blob/master/gb/2020/07/29/a102905227.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京高层防美空袭？网民笑了：老百姓不用怕  >-009fcc?logoWidth=1" title="北京高层防美空袭？网民笑了：老百姓不用怕  " alt="北京高层防美空袭？网民笑了：老百姓不用怕  "></a></p>
 <p><a href="https://github.com/rkanci323/ntdtv/blob/master/gb/2020/07/29/a102905210.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余茂春助川普“灭共”惹恼北京 重庆母校急除状>-009fcc?logoWidth=1" title="余茂春助川普“灭共”惹恼北京 重庆母校急除状元名  " alt="余茂春助川普“灭共”惹恼北京 重庆母校急除状元名  "></a></p>
 <p><a href="https://github.com/rkanci323/ntdtv/blob/master/gb/2020/07/29/a102905175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/太恐怖！重庆道路突塌 2楼深巨坑瞬间吞两人(>-009fcc?logoWidth=1" title="太恐怖！重庆道路突塌 2楼深巨坑瞬间吞两人(视频)  " alt="太恐怖！重庆道路突塌 2楼深巨坑瞬间吞两人(视频)  "></a></p>
@@ -40,16 +41,15 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rkanci323/djy/blob/master/gb/20/7/28/n12290486.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国新一波疫情蔓延到6省 北京最大小区中招 >-009fcc?logoWidth=1" title="中国新一波疫情蔓延到6省 北京最大小区中招  " alt="中国新一波疫情蔓延到6省 北京最大小区中招  "></a></p>
 <p><a href="https://github.com/rkanci323/djy/blob/master/gb/20/7/28/n12290052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官方乌鸦嘴 好的不灵坏的灵       >-009fcc?logoWidth=1" title="中共官方乌鸦嘴 好的不灵坏的灵  " alt="中共官方乌鸦嘴 好的不灵坏的灵  "></a></p>
-<p><a href="https://github.com/rkanci323/ntdtv/blob/master/gb/2020/07/28/a102904731.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京东城六月飞雪 党媒“辟谣”露破绽（视频）>-009fcc?logoWidth=1" title="北京东城六月飞雪 党媒“辟谣”露破绽（视频）  " alt="北京东城六月飞雪 党媒“辟谣”露破绽（视频）  "></a></p>
-<p><a href="https://github.com/rkanci323/ntdtv/blob/master/gb/2020/07/29/a102905216.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/同为女学霸 唐娟和闫丽梦 不同选择两种结局 >-009fcc?logoWidth=1" title="同为女学霸 唐娟和闫丽梦 不同选择两种结局  " alt="同为女学霸 唐娟和闫丽梦 不同选择两种结局  "></a></p>
+<p><a href="https://github.com/rkanci323/ntdtv/blob/master/gb/2020/07/29/a102905423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/二波疫情更可怕 人类回不去旧常态      >-009fcc?logoWidth=1" title="二波疫情更可怕 人类回不去旧常态  " alt="二波疫情更可怕 人类回不去旧常态  "></a></p>
 <p><a href="https://github.com/rkanci323/djy/blob/master/gb/20/7/28/n12290493.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连封小区 居民面临断菜断粮        >-009fcc?logoWidth=1" title="大连封小区 居民面临断菜断粮  " alt="大连封小区 居民面临断菜断粮  "></a></p>
 <p><a href="https://github.com/rkanci323/djy/blob/master/gb/20/7/28/n12290187.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：李克强“临时工”就业模式再被封杀   >-009fcc?logoWidth=1" title="钟原：李克强“临时工”就业模式再被封杀  " alt="钟原：李克强“临时工”就业模式再被封杀  "></a></p>
-<p><a href="https://github.com/rkanci323/ntdtv/blob/master/gb/2020/07/29/a102905044.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐娟视频出庭不发一语/王毅砸锅反升官？/殃视>-009fcc?logoWidth=1" title="唐娟视频出庭不发一语/王毅砸锅反升官？/殃视头条呼吁备战  " alt="唐娟视频出庭不发一语/王毅砸锅反升官？/殃视头条呼吁备战  "></a></p>
-<p><a href="https://github.com/rkanci323/ntdtv/blob/master/gb/2020/07/29/a102905122.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：中共四面楚歌 缺有实力“真朋友”   >-009fcc?logoWidth=1" title="港媒：中共四面楚歌 缺有实力“真朋友”  " alt="港媒：中共四面楚歌 缺有实力“真朋友”  "></a></p>
+<p><a href="https://github.com/rkanci323/ntdtv/blob/master/gb/2020/07/28/a102904731.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京东城六月飞雪 党媒“辟谣”露破绽（视频）>-009fcc?logoWidth=1" title="北京东城六月飞雪 党媒“辟谣”露破绽（视频）  " alt="北京东城六月飞雪 党媒“辟谣”露破绽（视频）  "></a></p>
+<p><a href="https://github.com/rkanci323/ntdtv/blob/master/gb/2020/07/29/a102905411.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：惊涛骇浪终到来 中共高官何时梦醒？ >-009fcc?logoWidth=1" title="李正宽：惊涛骇浪终到来 中共高官何时梦醒？  " alt="李正宽：惊涛骇浪终到来 中共高官何时梦醒？  "></a></p>
 <p><a href="https://github.com/rkanci323/djy/blob/master/gb/20/7/28/n12290426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/A股主力资金现出逃潮 连续6日净流出    >-009fcc?logoWidth=1" title="A股主力资金现出逃潮 连续6日净流出  " alt="A股主力资金现出逃潮 连续6日净流出  "></a></p>
 <p><a href="https://github.com/rkanci323/djy/blob/master/gb/20/7/28/n12290288.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连核酸检测再爆冲突 现暂停        >-009fcc?logoWidth=1" title="大连核酸检测再爆冲突 现暂停  " alt="大连核酸检测再爆冲突 现暂停  "></a></p>
-<p><a href="https://github.com/rkanci323/ntdtv/blob/master/gb/2020/07/28/a102904458.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐娟背景复杂 疑赴美牵线人曝光       >-009fcc?logoWidth=1" title="唐娟背景复杂 疑赴美牵线人曝光  " alt="唐娟背景复杂 疑赴美牵线人曝光  "></a></p>
-<p><a href="https://github.com/rkanci323/ntdtv/blob/master/gb/2020/07/28/a102904440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：谁在搅黄习近平的“中国梦”%3F     >-009fcc?logoWidth=1" title="美媒：谁在搅黄习近平的“中国梦”?  " alt="美媒：谁在搅黄习近平的“中国梦”?  "></a></p>
+<p><a href="https://github.com/rkanci323/ntdtv/blob/master/gb/2020/07/29/a102905122.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：中共四面楚歌 缺有实力“真朋友”   >-009fcc?logoWidth=1" title="港媒：中共四面楚歌 缺有实力“真朋友”  " alt="港媒：中共四面楚歌 缺有实力“真朋友”  "></a></p>
+<p><a href="https://github.com/rkanci323/ntdtv/blob/master/gb/2020/07/29/a102905044.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐娟视频出庭不发一语/王毅砸锅反升官？/殃视>-009fcc?logoWidth=1" title="唐娟视频出庭不发一语/王毅砸锅反升官？/殃视头条呼吁备战  " alt="唐娟视频出庭不发一语/王毅砸锅反升官？/殃视头条呼吁备战  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rkanci323/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rkanci323/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rkanci323/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rkanci323/www/blob/master/README.md?f#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/rkanci323/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rkanci323/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rkanci323/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rkanci323/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rkanci323/www/blob/master/README.md?b#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/rkanci323/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/q7777">git.io/q7777</a></div>
+<div align="center">短网址: <a href="https://git.io/rpppp">git.io/rpppp</a></div>
 
