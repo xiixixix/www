@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/sqmopf394/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/sqmopf394/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fdddd">git.io/fdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/cdd">x.co/cdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jxxxx">git.io/jxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p2p">x.co/p2p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -35,8 +35,8 @@
 <p><a href="https://github.com/sqmopf394/djy/blob/master/gb/20/7/28/n12290486.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情蔓延 北京最大小区现病例        >-009fcc?logoWidth=1" title="疫情蔓延 北京最大小区现病例  " alt="疫情蔓延 北京最大小区现病例  "></a></p>
 <p><a href="https://github.com/sqmopf394/djy/blob/master/gb/20/7/28/n12289882.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邢天行：这个最黑暗日子里最耀眼的神奇    >-009fcc?logoWidth=1" title="邢天行：这个最黑暗日子里最耀眼的神奇  " alt="邢天行：这个最黑暗日子里最耀眼的神奇  "></a></p>
 <p><a href="https://github.com/sqmopf394/djy/blob/master/gb/20/7/28/n12290555.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/防出逃？武汉加强管控公职人员因私出国证件  >-009fcc?logoWidth=1" title="防出逃？武汉加强管控公职人员因私出国证件  " alt="防出逃？武汉加强管控公职人员因私出国证件  "></a></p>
-<p><a href="https://github.com/sqmopf394/djy/blob/master/gb/20/7/28/n12290052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官方被指乌鸦嘴 好的不灵坏的灵     >-009fcc?logoWidth=1" title="中共官方被指乌鸦嘴 好的不灵坏的灵  " alt="中共官方被指乌鸦嘴 好的不灵坏的灵  "></a></p>
 <p><a href="https://github.com/sqmopf394/djy/blob/master/gb/20/7/29/n12290939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共加紧囤粮 暴露粮食危机？        >-009fcc?logoWidth=1" title="中共加紧囤粮 暴露粮食危机？  " alt="中共加紧囤粮 暴露粮食危机？  "></a></p>
+<p><a href="https://github.com/sqmopf394/djy/blob/master/gb/20/7/28/n12290052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官方被指乌鸦嘴 好的不灵坏的灵     >-009fcc?logoWidth=1" title="中共官方被指乌鸦嘴 好的不灵坏的灵  " alt="中共官方被指乌鸦嘴 好的不灵坏的灵  "></a></p>
 <p><a href="https://github.com/sqmopf394/djy/blob/master/gb/20/7/28/n12290493.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连封小区 居民面临断菜断粮        >-009fcc?logoWidth=1" title="大连封小区 居民面临断菜断粮  " alt="大连封小区 居民面临断菜断粮  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/sqmopf394/djy/blob/master/gb/20/7/28/n12290052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官方乌鸦嘴 好的不灵坏的灵       >-009fcc?logoWidth=1" title="中共官方乌鸦嘴 好的不灵坏的灵  " alt="中共官方乌鸦嘴 好的不灵坏的灵  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/sqmopf394/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/sqmopf394/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/sqmopf394/www/blob/master/README.md?v#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/sqmopf394/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/sqmopf394/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/sqmopf394/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/sqmopf394/www/blob/master/README.md?x#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/sqmopf394/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fdddd">git.io/fdddd</a></div>
+<div align="center">短网址: <a href="https://git.io/jxxxx">git.io/jxxxx</a></div>
 
