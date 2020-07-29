@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ouvbwa307/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ouvbwa307/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/piiii">git.io/piiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ydd">x.co/ydd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/agggg">git.io/agggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/maa">x.co/maa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905227.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京高层防美空袭？网民笑了：老百姓不用怕  >-009fcc?logoWidth=1" title="北京高层防美空袭？网民笑了：老百姓不用怕  " alt="北京高层防美空袭？网民笑了：老百姓不用怕  "></a></p>
 <p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905210.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余茂春助川普“灭共”惹恼北京 重庆母校急除状>-009fcc?logoWidth=1" title="余茂春助川普“灭共”惹恼北京 重庆母校急除状元名  " alt="余茂春助川普“灭共”惹恼北京 重庆母校急除状元名  "></a></p>
 <p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/太恐怖！重庆道路突塌 2楼深巨坑瞬间吞两人(>-009fcc?logoWidth=1" title="太恐怖！重庆道路突塌 2楼深巨坑瞬间吞两人(视频)  " alt="太恐怖！重庆道路突塌 2楼深巨坑瞬间吞两人(视频)  "></a></p>
+<p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/难以为继？华为宣布全球5G部署“告一段落” >-009fcc?logoWidth=1" title="难以为继？华为宣布全球5G部署“告一段落”  " alt="难以为继？华为宣布全球5G部署“告一段落”  "></a></p>
 <p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905693.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国7月31日起恢复对55类中国商品征税  >-009fcc?logoWidth=1" title="美国7月31日起恢复对55类中国商品征税  " alt="美国7月31日起恢复对55类中国商品征税  "></a></p>
 <p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905656.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热评：成都，也曾有配得上庄祖宜的教养    >-009fcc?logoWidth=1" title="热评：成都，也曾有配得上庄祖宜的教养  " alt="热评：成都，也曾有配得上庄祖宜的教养  "></a></p>
 <p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉疫情第二起索赔诉状成功递交 起诉政府不作>-009fcc?logoWidth=1" title="武汉疫情第二起索赔诉状成功递交 起诉政府不作为  " alt="武汉疫情第二起索赔诉状成功递交 起诉政府不作为  "></a></p>
 <p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905623.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海六月也飞雪 惊雷如爆3小时电闪4千次  >-009fcc?logoWidth=1" title="上海六月也飞雪 惊雷如爆3小时电闪4千次  " alt="上海六月也飞雪 惊雷如爆3小时电闪4千次  "></a></p>
-<p><a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/2020/07/29/a102905631.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共操纵黑客 攻击梵蒂冈和香港教区网络   >-009fcc?logoWidth=1" title="中共操纵黑客 攻击梵蒂冈和香港教区网络  " alt="中共操纵黑客 攻击梵蒂冈和香港教区网络  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/24/n12280824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习恭维之计失效 川普发反共檄文       >-009fcc?logoWidth=1" title="习恭维之计失效 川普发反共檄文  " alt="习恭维之计失效 川普发反共檄文  "></a></p>
 <p><a href="https://github.com/ouvbwa307/djy/blob/master/gb/20/7/28/n12289743.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平要保政权 北大教授：权贵阶层用脚投票 >-009fcc?logoWidth=1" title="习近平要保政权 北大教授：权贵阶层用脚投票  " alt="习近平要保政权 北大教授：权贵阶层用脚投票  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ouvbwa307/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ouvbwa307/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ouvbwa307/www/blob/master/README.md?y#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ouvbwa307/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ouvbwa307/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ouvbwa307/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ouvbwa307/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ouvbwa307/www/blob/master/README.md?t#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ouvbwa307/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/piiii">git.io/piiii</a></div>
+<div align="center">短网址: <a href="https://git.io/agggg">git.io/agggg</a></div>
 
