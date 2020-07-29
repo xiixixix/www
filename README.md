@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/sqmopf394/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/sqmopf394/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cnnnn">git.io/cnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2aa">x.co/2aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jjjjjj">git.io/jjjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u33">x.co/u33</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/2020/07/28/a102904379.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平保党没人听？/中共接班人摆上台    >-009fcc?logoWidth=1" title="习近平保党没人听？/中共接班人摆上台  " alt="习近平保党没人听？/中共接班人摆上台  "></a></p>
 <p><a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/2020/07/28/a102904389.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/间谍猖獗 美或关更多中领馆         >-009fcc?logoWidth=1" title="间谍猖獗 美或关更多中领馆  " alt="间谍猖獗 美或关更多中领馆  "></a></p>
 <p><a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/2020/07/28/a102904326.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国制裁风暴来袭 香港官员账户被外资银行关闭>-009fcc?logoWidth=1" title="美国制裁风暴来袭 香港官员账户被外资银行关闭  " alt="美国制裁风暴来袭 香港官员账户被外资银行关闭  "></a></p>
+<p><a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/2020/07/29/a102905171.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南海紧张升温 越南向日本借钱建6艘巡逻舰  >-009fcc?logoWidth=1" title="南海紧张升温 越南向日本借钱建6艘巡逻舰  " alt="南海紧张升温 越南向日本借钱建6艘巡逻舰  "></a></p>
 <p><a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/2020/07/29/a102905068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁自上而下 从中共高官开始        >-009fcc?logoWidth=1" title="制裁自上而下 从中共高官开始  " alt="制裁自上而下 从中共高官开始  "></a></p>
 <p><a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/2020/07/29/a102905156.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国居民收到中国神秘种子包裹 27州发出警告>-009fcc?logoWidth=1" title="美国居民收到中国神秘种子包裹 27州发出警告  " alt="美国居民收到中国神秘种子包裹 27州发出警告  "></a></p>
 <p><a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/2020/07/29/a102905149.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉一马弊案 纳吉布7项罪名成立遭判12年  >-009fcc?logoWidth=1" title="涉一马弊案 纳吉布7项罪名成立遭判12年  " alt="涉一马弊案 纳吉布7项罪名成立遭判12年  "></a></p>
 <p><a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/2020/07/29/a102905128.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美澳将组建军事同盟 共同应对中共挑战    >-009fcc?logoWidth=1" title="美澳将组建军事同盟 共同应对中共挑战  " alt="美澳将组建军事同盟 共同应对中共挑战  "></a></p>
-<p><a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/2020/07/29/a102905074.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/司法部长众院作证 抨民主党及媒体歪曲暴乱事实>-009fcc?logoWidth=1" title="司法部长众院作证 抨民主党及媒体歪曲暴乱事实  " alt="司法部长众院作证 抨民主党及媒体歪曲暴乱事实  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/sqmopf394/djy/blob/master/gb/20/7/28/n12289743.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平要保政权 北大教授：权贵阶层用脚投票 >-009fcc?logoWidth=1" title="习近平要保政权 北大教授：权贵阶层用脚投票  " alt="习近平要保政权 北大教授：权贵阶层用脚投票  "></a></p>
 <p><a href="https://github.com/sqmopf394/djy/blob/master/gb/20/7/28/n12290545.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国从31日起恢复对55类中国商品征税   >-009fcc?logoWidth=1" title="美国从31日起恢复对55类中国商品征税  " alt="美国从31日起恢复对55类中国商品征税  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/sqmopf394/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/sqmopf394/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/sqmopf394/www/blob/master/README.md?n#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/sqmopf394/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/sqmopf394/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/sqmopf394/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/sqmopf394/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/sqmopf394/www/blob/master/README.md?p#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/sqmopf394/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/cnnnn">git.io/cnnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/jjjjjj">git.io/jjjjjj</a></div>
 
