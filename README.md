@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hvezsg3018/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hvezsg3018/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/m8888">git.io/m8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aae">x.co/aae</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/daaaa">git.io/daaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/4445">x.co/4445</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -42,11 +42,11 @@
 <p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102906166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦没消失，川普两张王牌在手，中共会铤而走>-009fcc?logoWidth=1" title="闫丽梦没消失，川普两张王牌在手，中共会铤而走险“武统台湾”吗？  " alt="闫丽梦没消失，川普两张王牌在手，中共会铤而走险“武统台湾”吗？  "></a></p>
 <p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102905993.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普杀鸡儆猴？美媒爆中共更大间谍窝     >-009fcc?logoWidth=1" title="川普杀鸡儆猴？美媒爆中共更大间谍窝  " alt="川普杀鸡儆猴？美媒爆中共更大间谍窝  "></a></p>
 <p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/29/a102905690.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京六月雪 应和推背图四十一象       >-009fcc?logoWidth=1" title="北京六月雪 应和推背图四十一象  " alt="北京六月雪 应和推背图四十一象  "></a></p>
-<p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/29/n12292672.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平亚投行未提大撒币与一带一路 释何信号？>-009fcc?logoWidth=1" title="习近平亚投行未提大撒币与一带一路 释何信号？  " alt="习近平亚投行未提大撒币与一带一路 释何信号？  "></a></p>
-<p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/30/n12293950.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/建议将同意捐赠器官作默认选项 复旦教授挨轰 >-009fcc?logoWidth=1" title="建议将同意捐赠器官作默认选项 复旦教授挨轰  " alt="建议将同意捐赠器官作默认选项 复旦教授挨轰  "></a></p>
-<p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102906082.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦再接受采访 爆中共病毒来源      >-009fcc?logoWidth=1" title="闫丽梦再接受采访 爆中共病毒来源  " alt="闫丽梦再接受采访 爆中共病毒来源  "></a></p>
-<p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/30/n12294125.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美智库称新冷战不足道中美险境 专家如何看  >-009fcc?logoWidth=1" title="美智库称新冷战不足道中美险境 专家如何看  " alt="美智库称新冷战不足道中美险境 专家如何看  "></a></p>
+<p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/24/n12280824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习恭维之计失效 川普发反共檄文       >-009fcc?logoWidth=1" title="习恭维之计失效 川普发反共檄文  " alt="习恭维之计失效 川普发反共檄文  "></a></p>
 <p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/29/n12293406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：“破产了的极权主义意识形态”害死人 >-009fcc?logoWidth=1" title="王友群：“破产了的极权主义意识形态”害死人  " alt="王友群：“破产了的极权主义意识形态”害死人  "></a></p>
+<p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102906082.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦再接受采访 爆中共病毒来源      >-009fcc?logoWidth=1" title="闫丽梦再接受采访 爆中共病毒来源  " alt="闫丽梦再接受采访 爆中共病毒来源  "></a></p>
+<p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/30/n12293985.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国关中领馆效应 亲共者大难临头各自飞   >-009fcc?logoWidth=1" title="美国关中领馆效应 亲共者大难临头各自飞  " alt="美国关中领馆效应 亲共者大难临头各自飞  "></a></p>
+<p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/30/n12294335.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：中共打压香港民主派学者 做贼心虚   >-009fcc?logoWidth=1" title="田云：中共打压香港民主派学者 做贼心虚  " alt="田云：中共打压香港民主派学者 做贼心虚  "></a></p>
 <p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/29/a102905623.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海六月也飞雪 惊雷如爆炸3小时电闪4千次 >-009fcc?logoWidth=1" title="上海六月也飞雪 惊雷如爆炸3小时电闪4千次  " alt="上海六月也飞雪 惊雷如爆炸3小时电闪4千次  "></a></p>
 <p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102906106.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/奇葩《平安经》难保平安 吉林省公安副厅长被查>-009fcc?logoWidth=1" title="奇葩《平安经》难保平安 吉林省公安副厅长被查  " alt="奇葩《平安经》难保平安 吉林省公安副厅长被查  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hvezsg3018/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/hvezsg3018/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hvezsg3018/www/blob/master/README.md?o#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/hvezsg3018/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hvezsg3018/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/hvezsg3018/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hvezsg3018/www/blob/master/README.md?h#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/hvezsg3018/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/m8888">git.io/m8888</a></div>
+<div align="center">短网址: <a href="https://git.io/daaaa">git.io/daaaa</a></div>
 
