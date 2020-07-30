@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hvezsg3018/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hvezsg3018/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qrrrr">git.io/qrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppy">x.co/ppy</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kffff">git.io/kffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aia">x.co/aia</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -25,9 +25,9 @@
 <p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102906140.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/路人抓拍纽约街头婚礼美照 推特寻找新人爆红 >-009fcc?logoWidth=1" title="路人抓拍纽约街头婚礼美照 推特寻找新人爆红  " alt="路人抓拍纽约街头婚礼美照 推特寻找新人爆红  "></a></p>
 <p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102906246.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“光复香港”成驱魔符 韩电竞玩家吓退中国对手>-009fcc?logoWidth=1" title="“光复香港”成驱魔符 韩电竞玩家吓退中国对手  " alt="“光复香港”成驱魔符 韩电竞玩家吓退中国对手  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/30/n12293829.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆舞女替代战狼外交？北京飘雪       >-009fcc?logoWidth=1" title="新疆舞女替代战狼外交？北京飘雪  " alt="新疆舞女替代战狼外交？北京飘雪  "></a></p>
 <p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/29/n12293305.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉坠楼护士生前留言曝光 曾曝抗疫黑幕   >-009fcc?logoWidth=1" title="武汉坠楼护士生前留言曝光 曾曝抗疫黑幕  " alt="武汉坠楼护士生前留言曝光 曾曝抗疫黑幕  "></a></p>
 <p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/29/n12293489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美澳军事合作 欧盟27国制裁中共      >-009fcc?logoWidth=1" title="美澳军事合作 欧盟27国制裁中共  " alt="美澳军事合作 欧盟27国制裁中共  "></a></p>
-<p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/30/n12293829.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆舞女替代战狼外交？北京飘雪       >-009fcc?logoWidth=1" title="新疆舞女替代战狼外交？北京飘雪  " alt="新疆舞女替代战狼外交？北京飘雪  "></a></p>
 <p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/29/n12293392.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：唐娟们到底要盗窃什么机密？      >-009fcc?logoWidth=1" title="杨威：唐娟们到底要盗窃什么机密？  " alt="杨威：唐娟们到底要盗窃什么机密？  "></a></p>
 <p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/24/n12280824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习恭维之计失效 川普发反共檄文       >-009fcc?logoWidth=1" title="习恭维之计失效 川普发反共檄文  " alt="习恭维之计失效 川普发反共檄文  "></a></p>
 <p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/29/n12292544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：内斗加剧 习近平急于展示军权     >-009fcc?logoWidth=1" title="钟原：内斗加剧 习近平急于展示军权  " alt="钟原：内斗加剧 习近平急于展示军权  "></a></p>
@@ -40,13 +40,15 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/29/n12293156.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/染疫者逛了半个市 福州进入战时状态     >-009fcc?logoWidth=1" title="染疫者逛了半个市 福州进入战时状态  " alt="染疫者逛了半个市 福州进入战时状态  "></a></p>
 <p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102906166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦没消失，川普两张王牌在手，中共会铤而走>-009fcc?logoWidth=1" title="闫丽梦没消失，川普两张王牌在手，中共会铤而走险“武统台湾”吗？  " alt="闫丽梦没消失，川普两张王牌在手，中共会铤而走险“武统台湾”吗？  "></a></p>
-<p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/29/n12292672.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平亚投行未提大撒币与一带一路 释何信号？>-009fcc?logoWidth=1" title="习近平亚投行未提大撒币与一带一路 释何信号？  " alt="习近平亚投行未提大撒币与一带一路 释何信号？  "></a></p>
+<p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102905993.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普杀鸡儆猴？美媒爆中共更大间谍窝     >-009fcc?logoWidth=1" title="川普杀鸡儆猴？美媒爆中共更大间谍窝  " alt="川普杀鸡儆猴？美媒爆中共更大间谍窝  "></a></p>
 <p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/29/a102905690.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京六月雪 应和推背图四十一象       >-009fcc?logoWidth=1" title="北京六月雪 应和推背图四十一象  " alt="北京六月雪 应和推背图四十一象  "></a></p>
+<p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/29/n12292672.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平亚投行未提大撒币与一带一路 释何信号？>-009fcc?logoWidth=1" title="习近平亚投行未提大撒币与一带一路 释何信号？  " alt="习近平亚投行未提大撒币与一带一路 释何信号？  "></a></p>
 <p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/29/n12293406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：“破产了的极权主义意识形态”害死人 >-009fcc?logoWidth=1" title="王友群：“破产了的极权主义意识形态”害死人  " alt="王友群：“破产了的极权主义意识形态”害死人  "></a></p>
+<p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102906082.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦再接受采访 爆中共病毒来源      >-009fcc?logoWidth=1" title="闫丽梦再接受采访 爆中共病毒来源  " alt="闫丽梦再接受采访 爆中共病毒来源  "></a></p>
 <p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/30/n12294125.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美智库称新冷战不足道中美险境 专家如何看  >-009fcc?logoWidth=1" title="美智库称新冷战不足道中美险境 专家如何看  " alt="美智库称新冷战不足道中美险境 专家如何看  "></a></p>
 <p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/29/n12292429.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共避提唐娟 与力挺孟晚舟形成鲜明对比   >-009fcc?logoWidth=1" title="中共避提唐娟 与力挺孟晚舟形成鲜明对比  " alt="中共避提唐娟 与力挺孟晚舟形成鲜明对比  "></a></p>
-<p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102906106.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/奇葩《平安经》难保平安 吉林省公安副厅长被查>-009fcc?logoWidth=1" title="奇葩《平安经》难保平安 吉林省公安副厅长被查  " alt="奇葩《平安经》难保平安 吉林省公安副厅长被查  "></a></p>
 <p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/29/a102905623.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海六月也飞雪 惊雷如爆炸3小时电闪4千次 >-009fcc?logoWidth=1" title="上海六月也飞雪 惊雷如爆炸3小时电闪4千次  " alt="上海六月也飞雪 惊雷如爆炸3小时电闪4千次  "></a></p>
+<p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102906106.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/奇葩《平安经》难保平安 吉林省公安副厅长被查>-009fcc?logoWidth=1" title="奇葩《平安经》难保平安 吉林省公安副厅长被查  " alt="奇葩《平安经》难保平安 吉林省公安副厅长被查  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -484,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hvezsg3018/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/hvezsg3018/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hvezsg3018/www/blob/master/README.md?h#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/hvezsg3018/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hvezsg3018/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/hvezsg3018/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hvezsg3018/www/blob/master/README.md?a#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/hvezsg3018/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qrrrr">git.io/qrrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/kffff">git.io/kffff</a></div>
 
