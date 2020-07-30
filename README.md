@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hvezsg3018/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hvezsg3018/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uuuuu">git.io/uuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9944">x.co/9944</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rqqqq">git.io/rqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/uqq">x.co/uqq</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102906143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一本“奇书”被热捧 再现中共官场现形记   >-009fcc?logoWidth=1" title="一本“奇书”被热捧 再现中共官场现形记  " alt="一本“奇书”被热捧 再现中共官场现形记  "></a></p>
 <p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102906123.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/关闭中领馆后美国拟再出招 削减中共驻美外交官>-009fcc?logoWidth=1" title="关闭中领馆后美国拟再出招 削减中共驻美外交官  " alt="关闭中领馆后美国拟再出招 削减中共驻美外交官  "></a></p>
 <p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102906102.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉护士神秘坠亡 传曾爆医院疫情黑幕    >-009fcc?logoWidth=1" title="武汉护士神秘坠亡 传曾爆医院疫情黑幕  " alt="武汉护士神秘坠亡 传曾爆医院疫情黑幕  "></a></p>
+<p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102906553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦：中共制造病毒 又伪造基因序列转移视线>-009fcc?logoWidth=1" title="闫丽梦：中共制造病毒 又伪造基因序列转移视线  " alt="闫丽梦：中共制造病毒 又伪造基因序列转移视线  "></a></p>
 <p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102906539.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/越南爆疫惊现致命新毒株 民间疑来自中国偷渡客>-009fcc?logoWidth=1" title="越南爆疫惊现致命新毒株 民间疑来自中国偷渡客  " alt="越南爆疫惊现致命新毒株 民间疑来自中国偷渡客  "></a></p>
 <p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102906424.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国不明种子邮件泛滥欧美  台湾收到培养土 >-009fcc?logoWidth=1" title="中国不明种子邮件泛滥欧美  台湾收到培养土  " alt="中国不明种子邮件泛滥欧美  台湾收到培养土  "></a></p>
 <p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102906489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中华民国前总统李登辉去世 享年97岁    >-009fcc?logoWidth=1" title="中华民国前总统李登辉去世 享年97岁  " alt="中华民国前总统李登辉去世 享年97岁  "></a></p>
 <p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102906469.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美智库白皮书：中共靠“黑白两道”洗脑国际  >-009fcc?logoWidth=1" title="美智库白皮书：中共靠“黑白两道”洗脑国际  " alt="美智库白皮书：中共靠“黑白两道”洗脑国际  "></a></p>
-<p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102906536.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法轮功案不许评查 大纪元获大量中共内部文件 >-009fcc?logoWidth=1" title="法轮功案不许评查 大纪元获大量中共内部文件  " alt="法轮功案不许评查 大纪元获大量中共内部文件  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/29/n12293489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美澳军事合作 欧盟27国制裁中共      >-009fcc?logoWidth=1" title="美澳军事合作 欧盟27国制裁中共  " alt="美澳军事合作 欧盟27国制裁中共  "></a></p>
 <p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/30/n12293829.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆舞女替代战狼外交？北京飘雪       >-009fcc?logoWidth=1" title="新疆舞女替代战狼外交？北京飘雪  " alt="新疆舞女替代战狼外交？北京飘雪  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hvezsg3018/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/hvezsg3018/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hvezsg3018/www/blob/master/README.md?o#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/hvezsg3018/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hvezsg3018/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/hvezsg3018/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hvezsg3018/www/blob/master/README.md?b#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/hvezsg3018/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/uuuuu">git.io/uuuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/rqqqq">git.io/rqqqq</a></div>
 
