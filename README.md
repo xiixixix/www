@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/oeojha307/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/oeojha307/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tbbbb">git.io/tbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppv">x.co/ppv</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e7777">git.io/e7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3aa">x.co/3aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,14 +41,13 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12293156.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/染疫者逛了半个市 福州进入战时状态     >-009fcc?logoWidth=1" title="染疫者逛了半个市 福州进入战时状态  " alt="染疫者逛了半个市 福州进入战时状态  "></a></p>
 <p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12292672.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平亚投行未提大撒币与一带一路 释何信号？>-009fcc?logoWidth=1" title="习近平亚投行未提大撒币与一带一路 释何信号？  " alt="习近平亚投行未提大撒币与一带一路 释何信号？  "></a></p>
-<p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102906166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦没消失，川普两张王牌在手，中共会铤而走>-009fcc?logoWidth=1" title="闫丽梦没消失，川普两张王牌在手，中共会铤而走险“武统台湾”吗？  " alt="闫丽梦没消失，川普两张王牌在手，中共会铤而走险“武统台湾”吗？  "></a></p>
 <p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/11/n12249199.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共三桶油华尔街圈钱 背后黑幕鲜为人知   >-009fcc?logoWidth=1" title="中共三桶油华尔街圈钱 背后黑幕鲜为人知  " alt="中共三桶油华尔街圈钱 背后黑幕鲜为人知  "></a></p>
+<p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102906166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦没消失，川普两张王牌在手，中共会铤而走>-009fcc?logoWidth=1" title="闫丽梦没消失，川普两张王牌在手，中共会铤而走险“武统台湾”吗？  " alt="闫丽梦没消失，川普两张王牌在手，中共会铤而走险“武统台湾”吗？  "></a></p>
 <p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/29/a102905623.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海六月也飞雪 惊雷如爆炸3小时电闪4千次 >-009fcc?logoWidth=1" title="上海六月也飞雪 惊雷如爆炸3小时电闪4千次  " alt="上海六月也飞雪 惊雷如爆炸3小时电闪4千次  "></a></p>
-<p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102906144.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/戴耀廷遭解雇 港学术自由终结        >-009fcc?logoWidth=1" title="戴耀廷遭解雇 港学术自由终结  " alt="戴耀廷遭解雇 港学术自由终结  "></a></p>
 <p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12293406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：“破产了的极权主义意识形态”害死人 >-009fcc?logoWidth=1" title="王友群：“破产了的极权主义意识形态”害死人  " alt="王友群：“破产了的极权主义意识形态”害死人  "></a></p>
 <p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12292669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美提案拟禁外国间谍及家人获签证 剑指中共  >-009fcc?logoWidth=1" title="美提案拟禁外国间谍及家人获签证 剑指中共  " alt="美提案拟禁外国间谍及家人获签证 剑指中共  "></a></p>
+<p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102906144.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/戴耀廷遭解雇 港学术自由终结        >-009fcc?logoWidth=1" title="戴耀廷遭解雇 港学术自由终结  " alt="戴耀廷遭解雇 港学术自由终结  "></a></p>
 <p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102906021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/选择华为5G 美国警告巴西：后果自负    >-009fcc?logoWidth=1" title="选择华为5G 美国警告巴西：后果自负  " alt="选择华为5G 美国警告巴西：后果自负  "></a></p>
-<p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102906002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“五眼”变“六眼”？ 五眼联盟欢迎日本加入 >-009fcc?logoWidth=1" title="“五眼”变“六眼”？ 五眼联盟欢迎日本加入  " alt="“五眼”变“六眼”？ 五眼联盟欢迎日本加入  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/oeojha307/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/oeojha307/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/oeojha307/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/oeojha307/www/blob/master/README.md?v#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/oeojha307/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/oeojha307/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/oeojha307/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/oeojha307/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/oeojha307/www/blob/master/README.md?h#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/oeojha307/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/tbbbb">git.io/tbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/e7777">git.io/e7777</a></div>
 
