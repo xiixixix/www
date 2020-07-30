@@ -10,17 +10,17 @@
 <div align="center">
 <a target="_blank" href="https://github.com/oeojha307/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/oeojha307/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/izzzz">git.io/izzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp9">x.co/pp9</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qgggg">git.io/qgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/qdd">x.co/qdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102906189.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国政府罕见系列行动 公开声援法轮功    >-009fcc?logoWidth=1" title="美国政府罕见系列行动 公开声援法轮功  " alt="美国政府罕见系列行动 公开声援法轮功  "></a></p>
+<p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102906123.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/关闭中领馆后美国拟再出招 削减中共驻美外交官>-009fcc?logoWidth=1" title="关闭中领馆后美国拟再出招 削减中共驻美外交官  " alt="关闭中领馆后美国拟再出招 削减中共驻美外交官  "></a></p>
 <p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102906102.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉护士神秘坠亡 传曾爆医院疫情黑幕    >-009fcc?logoWidth=1" title="武汉护士神秘坠亡 传曾爆医院疫情黑幕  " alt="武汉护士神秘坠亡 传曾爆医院疫情黑幕  "></a></p>
 <p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102906050.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“防止台湾遭进犯法案”授权美总统 3情况可对>-009fcc?logoWidth=1" title="“防止台湾遭进犯法案”授权美总统 3情况可对中共动武  " alt="“防止台湾遭进犯法案”授权美总统 3情况可对中共动武  "></a></p>
 <p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102906031.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平满面愁云 罕见只给一人授衔      >-009fcc?logoWidth=1" title="习近平满面愁云 罕见只给一人授衔  " alt="习近平满面愁云 罕见只给一人授衔  "></a></p>
 <p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102905993.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普杀鸡儆猴？美媒爆中共更大间谍窝     >-009fcc?logoWidth=1" title="川普杀鸡儆猴？美媒爆中共更大间谍窝  " alt="川普杀鸡儆猴？美媒爆中共更大间谍窝  "></a></p>
-<p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/29/a102905878.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/没钱了？ 习近平亚投行致辞未提大撒币    >-009fcc?logoWidth=1" title="没钱了？ 习近平亚投行致辞未提大撒币  " alt="没钱了？ 习近平亚投行致辞未提大撒币  "></a></p>
-<p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/29/a102905730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐娟走出中领馆时 女儿已被送回中国疑成人质 >-009fcc?logoWidth=1" title="唐娟走出中领馆时 女儿已被送回中国疑成人质  " alt="唐娟走出中领馆时 女儿已被送回中国疑成人质  "></a></p>
-<p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102906123.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/关闭中领馆后美国拟再出招 削减中共驻美外交官>-009fcc?logoWidth=1" title="关闭中领馆后美国拟再出招 削减中共驻美外交官  " alt="关闭中领馆后美国拟再出招 削减中共驻美外交官  "></a></p>
+<p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102906143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一本“奇书”被热捧 再现中共官场现形记   >-009fcc?logoWidth=1" title="一本“奇书”被热捧 再现中共官场现形记  " alt="一本“奇书”被热捧 再现中共官场现形记  "></a></p>
 <p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102906126.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美一货运列车出轨 引发列车燃烧 多节车厢坠地>-009fcc?logoWidth=1" title="美一货运列车出轨 引发列车燃烧 多节车厢坠地  " alt="美一货运列车出轨 引发列车燃烧 多节车厢坠地  "></a></p>
 <p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102906106.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/奇葩《平安经》难保平安 吉林省公安副厅长被查>-009fcc?logoWidth=1" title="奇葩《平安经》难保平安 吉林省公安副厅长被查  " alt="奇葩《平安经》难保平安 吉林省公安副厅长被查  "></a></p>
 <p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102906082.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦再接受采访 爆中共病毒来源      >-009fcc?logoWidth=1" title="闫丽梦再接受采访 爆中共病毒来源  " alt="闫丽梦再接受采访 爆中共病毒来源  "></a></p>
@@ -51,6 +51,7 @@
 <p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12293406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：“破产了的极权主义意识形态”害死人 >-009fcc?logoWidth=1" title="王友群：“破产了的极权主义意识形态”害死人  " alt="王友群：“破产了的极权主义意识形态”害死人  "></a></p>
 <p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12292669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美提案拟禁外国间谍及家人获签证 剑指中共  >-009fcc?logoWidth=1" title="美提案拟禁外国间谍及家人获签证 剑指中共  " alt="美提案拟禁外国间谍及家人获签证 剑指中共  "></a></p>
 <p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102906055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/CCTV把人变狗【红与黑！上】       >-009fcc?logoWidth=1" title="CCTV把人变狗【红与黑！上】  " alt="CCTV把人变狗【红与黑！上】  "></a></p>
+<p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/29/a102905730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐娟走出中领馆时 女儿已被送回中国疑成人质 >-009fcc?logoWidth=1" title="唐娟走出中领馆时 女儿已被送回中国疑成人质  " alt="唐娟走出中领馆时 女儿已被送回中国疑成人质  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -488,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/oeojha307/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/oeojha307/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/oeojha307/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/oeojha307/www/blob/master/README.md?a#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/oeojha307/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/oeojha307/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/oeojha307/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/oeojha307/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/oeojha307/www/blob/master/README.md?f#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/oeojha307/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/izzzz">git.io/izzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/qgggg">git.io/qgggg</a></div>
 
