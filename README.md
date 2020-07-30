@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/oeojha307/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/oeojha307/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/edddd">git.io/edddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a8a">x.co/a8a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eeeeeeee">git.io/eeeeeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ydd">x.co/ydd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102906050.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“防止台湾遭进犯法案”授权美总统 3情况可对>-009fcc?logoWidth=1" title="“防止台湾遭进犯法案”授权美总统 3情况可对中共动武  " alt="“防止台湾遭进犯法案”授权美总统 3情况可对中共动武  "></a></p>
 <p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102906031.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平满面愁云 罕见只给一人授衔      >-009fcc?logoWidth=1" title="习近平满面愁云 罕见只给一人授衔  " alt="习近平满面愁云 罕见只给一人授衔  "></a></p>
 <p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102905993.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普杀鸡儆猴？美媒爆中共更大间谍窝     >-009fcc?logoWidth=1" title="川普杀鸡儆猴？美媒爆中共更大间谍窝  " alt="川普杀鸡儆猴？美媒爆中共更大间谍窝  "></a></p>
 <p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/29/a102905878.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/没钱了？ 习近平亚投行致辞未提大撒币    >-009fcc?logoWidth=1" title="没钱了？ 习近平亚投行致辞未提大撒币  " alt="没钱了？ 习近平亚投行致辞未提大撒币  "></a></p>
 <p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/29/a102905730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐娟走出中领馆时 女儿已被送回中国疑成人质 >-009fcc?logoWidth=1" title="唐娟走出中领馆时 女儿已被送回中国疑成人质  " alt="唐娟走出中领馆时 女儿已被送回中国疑成人质  "></a></p>
 <p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/29/a102905494.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润委托3律师 处理“嫖娼”罪名     >-009fcc?logoWidth=1" title="许章润委托3律师 处理“嫖娼”罪名  " alt="许章润委托3律师 处理“嫖娼”罪名  "></a></p>
-<p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/29/a102905372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦吁推翻中共政权/袁弓夷：围剿中共正式开>-009fcc?logoWidth=1" title="闫丽梦吁推翻中共政权/袁弓夷：围剿中共正式开始  " alt="闫丽梦吁推翻中共政权/袁弓夷：围剿中共正式开始  "></a></p>
-<p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102906050.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“防止台湾遭进犯法案”授权美总统 3情况可对>-009fcc?logoWidth=1" title="“防止台湾遭进犯法案”授权美总统 3情况可对中共动武  " alt="“防止台湾遭进犯法案”授权美总统 3情况可对中共动武  "></a></p>
 <p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102906049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/餐厅爆炸几夷为平地 日本郡山市已知酿1死17>-009fcc?logoWidth=1" title="餐厅爆炸几夷为平地 日本郡山市已知酿1死17伤  " alt="餐厅爆炸几夷为平地 日本郡山市已知酿1死17伤  "></a></p>
 <p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102906021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/选择华为5G 美国警告巴西：后果自负    >-009fcc?logoWidth=1" title="选择华为5G 美国警告巴西：后果自负  " alt="选择华为5G 美国警告巴西：后果自负  "></a></p>
 <p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102906002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“五眼”变“六眼”？ 五眼联盟欢迎日本加入 >-009fcc?logoWidth=1" title="“五眼”变“六眼”？ 五眼联盟欢迎日本加入  " alt="“五眼”变“六眼”？ 五眼联盟欢迎日本加入  "></a></p>
 <p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/防出逃？武汉下令收管所有公职人员护照    >-009fcc?logoWidth=1" title="防出逃？武汉下令收管所有公职人员护照  " alt="防出逃？武汉下令收管所有公职人员护照  "></a></p>
+<p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/29/a102905954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西雅图市长指责川普介入地方执法 市警察协会主>-009fcc?logoWidth=1" title="西雅图市长指责川普介入地方执法 市警察协会主席驳斥  " alt="西雅图市长指责川普介入地方执法 市警察协会主席驳斥  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/24/n12280824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习恭维之计失效 川普发反共檄文       >-009fcc?logoWidth=1" title="习恭维之计失效 川普发反共檄文  " alt="习恭维之计失效 川普发反共檄文  "></a></p>
 <p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12293156.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/染疫者逛了半个福州 民众恐慌        >-009fcc?logoWidth=1" title="染疫者逛了半个福州 民众恐慌  " alt="染疫者逛了半个福州 民众恐慌  "></a></p>
@@ -41,17 +41,17 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12292429.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共避提唐娟 与力挺孟晚舟形成鲜明对比   >-009fcc?logoWidth=1" title="中共避提唐娟 与力挺孟晚舟形成鲜明对比  " alt="中共避提唐娟 与力挺孟晚舟形成鲜明对比  "></a></p>
 <p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12292672.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平亚投行未提大撒币与一带一路 释何信号？>-009fcc?logoWidth=1" title="习近平亚投行未提大撒币与一带一路 释何信号？  " alt="习近平亚投行未提大撒币与一带一路 释何信号？  "></a></p>
-<p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102906076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁降临 香港高官被美资银行关闭户头    >-009fcc?logoWidth=1" title="制裁降临 香港高官被美资银行关闭户头  " alt="制裁降临 香港高官被美资银行关闭户头  "></a></p>
+<p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102906085.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京六月飞雪 大连展开百万人核酸检测 福建爆>-009fcc?logoWidth=1" title="北京六月飞雪 大连展开百万人核酸检测 福建爆疫情  " alt="北京六月飞雪 大连展开百万人核酸检测 福建爆疫情  "></a></p>
 <p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12293489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美增兵中国周边 欧盟27国制裁中共     >-009fcc?logoWidth=1" title="美增兵中国周边 欧盟27国制裁中共  " alt="美增兵中国周边 欧盟27国制裁中共  "></a></p>
-<p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/29/a102905414.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林公安副厅长《平安经》急下架 编辑：不能说>-009fcc?logoWidth=1" title="吉林公安副厅长《平安经》急下架 编辑：不能说  " alt="吉林公安副厅长《平安经》急下架 编辑：不能说  "></a></p>
-<p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/29/a102905311.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政治段子：华春莹、胡锡进、王沪宁打听退党  >-009fcc?logoWidth=1" title="政治段子：华春莹、胡锡进、王沪宁打听退党  " alt="政治段子：华春莹、胡锡进、王沪宁打听退党  "></a></p>
+<p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102906076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁降临 香港高官被美资银行关闭户头    >-009fcc?logoWidth=1" title="制裁降临 香港高官被美资银行关闭户头  " alt="制裁降临 香港高官被美资银行关闭户头  "></a></p>
+<p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102906055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/CCTV把人变狗【红与黑！上】       >-009fcc?logoWidth=1" title="CCTV把人变狗【红与黑！上】  " alt="CCTV把人变狗【红与黑！上】  "></a></p>
 <p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12291090.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余茂春助美反击中共 重庆母校急除状元名   >-009fcc?logoWidth=1" title="余茂春助美反击中共 重庆母校急除状元名  " alt="余茂春助美反击中共 重庆母校急除状元名  "></a></p>
 <p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/28/n12290545.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国从31日起恢复对55类中国商品征税   >-009fcc?logoWidth=1" title="美国从31日起恢复对55类中国商品征税  " alt="美国从31日起恢复对55类中国商品征税  "></a></p>
-<p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102906055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/CCTV把人变狗【红与黑！上】       >-009fcc?logoWidth=1" title="CCTV把人变狗【红与黑！上】  " alt="CCTV把人变狗【红与黑！上】  "></a></p>
-<p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/29/a102905766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》7.28 北京下雪了%3F%3F2020>-009fcc?logoWidth=1" title="《石涛聚焦》7.28 北京下雪了??2020 天灭中共在即！  " alt="《石涛聚焦》7.28 北京下雪了??2020 天灭中共在即！  "></a></p>
+<p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/29/a102905414.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林公安副厅长《平安经》急下架 编辑：不能说>-009fcc?logoWidth=1" title="吉林公安副厅长《平安经》急下架 编辑：不能说  " alt="吉林公安副厅长《平安经》急下架 编辑：不能说  "></a></p>
 <p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12293305.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉坠楼护士生前留言曝光 曾曝抗疫黑幕   >-009fcc?logoWidth=1" title="武汉坠楼护士生前留言曝光 曾曝抗疫黑幕  " alt="武汉坠楼护士生前留言曝光 曾曝抗疫黑幕  "></a></p>
 <p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12292669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美提案拟禁外国间谍及家人获签证 剑指中共  >-009fcc?logoWidth=1" title="美提案拟禁外国间谍及家人获签证 剑指中共  " alt="美提案拟禁外国间谍及家人获签证 剑指中共  "></a></p>
-<p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/29/a102905238.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥有意2024？胡锡进又谈核武     >-009fcc?logoWidth=1" title="蓬佩奥有意2024？胡锡进又谈核武  " alt="蓬佩奥有意2024？胡锡进又谈核武  "></a></p>
+<p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/29/a102905311.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政治段子：华春莹、胡锡进、王沪宁打听退党  >-009fcc?logoWidth=1" title="政治段子：华春莹、胡锡进、王沪宁打听退党  " alt="政治段子：华春莹、胡锡进、王沪宁打听退党  "></a></p>
+<p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/29/a102905766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》7.28 北京下雪了%3F%3F2020>-009fcc?logoWidth=1" title="《石涛聚焦》7.28 北京下雪了??2020 天灭中共在即！  " alt="《石涛聚焦》7.28 北京下雪了??2020 天灭中共在即！  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -489,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/oeojha307/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/oeojha307/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/oeojha307/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/oeojha307/www/blob/master/README.md?y#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/oeojha307/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/oeojha307/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/oeojha307/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/oeojha307/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/oeojha307/www/blob/master/README.md?t#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/oeojha307/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/edddd">git.io/edddd</a></div>
+<div align="center">短网址: <a href="https://git.io/eeeeeeee">git.io/eeeeeeee</a></div>
 
