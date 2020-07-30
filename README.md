@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/oeojha307/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/oeojha307/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kgggg">git.io/kgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp5">x.co/pp5</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/beeee">git.io/beeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppa">x.co/ppa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,22 +28,22 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/24/n12280824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习恭维之计失效 川普发反共檄文       >-009fcc?logoWidth=1" title="习恭维之计失效 川普发反共檄文  " alt="习恭维之计失效 川普发反共檄文  "></a></p>
 <p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12293156.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/染疫者逛了半个福州 民众恐慌        >-009fcc?logoWidth=1" title="染疫者逛了半个福州 民众恐慌  " alt="染疫者逛了半个福州 民众恐慌  "></a></p>
+<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12292598.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美官员：川普政府拟大幅减少中共外交人员   >-009fcc?logoWidth=1" title="美官员：川普政府拟大幅减少中共外交人员  " alt="美官员：川普政府拟大幅减少中共外交人员  "></a></p>
+<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/11/n12249199.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共三桶油华尔街圈钱 背后黑幕鲜为人知   >-009fcc?logoWidth=1" title="中共三桶油华尔街圈钱 背后黑幕鲜为人知  " alt="中共三桶油华尔街圈钱 背后黑幕鲜为人知  "></a></p>
 <p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12292556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美互关领馆 两国“告别”方式反差大    >-009fcc?logoWidth=1" title="中美互关领馆 两国“告别”方式反差大  " alt="中美互关领馆 两国“告别”方式反差大  "></a></p>
-<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12292669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美提案拟禁外国间谍及家人获签证 剑指中共  >-009fcc?logoWidth=1" title="美提案拟禁外国间谍及家人获签证 剑指中共  " alt="美提案拟禁外国间谍及家人获签证 剑指中共  "></a></p>
-<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12292672.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平亚投行年会未提一带一路 释何信号？  >-009fcc?logoWidth=1" title="习近平亚投行年会未提一带一路 释何信号？  " alt="习近平亚投行年会未提一带一路 释何信号？  "></a></p>
 <p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12292544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：内斗加剧 习近平急于展示军权     >-009fcc?logoWidth=1" title="钟原：内斗加剧 习近平急于展示军权  " alt="钟原：内斗加剧 习近平急于展示军权  "></a></p>
-<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12292724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与唐娟是军校校友 加大教授李健健受质疑   >-009fcc?logoWidth=1" title="与唐娟是军校校友 加大教授李健健受质疑  " alt="与唐娟是军校校友 加大教授李健健受质疑  "></a></p>
+<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12290959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥有望2024？学者喊话习近平     >-009fcc?logoWidth=1" title="蓬佩奥有望2024？学者喊话习近平  " alt="蓬佩奥有望2024？学者喊话习近平  "></a></p>
 <p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12291219.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/好友家人念真言转危为安           >-009fcc?logoWidth=1" title="好友家人念真言转危为安  " alt="好友家人念真言转危为安  "></a></p>
 <p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12292429.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共避提唐娟 与力挺孟晚舟成鲜明对比    >-009fcc?logoWidth=1" title="中共避提唐娟 与力挺孟晚舟成鲜明对比  " alt="中共避提唐娟 与力挺孟晚舟成鲜明对比  "></a></p>
-<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12292598.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美官员：川普政府拟大幅减少中共外交人员   >-009fcc?logoWidth=1" title="美官员：川普政府拟大幅减少中共外交人员  " alt="美官员：川普政府拟大幅减少中共外交人员  "></a></p>
-<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12290959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥有望2024？学者喊话习近平     >-009fcc?logoWidth=1" title="蓬佩奥有望2024？学者喊话习近平  " alt="蓬佩奥有望2024？学者喊话习近平  "></a></p>
-<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12291090.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余茂春助美反击中共 重庆母校急除状元名   >-009fcc?logoWidth=1" title="余茂春助美反击中共 重庆母校急除状元名  " alt="余茂春助美反击中共 重庆母校急除状元名  "></a></p>
+<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12292672.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平亚投行年会未提一带一路 释何信号？  >-009fcc?logoWidth=1" title="习近平亚投行年会未提一带一路 释何信号？  " alt="习近平亚投行年会未提一带一路 释何信号？  "></a></p>
+<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12292724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与唐娟是军校校友 加大教授李健健受质疑   >-009fcc?logoWidth=1" title="与唐娟是军校校友 加大教授李健健受质疑  " alt="与唐娟是军校校友 加大教授李健健受质疑  "></a></p>
+<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12293489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美澳军事合作 欧盟27国制裁中共      >-009fcc?logoWidth=1" title="美澳军事合作 欧盟27国制裁中共  " alt="美澳军事合作 欧盟27国制裁中共  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12292429.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共避提唐娟 与力挺孟晚舟形成鲜明对比   >-009fcc?logoWidth=1" title="中共避提唐娟 与力挺孟晚舟形成鲜明对比  " alt="中共避提唐娟 与力挺孟晚舟形成鲜明对比  "></a></p>
 <p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/29/a102905311.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政治段子：华春莹、胡锡进、王沪宁打听退党  >-009fcc?logoWidth=1" title="政治段子：华春莹、胡锡进、王沪宁打听退党  " alt="政治段子：华春莹、胡锡进、王沪宁打听退党  "></a></p>
+<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12291090.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余茂春助美反击中共 重庆母校急除状元名   >-009fcc?logoWidth=1" title="余茂春助美反击中共 重庆母校急除状元名  " alt="余茂春助美反击中共 重庆母校急除状元名  "></a></p>
 <p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/29/a102905238.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥有意2024？胡锡进又谈核武     >-009fcc?logoWidth=1" title="蓬佩奥有意2024？胡锡进又谈核武  " alt="蓬佩奥有意2024？胡锡进又谈核武  "></a></p>
 <p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/29/a102905766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》7.28 北京下雪了%3F%3F2020>-009fcc?logoWidth=1" title="《石涛聚焦》7.28 北京下雪了??2020 天灭中共在即！  " alt="《石涛聚焦》7.28 北京下雪了??2020 天灭中共在即！  "></a></p>
-<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/11/n12249199.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共三桶油华尔街圈钱 背后黑幕鲜为人知   >-009fcc?logoWidth=1" title="中共三桶油华尔街圈钱 背后黑幕鲜为人知  " alt="中共三桶油华尔街圈钱 背后黑幕鲜为人知  "></a></p>
 <p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12292367.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润否认嫖娼 已委托律师准备提告     >-009fcc?logoWidth=1" title="许章润否认嫖娼 已委托律师准备提告  " alt="许章润否认嫖娼 已委托律师准备提告  "></a></p>
 <p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102905986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美“远征军”增驻中国周边/唐娟赴美牵线人浮出>-009fcc?logoWidth=1" title="美“远征军”增驻中国周边/唐娟赴美牵线人浮出水面？  " alt="美“远征军”增驻中国周边/唐娟赴美牵线人浮出水面？  "></a></p>
 <p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/28/n12290545.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国从31日起恢复对55类中国商品征税   >-009fcc?logoWidth=1" title="美国从31日起恢复对55类中国商品征税  " alt="美国从31日起恢复对55类中国商品征税  "></a></p>
@@ -418,12 +418,12 @@
 <p><strong>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年的腥风血雨，二十多年的凌辱折磨，岁月飞逝，历史见证，迫害善良原本就是违背道义不得民心的...</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;99年中共因法轮功修炼人数超过党员而疯狂镇压，不惜制造一个个谎言，导演天安门自焚案栽赃法轮功，对坚持信仰的学员绑架抄家，用尽酷刑，导致数以百万计的家破人亡、妻离子散！然而中共高估了自己的造假宣传。各国政府纷纷谴责中共暴行，高度肯定法轮功提升道德、净化心灵、强身健体的卓越成效。在国内，声援法轮功的事件此起彼伏。成千上万人为被非法抓捕的学员请愿，演绎了不畏强权反迫害的一幕又一幕。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年过去了。如今法轮功“真善忍”普世价值观，超越民族文化，洪传世界一百多个国家，仅台湾就有八十万人修炼，其主要著作被译成四十多种文字，举世赞誉！而中共江泽民却因罪恶迫害，在海内外被数百万人联署举报，被二十多万人实名起诉。在这场对善良打压中，中共把法制、道德伦理都推向崩溃边缘。民心丧尽、天怒人怨!人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/fC0l6i" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/HAVy7u" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
 </details>
 
 <div align="center">
 <img src="https://raw.githubusercontent.com/oeojha307/www/master/t/01.jpg">
-<h1><strong><a href="https://is.gd/fC0l6i" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
+<h1><strong><a href="https://is.gd/HAVy7u" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/oeojha307/www/master/t/03.jpg"><br>
@@ -483,12 +483,12 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;于中共无所不在的欺骗洗脑与暴力胁迫下，有多少人放弃了诚实宽厚、仁爱谦和的道德底线，变得见风使舵、落井下石，甚至为一己之私而无恶不作。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;稍微盘点中共的罪恶，让人感到心情无比的沉重。了解了中共，才明白什么叫做罪恶滔天，罄竹难书。</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/fC0l6i" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/HAVy7u" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/oeojha307/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/oeojha307/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/oeojha307/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/oeojha307/www/blob/master/README.md?e#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/oeojha307/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/oeojha307/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/oeojha307/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/oeojha307/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/oeojha307/www/blob/master/README.md?t#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/oeojha307/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kgggg">git.io/kgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/beeee">git.io/beeee</a></div>
 
