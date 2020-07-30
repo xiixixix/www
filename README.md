@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hvezsg3018/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hvezsg3018/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tnnnn">git.io/tnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp6">x.co/pp6</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h5555">git.io/h5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/caa">x.co/caa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102906143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一本“奇书”被热捧 再现中共官场现形记   >-009fcc?logoWidth=1" title="一本“奇书”被热捧 再现中共官场现形记  " alt="一本“奇书”被热捧 再现中共官场现形记  "></a></p>
 <p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102906123.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/关闭中领馆后美国拟再出招 削减中共驻美外交官>-009fcc?logoWidth=1" title="关闭中领馆后美国拟再出招 削减中共驻美外交官  " alt="关闭中领馆后美国拟再出招 削减中共驻美外交官  "></a></p>
 <p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102906102.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉护士神秘坠亡 传曾爆医院疫情黑幕    >-009fcc?logoWidth=1" title="武汉护士神秘坠亡 传曾爆医院疫情黑幕  " alt="武汉护士神秘坠亡 传曾爆医院疫情黑幕  "></a></p>
+<p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102906632.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/共谍惹怒老大哥 俄罗斯不给中共导弹     >-009fcc?logoWidth=1" title="共谍惹怒老大哥 俄罗斯不给中共导弹  " alt="共谍惹怒老大哥 俄罗斯不给中共导弹  "></a></p>
+<p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102906610.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情失控 乌鲁木齐家家贴封条        >-009fcc?logoWidth=1" title="疫情失控 乌鲁木齐家家贴封条  " alt="疫情失控 乌鲁木齐家家贴封条  "></a></p>
 <p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102906616.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄之锋等12人被夺参选资格 立法会选举被指成>-009fcc?logoWidth=1" title="黄之锋等12人被夺参选资格 立法会选举被指成笑话  " alt="黄之锋等12人被夺参选资格 立法会选举被指成笑话  "></a></p>
-<p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102906583.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乌鲁木齐防疫挨家挨户贴封条：出门打断腿(视频>-009fcc?logoWidth=1" title="乌鲁木齐防疫挨家挨户贴封条：出门打断腿(视频)  " alt="乌鲁木齐防疫挨家挨户贴封条：出门打断腿(视频)  "></a></p>
 <p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102906606.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7.30川普疫情发布会 461万确诊15万死>-009fcc?logoWidth=1" title="7.30川普疫情发布会 461万确诊15万死（同声翻译）  " alt="7.30川普疫情发布会 461万确诊15万死（同声翻译）  "></a></p>
 <p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102906553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦：中共制造病毒 又伪造基因序列转移视线>-009fcc?logoWidth=1" title="闫丽梦：中共制造病毒 又伪造基因序列转移视线  " alt="闫丽梦：中共制造病毒 又伪造基因序列转移视线  "></a></p>
-<p><a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/2020/07/30/a102906539.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/越南爆疫惊现致命新毒株 民间疑来自中国偷渡客>-009fcc?logoWidth=1" title="越南爆疫惊现致命新毒株 民间疑来自中国偷渡客  " alt="越南爆疫惊现致命新毒株 民间疑来自中国偷渡客  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/29/n12293489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美澳军事合作 欧盟27国制裁中共      >-009fcc?logoWidth=1" title="美澳军事合作 欧盟27国制裁中共  " alt="美澳军事合作 欧盟27国制裁中共  "></a></p>
 <p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/30/n12293829.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆舞女替代战狼外交？北京飘雪       >-009fcc?logoWidth=1" title="新疆舞女替代战狼外交？北京飘雪  " alt="新疆舞女替代战狼外交？北京飘雪  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hvezsg3018/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/hvezsg3018/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hvezsg3018/www/blob/master/README.md?o#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/hvezsg3018/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hvezsg3018/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/hvezsg3018/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hvezsg3018/www/blob/master/README.md?a#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/hvezsg3018/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/tnnnn">git.io/tnnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/h5555">git.io/h5555</a></div>
 
