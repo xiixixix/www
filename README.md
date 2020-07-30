@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xakbaw3606/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xakbaw3606/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c7777">git.io/c7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/5pp">x.co/5pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cnnnn">git.io/cnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9944">x.co/9944</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/xakbaw3606/ntdtv/blob/master/gb/2020/07/29/a102905878.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/没钱了？ 习近平亚投行致辞未提大撒币    >-009fcc?logoWidth=1" title="没钱了？ 习近平亚投行致辞未提大撒币  " alt="没钱了？ 习近平亚投行致辞未提大撒币  "></a></p>
 <p><a href="https://github.com/xakbaw3606/ntdtv/blob/master/gb/2020/07/29/a102905494.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润委托3律师 处理“嫖娼”罪名     >-009fcc?logoWidth=1" title="许章润委托3律师 处理“嫖娼”罪名  " alt="许章润委托3律师 处理“嫖娼”罪名  "></a></p>
 <p><a href="https://github.com/xakbaw3606/ntdtv/blob/master/gb/2020/07/29/a102905372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦吁推翻中共政权/袁弓夷：围剿中共正式开>-009fcc?logoWidth=1" title="闫丽梦吁推翻中共政权/袁弓夷：围剿中共正式开始  " alt="闫丽梦吁推翻中共政权/袁弓夷：围剿中共正式开始  "></a></p>
 <p><a href="https://github.com/xakbaw3606/ntdtv/blob/master/gb/2020/07/29/a102905311.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政治段子：华春莹、胡锡进、王沪宁打听退党  >-009fcc?logoWidth=1" title="政治段子：华春莹、胡锡进、王沪宁打听退党  " alt="政治段子：华春莹、胡锡进、王沪宁打听退党  "></a></p>
 <p><a href="https://github.com/xakbaw3606/ntdtv/blob/master/gb/2020/07/29/a102905227.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京高层防美空袭？网民笑了：老百姓不用怕  >-009fcc?logoWidth=1" title="北京高层防美空袭？网民笑了：老百姓不用怕  " alt="北京高层防美空袭？网民笑了：老百姓不用怕  "></a></p>
 <p><a href="https://github.com/xakbaw3606/ntdtv/blob/master/gb/2020/07/29/a102905210.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余茂春助川普“灭共”惹恼北京 重庆母校急除状>-009fcc?logoWidth=1" title="余茂春助川普“灭共”惹恼北京 重庆母校急除状元名  " alt="余茂春助川普“灭共”惹恼北京 重庆母校急除状元名  "></a></p>
-<p><a href="https://github.com/xakbaw3606/ntdtv/blob/master/gb/2020/07/29/a102905175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/太恐怖！重庆道路突塌 2楼深巨坑瞬间吞两人(>-009fcc?logoWidth=1" title="太恐怖！重庆道路突塌 2楼深巨坑瞬间吞两人(视频)  " alt="太恐怖！重庆道路突塌 2楼深巨坑瞬间吞两人(视频)  "></a></p>
 <p><a href="https://github.com/xakbaw3606/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/防出逃？武汉下令收管所有公职人员护照    >-009fcc?logoWidth=1" title="防出逃？武汉下令收管所有公职人员护照  " alt="防出逃？武汉下令收管所有公职人员护照  "></a></p>
 <p><a href="https://github.com/xakbaw3606/ntdtv/blob/master/gb/2020/07/29/a102905954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西雅图市长指责川普介入地方执法 市警察协会主>-009fcc?logoWidth=1" title="西雅图市长指责川普介入地方执法 市警察协会主席驳斥  " alt="西雅图市长指责川普介入地方执法 市警察协会主席驳斥  "></a></p>
 <p><a href="https://github.com/xakbaw3606/ntdtv/blob/master/gb/2020/07/29/a102905843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/防出逃？武汉下令收管所有公职人员护照    >-009fcc?logoWidth=1" title="防出逃？武汉下令收管所有公职人员护照  " alt="防出逃？武汉下令收管所有公职人员护照  "></a></p>
-<p><a href="https://github.com/xakbaw3606/ntdtv/blob/master/gb/2020/07/29/a102905878.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/没钱了？ 习近平亚投行致辞未提大撒币    >-009fcc?logoWidth=1" title="没钱了？ 习近平亚投行致辞未提大撒币  " alt="没钱了？ 习近平亚投行致辞未提大撒币  "></a></p>
 <p><a href="https://github.com/xakbaw3606/ntdtv/blob/master/gb/2020/07/29/a102905904.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉肺炎受害家属发起第二起索赔诉讼     >-009fcc?logoWidth=1" title="武汉肺炎受害家属发起第二起索赔诉讼  " alt="武汉肺炎受害家属发起第二起索赔诉讼  "></a></p>
+<p><a href="https://github.com/xakbaw3606/ntdtv/blob/master/gb/2020/07/29/a102905858.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆疫情急速上升 封城抢建方舱医院     >-009fcc?logoWidth=1" title="新疆疫情急速上升 封城抢建方舱医院  " alt="新疆疫情急速上升 封城抢建方舱医院  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xakbaw3606/djy/blob/master/gb/20/7/24/n12280824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习恭维之计失效 川普发反共檄文       >-009fcc?logoWidth=1" title="习恭维之计失效 川普发反共檄文  " alt="习恭维之计失效 川普发反共檄文  "></a></p>
 <p><a href="https://github.com/xakbaw3606/djy/blob/master/gb/20/7/29/n12292556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美互关领馆 两国“告别”方式反差大    >-009fcc?logoWidth=1" title="中美互关领馆 两国“告别”方式反差大  " alt="中美互关领馆 两国“告别”方式反差大  "></a></p>
@@ -40,16 +40,16 @@
 <p><a href="https://github.com/xakbaw3606/djy/blob/master/gb/20/7/29/n12292724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与唐娟是军校校友 加大教授李健健受质疑   >-009fcc?logoWidth=1" title="与唐娟是军校校友 加大教授李健健受质疑  " alt="与唐娟是军校校友 加大教授李健健受质疑  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xakbaw3606/djy/blob/master/gb/20/7/29/n12292429.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共避提唐娟 与力挺孟晚舟形成鲜明对比   >-009fcc?logoWidth=1" title="中共避提唐娟 与力挺孟晚舟形成鲜明对比  " alt="中共避提唐娟 与力挺孟晚舟形成鲜明对比  "></a></p>
+<p><a href="https://github.com/xakbaw3606/ntdtv/blob/master/gb/2020/07/29/a102905816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧盟制裁港版国安法  英国关切立法会选举  >-009fcc?logoWidth=1" title="欧盟制裁港版国安法  英国关切立法会选举  " alt="欧盟制裁港版国安法  英国关切立法会选举  "></a></p>
 <p><a href="https://github.com/xakbaw3606/ntdtv/blob/master/gb/2020/07/29/a102905414.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林公安副厅长《平安经》急下架 编辑：不能说>-009fcc?logoWidth=1" title="吉林公安副厅长《平安经》急下架 编辑：不能说  " alt="吉林公安副厅长《平安经》急下架 编辑：不能说  "></a></p>
-<p><a href="https://github.com/xakbaw3606/ntdtv/blob/master/gb/2020/07/29/a102905100.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中发生热战的几率有多高？三大因素决定热战走>-009fcc?logoWidth=1" title="美中发生热战的几率有多高？三大因素决定热战走向  " alt="美中发生热战的几率有多高？三大因素决定热战走向  "></a></p>
-<p><a href="https://github.com/xakbaw3606/ntdtv/blob/master/gb/2020/07/28/a102904172.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：围剿中共正式开始          >-009fcc?logoWidth=1" title="袁弓夷：围剿中共正式开始  " alt="袁弓夷：围剿中共正式开始  "></a></p>
+<p><a href="https://github.com/xakbaw3606/ntdtv/blob/master/gb/2020/07/29/a102905493.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：李克强“临时工”就业模式再被封杀   >-009fcc?logoWidth=1" title="钟原：李克强“临时工”就业模式再被封杀  " alt="钟原：李克强“临时工”就业模式再被封杀  "></a></p>
+<p><a href="https://github.com/xakbaw3606/ntdtv/blob/master/gb/2020/07/29/a102905238.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥有意2024？胡锡进又谈核武     >-009fcc?logoWidth=1" title="蓬佩奥有意2024？胡锡进又谈核武  " alt="蓬佩奥有意2024？胡锡进又谈核武  "></a></p>
 <p><a href="https://github.com/xakbaw3606/djy/blob/master/gb/20/7/29/n12291426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：中国老百姓不需要害怕美军空袭     >-009fcc?logoWidth=1" title="沈舟：中国老百姓不需要害怕美军空袭  " alt="沈舟：中国老百姓不需要害怕美军空袭  "></a></p>
 <p><a href="https://github.com/xakbaw3606/djy/blob/master/gb/20/7/29/n12291090.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余茂春助美反击中共 重庆母校急除状元名   >-009fcc?logoWidth=1" title="余茂春助美反击中共 重庆母校急除状元名  " alt="余茂春助美反击中共 重庆母校急除状元名  "></a></p>
-<p><a href="https://github.com/xakbaw3606/ntdtv/blob/master/gb/2020/07/29/a102905493.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：李克强“临时工”就业模式再被封杀   >-009fcc?logoWidth=1" title="钟原：李克强“临时工”就业模式再被封杀  " alt="钟原：李克强“临时工”就业模式再被封杀  "></a></p>
-<p><a href="https://github.com/xakbaw3606/ntdtv/blob/master/gb/2020/07/29/a102905423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/二波疫情更可怕 人类回不去旧常态      >-009fcc?logoWidth=1" title="二波疫情更可怕 人类回不去旧常态  " alt="二波疫情更可怕 人类回不去旧常态  "></a></p>
+<p><a href="https://github.com/xakbaw3606/ntdtv/blob/master/gb/2020/07/29/a102905235.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦华府再揭内幕 银行拒港官 金融制裁启动>-009fcc?logoWidth=1" title="闫丽梦华府再揭内幕 银行拒港官 金融制裁启动？  " alt="闫丽梦华府再揭内幕 银行拒港官 金融制裁启动？  "></a></p>
 <p><a href="https://github.com/xakbaw3606/djy/blob/master/gb/20/7/29/n12290959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥有望2024？学者喊话习近平     >-009fcc?logoWidth=1" title="蓬佩奥有望2024？学者喊话习近平  " alt="蓬佩奥有望2024？学者喊话习近平  "></a></p>
 <p><a href="https://github.com/xakbaw3606/djy/blob/master/gb/20/7/28/n12290486.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国新一波疫情蔓延到6省 北京最大小区中招 >-009fcc?logoWidth=1" title="中国新一波疫情蔓延到6省 北京最大小区中招  " alt="中国新一波疫情蔓延到6省 北京最大小区中招  "></a></p>
-<p><a href="https://github.com/xakbaw3606/ntdtv/blob/master/gb/2020/07/29/a102905411.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：惊涛骇浪终到来 中共高官何时梦醒？ >-009fcc?logoWidth=1" title="李正宽：惊涛骇浪终到来 中共高官何时梦醒？  " alt="李正宽：惊涛骇浪终到来 中共高官何时梦醒？  "></a></p>
+<p><a href="https://github.com/xakbaw3606/ntdtv/blob/master/gb/2020/07/29/a102905100.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中发生热战的几率有多高？三大因素决定热战走>-009fcc?logoWidth=1" title="美中发生热战的几率有多高？三大因素决定热战走向  " alt="美中发生热战的几率有多高？三大因素决定热战走向  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xakbaw3606/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xakbaw3606/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xakbaw3606/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xakbaw3606/www/blob/master/README.md?v#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/xakbaw3606/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xakbaw3606/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xakbaw3606/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xakbaw3606/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xakbaw3606/www/blob/master/README.md?f#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/xakbaw3606/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/c7777">git.io/c7777</a></div>
+<div align="center">短网址: <a href="https://git.io/cnnnn">git.io/cnnnn</a></div>
 
