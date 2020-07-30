@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/oeojha307/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/oeojha307/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cssss">git.io/cssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/epp">x.co/epp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/sffff">git.io/sffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p5p">x.co/p5p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,19 +27,20 @@
 <p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102906021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/选择华为5G 美国警告巴西：后果自负    >-009fcc?logoWidth=1" title="选择华为5G 美国警告巴西：后果自负  " alt="选择华为5G 美国警告巴西：后果自负  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/24/n12280824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习恭维之计失效 川普发反共檄文       >-009fcc?logoWidth=1" title="习恭维之计失效 川普发反共檄文  " alt="习恭维之计失效 川普发反共檄文  "></a></p>
-<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12293156.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/染疫者逛了半个福州 民众恐慌        >-009fcc?logoWidth=1" title="染疫者逛了半个福州 民众恐慌  " alt="染疫者逛了半个福州 民众恐慌  "></a></p>
-<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/11/n12249199.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共三桶油华尔街圈钱 背后黑幕鲜为人知   >-009fcc?logoWidth=1" title="中共三桶油华尔街圈钱 背后黑幕鲜为人知  " alt="中共三桶油华尔街圈钱 背后黑幕鲜为人知  "></a></p>
-<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12290959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥有望2024？学者喊话习近平     >-009fcc?logoWidth=1" title="蓬佩奥有望2024？学者喊话习近平  " alt="蓬佩奥有望2024？学者喊话习近平  "></a></p>
 <p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12293305.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉坠楼护士生前留言曝光 曾曝抗疫黑幕   >-009fcc?logoWidth=1" title="武汉坠楼护士生前留言曝光 曾曝抗疫黑幕  " alt="武汉坠楼护士生前留言曝光 曾曝抗疫黑幕  "></a></p>
-<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12292544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：内斗加剧 习近平急于展示军权     >-009fcc?logoWidth=1" title="钟原：内斗加剧 习近平急于展示军权  " alt="钟原：内斗加剧 习近平急于展示军权  "></a></p>
-<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12292672.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平亚投行年会未提一带一路 释何信号？  >-009fcc?logoWidth=1" title="习近平亚投行年会未提一带一路 释何信号？  " alt="习近平亚投行年会未提一带一路 释何信号？  "></a></p>
-<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12291219.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/好友家人念真言转危为安           >-009fcc?logoWidth=1" title="好友家人念真言转危为安  " alt="好友家人念真言转危为安  "></a></p>
-<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12292429.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共避提唐娟 与力挺孟晚舟成鲜明对比    >-009fcc?logoWidth=1" title="中共避提唐娟 与力挺孟晚舟成鲜明对比  " alt="中共避提唐娟 与力挺孟晚舟成鲜明对比  "></a></p>
-<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12292598.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美官员：川普政府拟大幅减少中共外交人员   >-009fcc?logoWidth=1" title="美官员：川普政府拟大幅减少中共外交人员  " alt="美官员：川普政府拟大幅减少中共外交人员  "></a></p>
-<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/30/n12293750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蝗灾已在大陆泛滥 麻烦大了         >-009fcc?logoWidth=1" title="蝗灾已在大陆泛滥 麻烦大了  " alt="蝗灾已在大陆泛滥 麻烦大了  "></a></p>
 <p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12293392.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：唐娟们到底要盗窃什么机密？      >-009fcc?logoWidth=1" title="杨威：唐娟们到底要盗窃什么机密？  " alt="杨威：唐娟们到底要盗窃什么机密？  "></a></p>
+<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12293489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美澳军事合作 欧盟27国制裁中共      >-009fcc?logoWidth=1" title="美澳军事合作 欧盟27国制裁中共  " alt="美澳军事合作 欧盟27国制裁中共  "></a></p>
+<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12290959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥有望2024？学者喊话习近平     >-009fcc?logoWidth=1" title="蓬佩奥有望2024？学者喊话习近平  " alt="蓬佩奥有望2024？学者喊话习近平  "></a></p>
+<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12292544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：内斗加剧 习近平急于展示军权     >-009fcc?logoWidth=1" title="钟原：内斗加剧 习近平急于展示军权  " alt="钟原：内斗加剧 习近平急于展示军权  "></a></p>
+<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12292429.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共避提唐娟 与力挺孟晚舟成鲜明对比    >-009fcc?logoWidth=1" title="中共避提唐娟 与力挺孟晚舟成鲜明对比  " alt="中共避提唐娟 与力挺孟晚舟成鲜明对比  "></a></p>
+<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12291219.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/好友家人念真言转危为安           >-009fcc?logoWidth=1" title="好友家人念真言转危为安  " alt="好友家人念真言转危为安  "></a></p>
+<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12293156.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/染疫者逛了半个福州 民众恐慌        >-009fcc?logoWidth=1" title="染疫者逛了半个福州 民众恐慌  " alt="染疫者逛了半个福州 民众恐慌  "></a></p>
+<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/30/n12293750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蝗灾已在大陆泛滥 麻烦大了         >-009fcc?logoWidth=1" title="蝗灾已在大陆泛滥 麻烦大了  " alt="蝗灾已在大陆泛滥 麻烦大了  "></a></p>
+<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12292672.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平亚投行年会未提一带一路 释何信号？  >-009fcc?logoWidth=1" title="习近平亚投行年会未提一带一路 释何信号？  " alt="习近平亚投行年会未提一带一路 释何信号？  "></a></p>
+<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/30/n12293829.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆舞女替代战狼外交？北京飘雪       >-009fcc?logoWidth=1" title="新疆舞女替代战狼外交？北京飘雪  " alt="新疆舞女替代战狼外交？北京飘雪  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12292429.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共避提唐娟 与力挺孟晚舟形成鲜明对比   >-009fcc?logoWidth=1" title="中共避提唐娟 与力挺孟晚舟形成鲜明对比  " alt="中共避提唐娟 与力挺孟晚舟形成鲜明对比  "></a></p>
+<p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12292598.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美官员：川普政府拟大幅减少中共外交人员   >-009fcc?logoWidth=1" title="美官员：川普政府拟大幅减少中共外交人员  " alt="美官员：川普政府拟大幅减少中共外交人员  "></a></p>
 <p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/30/a102906002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“五眼”变“六眼”？ 五眼联盟欢迎日本加入 >-009fcc?logoWidth=1" title="“五眼”变“六眼”？ 五眼联盟欢迎日本加入  " alt="“五眼”变“六眼”？ 五眼联盟欢迎日本加入  "></a></p>
 <p><a href="https://github.com/oeojha307/ntdtv/blob/master/gb/2020/07/29/a102905766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》7.28 北京下雪了%3F%3F2020>-009fcc?logoWidth=1" title="《石涛聚焦》7.28 北京下雪了??2020 天灭中共在即！  " alt="《石涛聚焦》7.28 北京下雪了??2020 天灭中共在即！  "></a></p>
 <p><a href="https://github.com/oeojha307/djy/blob/master/gb/20/7/29/n12293489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美增兵中国周边 欧盟27国制裁中共     >-009fcc?logoWidth=1" title="美增兵中国周边 欧盟27国制裁中共  " alt="美增兵中国周边 欧盟27国制裁中共  "></a></p>
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/oeojha307/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/oeojha307/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/oeojha307/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/oeojha307/www/blob/master/README.md?j#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/oeojha307/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/oeojha307/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/oeojha307/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/oeojha307/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/oeojha307/www/blob/master/README.md?c#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/oeojha307/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/cssss">git.io/cssss</a></div>
+<div align="center">短网址: <a href="https://git.io/sffff">git.io/sffff</a></div>
 
