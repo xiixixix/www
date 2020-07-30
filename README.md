@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hvezsg3018/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hvezsg3018/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/u6666">git.io/u6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/kaa">x.co/kaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bjjjj">git.io/bjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/4aa">x.co/4aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -33,7 +33,7 @@
 <p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/28/n12289397.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法轮功案不许评查 各级镇压从未松      >-009fcc?logoWidth=1" title="法轮功案不许评查 各级镇压从未松  " alt="法轮功案不许评查 各级镇压从未松  "></a></p>
 <p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/29/n12292544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：内斗加剧 习近平急于展示军权     >-009fcc?logoWidth=1" title="钟原：内斗加剧 习近平急于展示军权  " alt="钟原：内斗加剧 习近平急于展示军权  "></a></p>
 <p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/29/n12291219.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/好友家人念真言转危为安           >-009fcc?logoWidth=1" title="好友家人念真言转危为安  " alt="好友家人念真言转危为安  "></a></p>
-<p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/29/n12293156.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/染疫者逛了半个福州 民众恐慌        >-009fcc?logoWidth=1" title="染疫者逛了半个福州 民众恐慌  " alt="染疫者逛了半个福州 民众恐慌  "></a></p>
+<p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/29/n12293156.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/染疫者逛半个福州 民众恐慌         >-009fcc?logoWidth=1" title="染疫者逛半个福州 民众恐慌  " alt="染疫者逛半个福州 民众恐慌  "></a></p>
 <p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/30/n12293750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蝗灾已在大陆泛滥 麻烦大了         >-009fcc?logoWidth=1" title="蝗灾已在大陆泛滥 麻烦大了  " alt="蝗灾已在大陆泛滥 麻烦大了  "></a></p>
 <p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/29/n12290959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥有望2024？学者喊话习近平     >-009fcc?logoWidth=1" title="蓬佩奥有望2024？学者喊话习近平  " alt="蓬佩奥有望2024？学者喊话习近平  "></a></p>
 <p><a href="https://github.com/hvezsg3018/djy/blob/master/gb/20/7/30/n12294099.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆疫情高烧不退 一夜新增近百例确诊病例  >-009fcc?logoWidth=1" title="新疆疫情高烧不退 一夜新增近百例确诊病例  " alt="新疆疫情高烧不退 一夜新增近百例确诊病例  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hvezsg3018/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/hvezsg3018/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hvezsg3018/www/blob/master/README.md?i#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/hvezsg3018/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hvezsg3018/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hvezsg3018/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/hvezsg3018/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hvezsg3018/www/blob/master/README.md?h#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/hvezsg3018/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/u6666">git.io/u6666</a></div>
+<div align="center">短网址: <a href="https://git.io/bjjjj">git.io/bjjjj</a></div>
 
