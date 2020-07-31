@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/viliqq330/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/viliqq330/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rffff">git.io/rffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppv">x.co/ppv</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gqqqq">git.io/gqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2999">x.co/2999</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,18 +26,18 @@
 <p><a href="https://github.com/viliqq330/ntdtv/blob/master/gb/2020/07/31/a102907390.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普应对中共病毒和热带风暴圆桌会议（同声翻译>-009fcc?logoWidth=1" title="川普应对中共病毒和热带风暴圆桌会议（同声翻译）  " alt="川普应对中共病毒和热带风暴圆桌会议（同声翻译）  "></a></p>
 <p><a href="https://github.com/viliqq330/ntdtv/blob/master/gb/2020/07/31/a102907368.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林郑宣布推迟立法会选举1年 黄之锋批政治舞弊>-009fcc?logoWidth=1" title="林郑宣布推迟立法会选举1年 黄之锋批政治舞弊  " alt="林郑宣布推迟立法会选举1年 黄之锋批政治舞弊  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/31/n12298082.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国制裁新疆生产建设兵团 冻结资产     >-009fcc?logoWidth=1" title="美国制裁新疆生产建设兵团 冻结资产  " alt="美国制裁新疆生产建设兵团 冻结资产  "></a></p>
-<p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/31/n12297892.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐娟被捕细节：本想自首但犯病 领馆车送出  >-009fcc?logoWidth=1" title="唐娟被捕细节：本想自首但犯病 领馆车送出  " alt="唐娟被捕细节：本想自首但犯病 领馆车送出  "></a></p>
 <p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/28/n12290364.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭秘替中共牵线搭桥的神秘商会        >-009fcc?logoWidth=1" title="揭秘替中共牵线搭桥的神秘商会  " alt="揭秘替中共牵线搭桥的神秘商会  "></a></p>
+<p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/31/n12297892.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐娟被捕细节：本想自首但犯病 领馆车送出  >-009fcc?logoWidth=1" title="唐娟被捕细节：本想自首但犯病 领馆车送出  " alt="唐娟被捕细节：本想自首但犯病 领馆车送出  "></a></p>
+<p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/31/n12298082.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国制裁新疆生产建设兵团 冻结资产     >-009fcc?logoWidth=1" title="美国制裁新疆生产建设兵团 冻结资产  " alt="美国制裁新疆生产建设兵团 冻结资产  "></a></p>
 <p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/31/n12298347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大司法部长：孟晚舟引渡案符合条件    >-009fcc?logoWidth=1" title="加拿大司法部长：孟晚舟引渡案符合条件  " alt="加拿大司法部长：孟晚舟引渡案符合条件  "></a></p>
 <p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/31/n12296441.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李登辉谈习近平 休斯顿领馆被破坏      >-009fcc?logoWidth=1" title="李登辉谈习近平 休斯顿领馆被破坏  " alt="李登辉谈习近平 休斯顿领馆被破坏  "></a></p>
 <p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/31/n12298294.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：习近平六示军权的背后         >-009fcc?logoWidth=1" title="钟原：习近平六示军权的背后  " alt="钟原：习近平六示军权的背后  "></a></p>
 <p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/31/n12296507.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙春兰急赴大连的背后            >-009fcc?logoWidth=1" title="孙春兰急赴大连的背后  " alt="孙春兰急赴大连的背后  "></a></p>
 <p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/28/n12289397.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法轮功案不许评查 各级镇压从未松      >-009fcc?logoWidth=1" title="法轮功案不许评查 各级镇压从未松  " alt="法轮功案不许评查 各级镇压从未松  "></a></p>
 <p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/30/n12296232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/窃研究机密售往中国 美华裔女科学家认罪   >-009fcc?logoWidth=1" title="窃研究机密售往中国 美华裔女科学家认罪  " alt="窃研究机密售往中国 美华裔女科学家认罪  "></a></p>
-<p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/31/n12297926.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共定调“经济内循环” 分析：糊弄老百姓  >-009fcc?logoWidth=1" title="中共定调“经济内循环” 分析：糊弄老百姓  " alt="中共定调“经济内循环” 分析：糊弄老百姓  "></a></p>
 <p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/31/n12296771.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李金早突然被抓 与刘奇葆的官场秘闻曝光   >-009fcc?logoWidth=1" title="李金早突然被抓 与刘奇葆的官场秘闻曝光  " alt="李金早突然被抓 与刘奇葆的官场秘闻曝光  "></a></p>
-<p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/29/n12290905.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前中共军官：南海若开战中共则亡       >-009fcc?logoWidth=1" title="前中共军官：南海若开战中共则亡  " alt="前中共军官：南海若开战中共则亡  "></a></p>
+<p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/30/n12295855.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/连遭国际11击 习近平愁容露面       >-009fcc?logoWidth=1" title="连遭国际11击 习近平愁容露面  " alt="连遭国际11击 习近平愁容露面  "></a></p>
+<p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/31/n12297926.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共定调“经济内循环” 分析：糊弄老百姓  >-009fcc?logoWidth=1" title="中共定调“经济内循环” 分析：糊弄老百姓  " alt="中共定调“经济内循环” 分析：糊弄老百姓  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/31/n12297163.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连疫情升温 防疫草木皆兵         >-009fcc?logoWidth=1" title="大连疫情升温 防疫草木皆兵  " alt="大连疫情升温 防疫草木皆兵  "></a></p>
 <p><a href="https://github.com/viliqq330/ntdtv/blob/master/gb/2020/07/31/a102907123.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林晓旭：石正丽作政治秀 欲盖弥彰      >-009fcc?logoWidth=1" title="林晓旭：石正丽作政治秀 欲盖弥彰  " alt="林晓旭：石正丽作政治秀 欲盖弥彰  "></a></p>
@@ -489,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/viliqq330/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/viliqq330/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/viliqq330/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/viliqq330/www/blob/master/README.md?s#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/viliqq330/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/viliqq330/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/viliqq330/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/viliqq330/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/viliqq330/www/blob/master/README.md?r#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/viliqq330/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rffff">git.io/rffff</a></div>
+<div align="center">短网址: <a href="https://git.io/gqqqq">git.io/gqqqq</a></div>
 
