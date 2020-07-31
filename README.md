@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jfduzj338/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jfduzj338/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ppppp">git.io/ppppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/hhii">x.co/hhii</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uuuuu">git.io/uuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/gdd">x.co/gdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/31/a102906738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习做梦李拆梦 反习暗流涌动 北戴河会议开不开>-009fcc?logoWidth=1" title="习做梦李拆梦 反习暗流涌动 北戴河会议开不开？  " alt="习做梦李拆梦 反习暗流涌动 北戴河会议开不开？  "></a></p>
 <p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/30/a102906553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦：中共制造病毒 又伪造基因序列转移视线>-009fcc?logoWidth=1" title="闫丽梦：中共制造病毒 又伪造基因序列转移视线  " alt="闫丽梦：中共制造病毒 又伪造基因序列转移视线  "></a></p>
 <p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/30/a102906302.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵曝曾庆红倒习失败 习愤而灭曾     >-009fcc?logoWidth=1" title="郭文贵曝曾庆红倒习失败 习愤而灭曾  " alt="郭文贵曝曾庆红倒习失败 习愤而灭曾  "></a></p>
 <p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/30/a102906119.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦再接受采访/习罕见只给一人授衔    >-009fcc?logoWidth=1" title="闫丽梦再接受采访/习罕见只给一人授衔  " alt="闫丽梦再接受采访/习罕见只给一人授衔  "></a></p>
 <p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/30/a102906189.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国政府罕见系列行动 公开声援法轮功    >-009fcc?logoWidth=1" title="美国政府罕见系列行动 公开声援法轮功  " alt="美国政府罕见系列行动 公开声援法轮功  "></a></p>
 <p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/30/a102906143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一本“奇书”被热捧 再现中共官场现形记   >-009fcc?logoWidth=1" title="一本“奇书”被热捧 再现中共官场现形记  " alt="一本“奇书”被热捧 再现中共官场现形记  "></a></p>
-<p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/30/a102906123.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/关闭中领馆后美国拟再出招 削减中共驻美外交官>-009fcc?logoWidth=1" title="关闭中领馆后美国拟再出招 削减中共驻美外交官  " alt="关闭中领馆后美国拟再出招 削减中共驻美外交官  "></a></p>
 <p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/31/a102906739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李登辉生前罕见评价习近平：想当世界领导有困难>-009fcc?logoWidth=1" title="李登辉生前罕见评价习近平：想当世界领导有困难  " alt="李登辉生前罕见评价习近平：想当世界领导有困难  "></a></p>
 <p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/31/a102906740.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/先炒邵家臻后炒戴耀廷 香港大学全跪低    >-009fcc?logoWidth=1" title="先炒邵家臻后炒戴耀廷 香港大学全跪低  " alt="先炒邵家臻后炒戴耀廷 香港大学全跪低  "></a></p>
 <p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/30/a102906647.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共5G“大跃进”：运营商交不起电费定时关基>-009fcc?logoWidth=1" title="中共5G“大跃进”：运营商交不起电费定时关基站  " alt="中共5G“大跃进”：运营商交不起电费定时关基站  "></a></p>
@@ -489,7 +489,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/jfduzj338/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jfduzj338/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jfduzj338/www/blob/master/README.md?i#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/jfduzj338/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jfduzj338/www/blob/master/README.md?v#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/jfduzj338/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ppppp">git.io/ppppp</a></div>
+<div align="center">短网址: <a href="https://git.io/uuuuu">git.io/uuuuu</a></div>
 
