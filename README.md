@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jfduzj338/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jfduzj338/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tttttttt">git.io/tttttttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ndd">x.co/ndd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/q6666">git.io/q6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/udd">x.co/udd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/30/a102906189.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国政府罕见系列行动 公开声援法轮功    >-009fcc?logoWidth=1" title="美国政府罕见系列行动 公开声援法轮功  " alt="美国政府罕见系列行动 公开声援法轮功  "></a></p>
 <p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/30/a102906143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一本“奇书”被热捧 再现中共官场现形记   >-009fcc?logoWidth=1" title="一本“奇书”被热捧 再现中共官场现形记  " alt="一本“奇书”被热捧 再现中共官场现形记  "></a></p>
 <p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/30/a102906123.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/关闭中领馆后美国拟再出招 削减中共驻美外交官>-009fcc?logoWidth=1" title="关闭中领馆后美国拟再出招 削减中共驻美外交官  " alt="关闭中领馆后美国拟再出招 削减中共驻美外交官  "></a></p>
+<p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/30/a102906647.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共5G“大跃进”：运营商交不起电费定时关基>-009fcc?logoWidth=1" title="中共5G“大跃进”：运营商交不起电费定时关基站  " alt="中共5G“大跃进”：运营商交不起电费定时关基站  "></a></p>
 <p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员推法案 遭驱逐中共官员及家属不得签证 >-009fcc?logoWidth=1" title="美议员推法案 遭驱逐中共官员及家属不得签证  " alt="美议员推法案 遭驱逐中共官员及家属不得签证  "></a></p>
 <p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/30/a102906672.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普: 不会再全面封闭国家 增强血浆疗法  >-009fcc?logoWidth=1" title="川普: 不会再全面封闭国家 增强血浆疗法  " alt="川普: 不会再全面封闭国家 增强血浆疗法  "></a></p>
 <p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/30/a102906632.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/共谍惹怒老大哥 俄罗斯不给中共导弹     >-009fcc?logoWidth=1" title="共谍惹怒老大哥 俄罗斯不给中共导弹  " alt="共谍惹怒老大哥 俄罗斯不给中共导弹  "></a></p>
 <p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/30/a102906610.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情失控 乌鲁木齐家家贴封条        >-009fcc?logoWidth=1" title="疫情失控 乌鲁木齐家家贴封条  " alt="疫情失控 乌鲁木齐家家贴封条  "></a></p>
-<p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/30/a102906616.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄之锋等12人被夺参选资格 立法会选举被指成>-009fcc?logoWidth=1" title="黄之锋等12人被夺参选资格 立法会选举被指成笑话  " alt="黄之锋等12人被夺参选资格 立法会选举被指成笑话  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jfduzj338/djy/blob/master/gb/20/7/30/n12295210.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国黑帮和毒枭合作 洗钱规模惊人      >-009fcc?logoWidth=1" title="中国黑帮和毒枭合作 洗钱规模惊人  " alt="中国黑帮和毒枭合作 洗钱规模惊人  "></a></p>
 <p><a href="https://github.com/jfduzj338/djy/blob/master/gb/20/7/30/n12293985.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国关中领馆效应 亲共者大难临头各自飞   >-009fcc?logoWidth=1" title="美国关中领馆效应 亲共者大难临头各自飞  " alt="美国关中领馆效应 亲共者大难临头各自飞  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/jfduzj338/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jfduzj338/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jfduzj338/www/blob/master/README.md?c#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/jfduzj338/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/jfduzj338/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jfduzj338/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jfduzj338/www/blob/master/README.md?k#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/jfduzj338/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/tttttttt">git.io/tttttttt</a></div>
+<div align="center">短网址: <a href="https://git.io/q6666">git.io/q6666</a></div>
 
