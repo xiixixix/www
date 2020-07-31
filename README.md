@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/emrtcs3109/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/emrtcs3109/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pffff">git.io/pffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/byy">x.co/byy</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/giiii">git.io/giiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aaq">x.co/aaq</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/2020/07/31/a102907007.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军队可能会哗变？/习做梦李拆梦     >-009fcc?logoWidth=1" title="中共军队可能会哗变？/习做梦李拆梦  " alt="中共军队可能会哗变？/习做梦李拆梦  "></a></p>
 <p><a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/2020/07/31/a102906919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/树倒猢狲散 中领馆被关吓坏亲共侨团     >-009fcc?logoWidth=1" title="树倒猢狲散 中领馆被关吓坏亲共侨团  " alt="树倒猢狲散 中领馆被关吓坏亲共侨团  "></a></p>
 <p><a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/2020/07/31/a102906889.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：中共是当代主要威胁         >-009fcc?logoWidth=1" title="蓬佩奥：中共是当代主要威胁  " alt="蓬佩奥：中共是当代主要威胁  "></a></p>
 <p><a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/2020/07/30/a102906553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦：中共制造病毒 又伪造基因序列转移视线>-009fcc?logoWidth=1" title="闫丽梦：中共制造病毒 又伪造基因序列转移视线  " alt="闫丽梦：中共制造病毒 又伪造基因序列转移视线  "></a></p>
 <p><a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/2020/07/31/a102906813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强绝食出事了？网曝习近平怒砸九云杯   >-009fcc?logoWidth=1" title="任志强绝食出事了？网曝习近平怒砸九云杯  " alt="任志强绝食出事了？网曝习近平怒砸九云杯  "></a></p>
 <p><a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/2020/07/31/a102906809.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李登辉一句“空包弹”曾气炸江泽民      >-009fcc?logoWidth=1" title="李登辉一句“空包弹”曾气炸江泽民  " alt="李登辉一句“空包弹”曾气炸江泽民  "></a></p>
-<p><a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/2020/07/31/a102906762.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务卿蓬佩奥悼念中华民国前总统李登辉   >-009fcc?logoWidth=1" title="美国务卿蓬佩奥悼念中华民国前总统李登辉  " alt="美国务卿蓬佩奥悼念中华民国前总统李登辉  "></a></p>
+<p><a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/2020/07/31/a102907054.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵正永被判死缓 期满后终身监禁 不得假释  >-009fcc?logoWidth=1" title="赵正永被判死缓 期满后终身监禁 不得假释  " alt="赵正永被判死缓 期满后终身监禁 不得假释  "></a></p>
+<p><a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前共军中校：美中若开战 中共军队可能会哗变 >-009fcc?logoWidth=1" title="前共军中校：美中若开战 中共军队可能会哗变  " alt="前共军中校：美中若开战 中共军队可能会哗变  "></a></p>
 <p><a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/2020/07/31/a102907060.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前共军中校：美中若开战 中共军队可能会哗变 >-009fcc?logoWidth=1" title="前共军中校：美中若开战 中共军队可能会哗变  " alt="前共军中校：美中若开战 中共军队可能会哗变  "></a></p>
 <p><a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/2020/07/31/a102907000.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国政要区分中共与中国 中南海陷恐慌    >-009fcc?logoWidth=1" title="美国政要区分中共与中国 中南海陷恐慌  " alt="美国政要区分中共与中国 中南海陷恐慌  "></a></p>
 <p><a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/2020/07/31/a102906990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/女子溺水失意识 30名民众“串人链”紧急救人>-009fcc?logoWidth=1" title="女子溺水失意识 30名民众“串人链”紧急救人  " alt="女子溺水失意识 30名民众“串人链”紧急救人  "></a></p>
-<p><a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/2020/07/31/a102907010.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文悼念李登辉：把民主和自由留给台湾   >-009fcc?logoWidth=1" title="蔡英文悼念李登辉：把民主和自由留给台湾  " alt="蔡英文悼念李登辉：把民主和自由留给台湾  "></a></p>
-<p><a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/2020/07/31/a102906865.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/原大连讲师刘荣华 不堪回首的10年冤狱生活 >-009fcc?logoWidth=1" title="原大连讲师刘荣华 不堪回首的10年冤狱生活  " alt="原大连讲师刘荣华 不堪回首的10年冤狱生活  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/emrtcs3109/djy/blob/master/gb/20/7/29/n12290905.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前中共军官：南海若开战中共则亡       >-009fcc?logoWidth=1" title="前中共军官：南海若开战中共则亡  " alt="前中共军官：南海若开战中共则亡  "></a></p>
 <p><a href="https://github.com/emrtcs3109/djy/blob/master/gb/20/7/31/n12296507.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙春兰急赴大连的背后            >-009fcc?logoWidth=1" title="孙春兰急赴大连的背后  " alt="孙春兰急赴大连的背后  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/emrtcs3109/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/emrtcs3109/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/emrtcs3109/www/blob/master/README.md?g#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/emrtcs3109/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/emrtcs3109/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/emrtcs3109/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/emrtcs3109/www/blob/master/README.md?i#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/emrtcs3109/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/pffff">git.io/pffff</a></div>
+<div align="center">短网址: <a href="https://git.io/giiii">git.io/giiii</a></div>
 
