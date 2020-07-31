@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/emrtcs3109/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/emrtcs3109/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/giiii">git.io/giiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aaq">x.co/aaq</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/5555555">git.io/5555555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a7a">x.co/a7a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,13 +40,14 @@
 <p><a href="https://github.com/emrtcs3109/djy/blob/master/gb/20/7/31/n12296755.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连疫情恶化 官方不排除可能存在社区传播  >-009fcc?logoWidth=1" title="大连疫情恶化 官方不排除可能存在社区传播  " alt="大连疫情恶化 官方不排除可能存在社区传播  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/emrtcs3109/djy/blob/master/gb/20/7/30/n12295355.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳粹成禁搜词 中共恐惧国人认清中共统治的残暴>-009fcc?logoWidth=1" title="纳粹成禁搜词 中共恐惧国人认清中共统治的残暴性  " alt="纳粹成禁搜词 中共恐惧国人认清中共统治的残暴性  "></a></p>
+<p><a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/2020/07/31/a102906713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平愁容满面眼发直 军阀割据时代来了？  >-009fcc?logoWidth=1" title="习近平愁容满面眼发直 军阀割据时代来了？  " alt="习近平愁容满面眼发直 军阀割据时代来了？  "></a></p>
 <p><a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/2020/07/30/a102906630.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/%3F 1】念“九字真言”对中共病毒临床效果研究>-009fcc?logoWidth=1" title="? 1】念“九字真言”对中共病毒临床效果研究报告  " alt="? 1】念“九字真言”对中共病毒临床效果研究报告  "></a></p>
+<p><a href="https://github.com/emrtcs3109/djy/blob/master/gb/20/7/30/n12296164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共特务无孔不入 连蒋介石身边也有 >-009fcc?logoWidth=1" title="王友群：中共特务无孔不入 连蒋介石身边也有  " alt="王友群：中共特务无孔不入 连蒋介石身边也有  "></a></p>
+<p><a href="https://github.com/emrtcs3109/djy/blob/master/gb/20/7/30/n12295497.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共战机南海军演 挑战美国 两国会热战吗？ >-009fcc?logoWidth=1" title="中共战机南海军演 挑战美国 两国会热战吗？  " alt="中共战机南海军演 挑战美国 两国会热战吗？  "></a></p>
 <p><a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/2020/07/30/a102906302.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵曝曾庆红倒习失败 习愤而灭曾     >-009fcc?logoWidth=1" title="郭文贵曝曾庆红倒习失败 习愤而灭曾  " alt="郭文贵曝曾庆红倒习失败 习愤而灭曾  "></a></p>
 <p><a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/2020/07/30/a102905975.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：北戴河或传惊雷 中共元老和美国联手倒习>-009fcc?logoWidth=1" title="文昭：北戴河或传惊雷 中共元老和美国联手倒习？  " alt="文昭：北戴河或传惊雷 中共元老和美国联手倒习？  "></a></p>
-<p><a href="https://github.com/emrtcs3109/djy/blob/master/gb/20/7/30/n12296000.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南“野鸡”院校欺诈学生 家长愤怒维权   >-009fcc?logoWidth=1" title="湖南“野鸡”院校欺诈学生 家长愤怒维权  " alt="湖南“野鸡”院校欺诈学生 家长愤怒维权  "></a></p>
-<p><a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/2020/07/31/a102906769.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/无视侵犯人权指控 WHO成中共活摘器官推手 >-009fcc?logoWidth=1" title="无视侵犯人权指控 WHO成中共活摘器官推手  " alt="无视侵犯人权指控 WHO成中共活摘器官推手  "></a></p>
-<p><a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/2020/07/31/a102906954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/决定命运的选择题——与中共为伍还是抛弃中共 >-009fcc?logoWidth=1" title="决定命运的选择题——与中共为伍还是抛弃中共  " alt="决定命运的选择题——与中共为伍还是抛弃中共  "></a></p>
-<p><a href="https://github.com/emrtcs3109/djy/blob/master/gb/20/7/31/n12296358.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国引领全球全面反共 蓬佩奥例举多项成果  >-009fcc?logoWidth=1" title="美国引领全球全面反共 蓬佩奥例举多项成果  " alt="美国引领全球全面反共 蓬佩奥例举多项成果  "></a></p>
+<p><a href="https://github.com/emrtcs3109/djy/blob/master/gb/20/7/31/n12296354.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/决定命运的选择题——与中共为伍还是抛弃中共 >-009fcc?logoWidth=1" title="决定命运的选择题——与中共为伍还是抛弃中共  " alt="决定命运的选择题——与中共为伍还是抛弃中共  "></a></p>
+<p><a href="https://github.com/emrtcs3109/djy/blob/master/gb/20/7/31/n12296873.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/受贿7.17亿 陕西前书记赵正永被判死缓  >-009fcc?logoWidth=1" title="受贿7.17亿 陕西前书记赵正永被判死缓  " alt="受贿7.17亿 陕西前书记赵正永被判死缓  "></a></p>
 <p><a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/2020/07/31/a102906859.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/边控武汉党员干部公务员军人 中共最怕的事来了>-009fcc?logoWidth=1" title="边控武汉党员干部公务员军人 中共最怕的事来了  " alt="边控武汉党员干部公务员军人 中共最怕的事来了  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -485,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/emrtcs3109/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/emrtcs3109/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/emrtcs3109/www/blob/master/README.md?i#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/emrtcs3109/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/emrtcs3109/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/emrtcs3109/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/emrtcs3109/www/blob/master/README.md?h#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/emrtcs3109/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/giiii">git.io/giiii</a></div>
+<div align="center">短网址: <a href="https://git.io/5555555">git.io/5555555</a></div>
 
