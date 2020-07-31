@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/viliqq330/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/viliqq330/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fmmmm">git.io/fmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppa">x.co/ppa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/caaaa">git.io/caaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/caa">x.co/caa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/viliqq330/ntdtv/blob/master/gb/2020/07/30/a102906553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦：中共制造病毒 又伪造基因序列转移视线>-009fcc?logoWidth=1" title="闫丽梦：中共制造病毒 又伪造基因序列转移视线  " alt="闫丽梦：中共制造病毒 又伪造基因序列转移视线  "></a></p>
 <p><a href="https://github.com/viliqq330/ntdtv/blob/master/gb/2020/07/31/a102906813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强绝食出事了？网曝习近平怒砸九云杯   >-009fcc?logoWidth=1" title="任志强绝食出事了？网曝习近平怒砸九云杯  " alt="任志强绝食出事了？网曝习近平怒砸九云杯  "></a></p>
 <p><a href="https://github.com/viliqq330/ntdtv/blob/master/gb/2020/07/31/a102906809.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李登辉一句“空包弹”曾气炸江泽民      >-009fcc?logoWidth=1" title="李登辉一句“空包弹”曾气炸江泽民  " alt="李登辉一句“空包弹”曾气炸江泽民  "></a></p>
+<p><a href="https://github.com/viliqq330/ntdtv/blob/master/gb/2020/07/31/a102907540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/难以为继 美国移民局申请费整体上涨20   >-009fcc?logoWidth=1" title="难以为继 美国移民局申请费整体上涨20  " alt="难以为继 美国移民局申请费整体上涨20  "></a></p>
 <p><a href="https://github.com/viliqq330/ntdtv/blob/master/gb/2020/07/31/a102907511.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/汛情北上 北京天津同日开启“看海”模式(视频>-009fcc?logoWidth=1" title="汛情北上 北京天津同日开启“看海”模式(视频)  " alt="汛情北上 北京天津同日开启“看海”模式(视频)  "></a></p>
 <p><a href="https://github.com/viliqq330/ntdtv/blob/master/gb/2020/07/31/a102907489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乌鲁木齐疫情下全面封市 欧洲经济大倒退   >-009fcc?logoWidth=1" title="乌鲁木齐疫情下全面封市 欧洲经济大倒退  " alt="乌鲁木齐疫情下全面封市 欧洲经济大倒退  "></a></p>
 <p><a href="https://github.com/viliqq330/ntdtv/blob/master/gb/2020/07/31/a102907468.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国宣布制裁新疆兵团及其两名官员      >-009fcc?logoWidth=1" title="美国宣布制裁新疆兵团及其两名官员  " alt="美国宣布制裁新疆兵团及其两名官员  "></a></p>
 <p><a href="https://github.com/viliqq330/ntdtv/blob/master/gb/2020/07/31/a102907486.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/悼念李登辉 大陆学者盼中国也能民主化    >-009fcc?logoWidth=1" title="悼念李登辉 大陆学者盼中国也能民主化  " alt="悼念李登辉 大陆学者盼中国也能民主化  "></a></p>
-<p><a href="https://github.com/viliqq330/ntdtv/blob/master/gb/2020/07/31/a102907457.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会前高官大调整 陕西书记突被贬职   >-009fcc?logoWidth=1" title="北戴河会前高官大调整 陕西书记突被贬职  " alt="北戴河会前高官大调整 陕西书记突被贬职  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/28/n12290364.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭秘替中共牵线搭桥的神秘商会        >-009fcc?logoWidth=1" title="揭秘替中共牵线搭桥的神秘商会  " alt="揭秘替中共牵线搭桥的神秘商会  "></a></p>
 <p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/31/n12297892.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐娟被捕细节：本想自首但犯病 领馆车送出  >-009fcc?logoWidth=1" title="唐娟被捕细节：本想自首但犯病 领馆车送出  " alt="唐娟被捕细节：本想自首但犯病 领馆车送出  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/viliqq330/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/viliqq330/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/viliqq330/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/viliqq330/www/blob/master/README.md?y#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/viliqq330/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/viliqq330/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/viliqq330/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/viliqq330/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/viliqq330/www/blob/master/README.md?f#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/viliqq330/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fmmmm">git.io/fmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/caaaa">git.io/caaaa</a></div>
 
