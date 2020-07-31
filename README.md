@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/emrtcs3109/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/emrtcs3109/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pgggg">git.io/pgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9933">x.co/9933</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ftttt">git.io/ftttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pps">x.co/pps</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,14 +41,13 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/emrtcs3109/djy/blob/master/gb/20/7/29/n12293156.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/染疫者逛了半个市 福州进入战时状态     >-009fcc?logoWidth=1" title="染疫者逛了半个市 福州进入战时状态  " alt="染疫者逛了半个市 福州进入战时状态  "></a></p>
 <p><a href="https://github.com/emrtcs3109/djy/blob/master/gb/20/7/30/n12295497.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共战机南海军演 挑战美国 两国会热战吗？ >-009fcc?logoWidth=1" title="中共战机南海军演 挑战美国 两国会热战吗？  " alt="中共战机南海军演 挑战美国 两国会热战吗？  "></a></p>
-<p><a href="https://github.com/emrtcs3109/djy/blob/master/gb/20/7/29/n12293392.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：唐娟们到底要盗窃什么机密？      >-009fcc?logoWidth=1" title="杨威：唐娟们到底要盗窃什么机密？  " alt="杨威：唐娟们到底要盗窃什么机密？  "></a></p>
-<p><a href="https://github.com/emrtcs3109/djy/blob/master/gb/20/7/30/n12295355.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳粹成禁搜词 中共恐惧国人认清中共统治的残暴>-009fcc?logoWidth=1" title="纳粹成禁搜词 中共恐惧国人认清中共统治的残暴性  " alt="纳粹成禁搜词 中共恐惧国人认清中共统治的残暴性  "></a></p>
 <p><a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/2020/07/30/a102906583.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乌鲁木齐防疫挨家挨户贴封条：出门打断腿(视频>-009fcc?logoWidth=1" title="乌鲁木齐防疫挨家挨户贴封条：出门打断腿(视频)  " alt="乌鲁木齐防疫挨家挨户贴封条：出门打断腿(视频)  "></a></p>
-<p><a href="https://github.com/emrtcs3109/djy/blob/master/gb/20/7/30/n12295586.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度两科技巨头吁政府进一步限制中企     >-009fcc?logoWidth=1" title="印度两科技巨头吁政府进一步限制中企  " alt="印度两科技巨头吁政府进一步限制中企  "></a></p>
-<p><a href="https://github.com/emrtcs3109/djy/blob/master/gb/20/7/30/n12294418.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆疫情严重 官方恐吓民众“出门打断腿”  >-009fcc?logoWidth=1" title="新疆疫情严重 官方恐吓民众“出门打断腿”  " alt="新疆疫情严重 官方恐吓民众“出门打断腿”  "></a></p>
+<p><a href="https://github.com/emrtcs3109/djy/blob/master/gb/20/7/31/n12296600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内外交困 习再露面脸色阴沉         >-009fcc?logoWidth=1" title="内外交困 习再露面脸色阴沉  " alt="内外交困 习再露面脸色阴沉  "></a></p>
+<p><a href="https://github.com/emrtcs3109/djy/blob/master/gb/20/7/30/n12296232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/窃研究机密售往中国 美华裔女科学家认罪   >-009fcc?logoWidth=1" title="窃研究机密售往中国 美华裔女科学家认罪  " alt="窃研究机密售往中国 美华裔女科学家认罪  "></a></p>
 <p><a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/2020/07/31/a102906832.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抖音TikTok在美国主战场战役已揭开序幕【>-009fcc?logoWidth=1" title="抖音TikTok在美国主战场战役已揭开序幕【红与黑！下】  " alt="抖音TikTok在美国主战场战役已揭开序幕【红与黑！下】  "></a></p>
 <p><a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/2020/07/30/a102906031.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平满面愁云 罕见只给一人授衔      >-009fcc?logoWidth=1" title="习近平满面愁云 罕见只给一人授衔  " alt="习近平满面愁云 罕见只给一人授衔  "></a></p>
-<p><a href="https://github.com/emrtcs3109/djy/blob/master/gb/20/7/30/n12295560.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/辽宁西部旱灾 农作物大面积绝收 树木凋零  >-009fcc?logoWidth=1" title="辽宁西部旱灾 农作物大面积绝收 树木凋零  " alt="辽宁西部旱灾 农作物大面积绝收 树木凋零  "></a></p>
+<p><a href="https://github.com/emrtcs3109/djy/blob/master/gb/20/7/28/n12289397.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法轮功案不许评查 各级镇压从未松      >-009fcc?logoWidth=1" title="法轮功案不许评查 各级镇压从未松  " alt="法轮功案不许评查 各级镇压从未松  "></a></p>
+<p><a href="https://github.com/emrtcs3109/djy/blob/master/gb/20/7/31/n12296358.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国引领全球全面反共 蓬佩奥例举多项成果  >-009fcc?logoWidth=1" title="美国引领全球全面反共 蓬佩奥例举多项成果  " alt="美国引领全球全面反共 蓬佩奥例举多项成果  "></a></p>
 <p><a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/2020/07/30/a102906307.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河北运钞车劫杀案 嫌犯竟是法院院长     >-009fcc?logoWidth=1" title="河北运钞车劫杀案 嫌犯竟是法院院长  " alt="河北运钞车劫杀案 嫌犯竟是法院院长  "></a></p>
 <p><a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/2020/07/30/a102906143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一本“奇书”被热捧 再现中共官场现形记   >-009fcc?logoWidth=1" title="一本“奇书”被热捧 再现中共官场现形记  " alt="一本“奇书”被热捧 再现中共官场现形记  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -488,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/emrtcs3109/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/emrtcs3109/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/emrtcs3109/www/blob/master/README.md?c#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/emrtcs3109/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/emrtcs3109/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/emrtcs3109/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/emrtcs3109/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/emrtcs3109/www/blob/master/README.md?i#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/emrtcs3109/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/pgggg">git.io/pgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/ftttt">git.io/ftttt</a></div>
 
