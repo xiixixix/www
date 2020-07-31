@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/viliqq330/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/viliqq330/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/azzzz">git.io/azzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3339">x.co/3339</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fffffff">git.io/fffffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa8">x.co/aa8</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,8 +22,8 @@
 <p><a href="https://github.com/viliqq330/ntdtv/blob/master/gb/2020/07/31/a102906809.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李登辉一句“空包弹”曾气炸江泽民      >-009fcc?logoWidth=1" title="李登辉一句“空包弹”曾气炸江泽民  " alt="李登辉一句“空包弹”曾气炸江泽民  "></a></p>
 <p><a href="https://github.com/viliqq330/ntdtv/blob/master/gb/2020/07/31/a102907178.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美新禁令后 葡萄牙三大电信巨头弃华为5G  >-009fcc?logoWidth=1" title="美新禁令后 葡萄牙三大电信巨头弃华为5G  " alt="美新禁令后 葡萄牙三大电信巨头弃华为5G  "></a></p>
 <p><a href="https://github.com/viliqq330/ntdtv/blob/master/gb/2020/07/31/a102907123.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林晓旭：石正丽作政治秀 欲盖弥彰      >-009fcc?logoWidth=1" title="林晓旭：石正丽作政治秀 欲盖弥彰  " alt="林晓旭：石正丽作政治秀 欲盖弥彰  "></a></p>
+<p><a href="https://github.com/viliqq330/ntdtv/blob/master/gb/2020/07/31/a102907115.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民主路上硬颈挺进！李登辉领台湾度过台海危机 >-009fcc?logoWidth=1" title="民主路上硬颈挺进！李登辉领台湾度过台海危机  " alt="民主路上硬颈挺进！李登辉领台湾度过台海危机  "></a></p>
 <p><a href="https://github.com/viliqq330/ntdtv/blob/master/gb/2020/07/31/a102907054.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵正永被判死缓 期满后终身监禁 不得假释  >-009fcc?logoWidth=1" title="赵正永被判死缓 期满后终身监禁 不得假释  " alt="赵正永被判死缓 期满后终身监禁 不得假释  "></a></p>
-<p><a href="https://github.com/viliqq330/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前共军中校：美中若开战 中共军队可能会哗变 >-009fcc?logoWidth=1" title="前共军中校：美中若开战 中共军队可能会哗变  " alt="前共军中校：美中若开战 中共军队可能会哗变  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/28/n12290364.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭秘替中共牵线搭桥的神秘商会        >-009fcc?logoWidth=1" title="揭秘替中共牵线搭桥的神秘商会  " alt="揭秘替中共牵线搭桥的神秘商会  "></a></p>
 <p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/31/n12296507.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙春兰急赴大连的背后            >-009fcc?logoWidth=1" title="孙春兰急赴大连的背后  " alt="孙春兰急赴大连的背后  "></a></p>
@@ -484,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/viliqq330/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/viliqq330/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/viliqq330/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/viliqq330/www/blob/master/README.md?m#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/viliqq330/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/viliqq330/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/viliqq330/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/viliqq330/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/viliqq330/www/blob/master/README.md?g#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/viliqq330/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/azzzz">git.io/azzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/fffffff">git.io/fffffff</a></div>
 
