@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jfduzj338/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jfduzj338/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uyyyy">git.io/uyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3366">x.co/3366</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k9999">git.io/k9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppe">x.co/ppe</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/31/a102906813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强绝食出事了？网曝习近平怒砸九云杯   >-009fcc?logoWidth=1" title="任志强绝食出事了？网曝习近平怒砸九云杯  " alt="任志强绝食出事了？网曝习近平怒砸九云杯  "></a></p>
 <p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/31/a102906762.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务卿蓬佩奥悼念中华民国前总统李登辉   >-009fcc?logoWidth=1" title="美国务卿蓬佩奥悼念中华民国前总统李登辉  " alt="美国务卿蓬佩奥悼念中华民国前总统李登辉  "></a></p>
 <p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/31/a102906738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习做梦李拆梦 反习暗流涌动 北戴河会议开不开>-009fcc?logoWidth=1" title="习做梦李拆梦 反习暗流涌动 北戴河会议开不开？  " alt="习做梦李拆梦 反习暗流涌动 北戴河会议开不开？  "></a></p>
 <p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/30/a102906553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦：中共制造病毒 又伪造基因序列转移视线>-009fcc?logoWidth=1" title="闫丽梦：中共制造病毒 又伪造基因序列转移视线  " alt="闫丽梦：中共制造病毒 又伪造基因序列转移视线  "></a></p>
 <p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/30/a102906302.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭文贵曝曾庆红倒习失败 习愤而灭曾     >-009fcc?logoWidth=1" title="郭文贵曝曾庆红倒习失败 习愤而灭曾  " alt="郭文贵曝曾庆红倒习失败 习愤而灭曾  "></a></p>
 <p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/30/a102906119.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦再接受采访/习罕见只给一人授衔    >-009fcc?logoWidth=1" title="闫丽梦再接受采访/习罕见只给一人授衔  " alt="闫丽梦再接受采访/习罕见只给一人授衔  "></a></p>
-<p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/30/a102906189.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国政府罕见系列行动 公开声援法轮功    >-009fcc?logoWidth=1" title="美国政府罕见系列行动 公开声援法轮功  " alt="美国政府罕见系列行动 公开声援法轮功  "></a></p>
 <p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/31/a102906809.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李登辉一句“空包弹”曾气炸江泽民      >-009fcc?logoWidth=1" title="李登辉一句“空包弹”曾气炸江泽民  " alt="李登辉一句“空包弹”曾气炸江泽民  "></a></p>
 <p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/31/a102906769.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/无视侵犯人权指控 WHO成中共活摘器官推手 >-009fcc?logoWidth=1" title="无视侵犯人权指控 WHO成中共活摘器官推手  " alt="无视侵犯人权指控 WHO成中共活摘器官推手  "></a></p>
 <p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/31/a102906740.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/先炒邵家臻后炒戴耀廷 香港大学全跪低    >-009fcc?logoWidth=1" title="先炒邵家臻后炒戴耀廷 香港大学全跪低  " alt="先炒邵家臻后炒戴耀廷 香港大学全跪低  "></a></p>
@@ -44,14 +44,13 @@
 <p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/30/a102905975.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：北戴河或传惊雷 中共元老和美国联手倒习>-009fcc?logoWidth=1" title="文昭：北戴河或传惊雷 中共元老和美国联手倒习？  " alt="文昭：北戴河或传惊雷 中共元老和美国联手倒习？  "></a></p>
 <p><a href="https://github.com/jfduzj338/djy/blob/master/gb/20/7/30/n12295355.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳粹成禁搜词 中共恐惧国人认清中共统治的残暴>-009fcc?logoWidth=1" title="纳粹成禁搜词 中共恐惧国人认清中共统治的残暴性  " alt="纳粹成禁搜词 中共恐惧国人认清中共统治的残暴性  "></a></p>
 <p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/30/a102906490.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李登辉去世：台湾“民主先生”曾因“主权”论致>-009fcc?logoWidth=1" title="李登辉去世：台湾“民主先生”曾因“主权”论致两岸关系一触即发（上）  " alt="李登辉去世：台湾“民主先生”曾因“主权”论致两岸关系一触即发（上）  "></a></p>
-<p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/30/a102906031.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平满面愁云 罕见只给一人授衔      >-009fcc?logoWidth=1" title="习近平满面愁云 罕见只给一人授衔  " alt="习近平满面愁云 罕见只给一人授衔  "></a></p>
 <p><a href="https://github.com/jfduzj338/djy/blob/master/gb/20/7/30/n12295586.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度两科技巨头吁政府进一步限制中企     >-009fcc?logoWidth=1" title="印度两科技巨头吁政府进一步限制中企  " alt="印度两科技巨头吁政府进一步限制中企  "></a></p>
 <p><a href="https://github.com/jfduzj338/djy/blob/master/gb/20/7/30/n12294418.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆疫情严重 官方恐吓民众“出门打断腿”  >-009fcc?logoWidth=1" title="新疆疫情严重 官方恐吓民众“出门打断腿”  " alt="新疆疫情严重 官方恐吓民众“出门打断腿”  "></a></p>
+<p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/30/a102906031.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平满面愁云 罕见只给一人授衔      >-009fcc?logoWidth=1" title="习近平满面愁云 罕见只给一人授衔  " alt="习近平满面愁云 罕见只给一人授衔  "></a></p>
 <p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/30/a102906307.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河北运钞车劫杀案 嫌犯竟是法院院长     >-009fcc?logoWidth=1" title="河北运钞车劫杀案 嫌犯竟是法院院长  " alt="河北运钞车劫杀案 嫌犯竟是法院院长  "></a></p>
-<p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/30/a102906143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一本“奇书”被热捧 再现中共官场现形记   >-009fcc?logoWidth=1" title="一本“奇书”被热捧 再现中共官场现形记  " alt="一本“奇书”被热捧 再现中共官场现形记  "></a></p>
 <p><a href="https://github.com/jfduzj338/djy/blob/master/gb/20/7/30/n12295560.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/辽宁西部旱灾 农作物大面积绝收 树木凋零  >-009fcc?logoWidth=1" title="辽宁西部旱灾 农作物大面积绝收 树木凋零  " alt="辽宁西部旱灾 农作物大面积绝收 树木凋零  "></a></p>
 <p><a href="https://github.com/jfduzj338/djy/blob/master/gb/20/7/30/n12295981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参院小组通过新法案 个人可起诉中共瞒疫  >-009fcc?logoWidth=1" title="美参院小组通过新法案 个人可起诉中共瞒疫  " alt="美参院小组通过新法案 个人可起诉中共瞒疫  "></a></p>
-<p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/30/a102906166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦没消失，川普两张王牌在手，中共会铤而走>-009fcc?logoWidth=1" title="闫丽梦没消失，川普两张王牌在手，中共会铤而走险“武统台湾”吗？  " alt="闫丽梦没消失，川普两张王牌在手，中共会铤而走险“武统台湾”吗？  "></a></p>
+<p><a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/2020/07/30/a102906143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一本“奇书”被热捧 再现中共官场现形记   >-009fcc?logoWidth=1" title="一本“奇书”被热捧 再现中共官场现形记  " alt="一本“奇书”被热捧 再现中共官场现形记  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -489,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/jfduzj338/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jfduzj338/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jfduzj338/www/blob/master/README.md?r#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/jfduzj338/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/jfduzj338/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jfduzj338/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jfduzj338/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jfduzj338/www/blob/master/README.md?s#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/jfduzj338/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/uyyyy">git.io/uyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/k9999">git.io/k9999</a></div>
 
