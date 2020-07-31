@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/viliqq330/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/viliqq330/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c9999">git.io/c9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pkp">x.co/pkp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hpppp">git.io/hpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3332">x.co/3332</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -29,10 +29,10 @@
 <p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/29/n12290905.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前中共军官：南海若开战中共则亡       >-009fcc?logoWidth=1" title="前中共军官：南海若开战中共则亡  " alt="前中共军官：南海若开战中共则亡  "></a></p>
 <p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/31/n12296771.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李金早突然被抓 与刘奇葆的官场秘闻曝光   >-009fcc?logoWidth=1" title="李金早突然被抓 与刘奇葆的官场秘闻曝光  " alt="李金早突然被抓 与刘奇葆的官场秘闻曝光  "></a></p>
 <p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/31/n12296507.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙春兰急赴大连的背后            >-009fcc?logoWidth=1" title="孙春兰急赴大连的背后  " alt="孙春兰急赴大连的背后  "></a></p>
-<p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/30/n12295855.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/连遭国际11击 习近平愁容露面       >-009fcc?logoWidth=1" title="连遭国际11击 习近平愁容露面  " alt="连遭国际11击 习近平愁容露面  "></a></p>
-<p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/30/n12295355.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳粹成禁词 中共恐惧国人认清其统治残暴性  >-009fcc?logoWidth=1" title="纳粹成禁词 中共恐惧国人认清其统治残暴性  " alt="纳粹成禁词 中共恐惧国人认清其统治残暴性  "></a></p>
-<p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/31/n12296441.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李登辉谈习近平 休斯顿领馆被破坏      >-009fcc?logoWidth=1" title="李登辉谈习近平 休斯顿领馆被破坏  " alt="李登辉谈习近平 休斯顿领馆被破坏  "></a></p>
 <p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/31/n12296398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千百度：奇冤无数，京沪同飘“六月雪”    >-009fcc?logoWidth=1" title="千百度：奇冤无数，京沪同飘“六月雪”  " alt="千百度：奇冤无数，京沪同飘“六月雪”  "></a></p>
+<p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/30/n12295855.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/连遭国际11击 习近平愁容露面       >-009fcc?logoWidth=1" title="连遭国际11击 习近平愁容露面  " alt="连遭国际11击 习近平愁容露面  "></a></p>
+<p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/31/n12296441.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李登辉谈习近平 休斯顿领馆被破坏      >-009fcc?logoWidth=1" title="李登辉谈习近平 休斯顿领馆被破坏  " alt="李登辉谈习近平 休斯顿领馆被破坏  "></a></p>
+<p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/30/n12295355.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳粹成禁词 中共恐惧国人认清其统治残暴性  >-009fcc?logoWidth=1" title="纳粹成禁词 中共恐惧国人认清其统治残暴性  " alt="纳粹成禁词 中共恐惧国人认清其统治残暴性  "></a></p>
 <p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/28/n12289397.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法轮功案不许评查 各级镇压从未松      >-009fcc?logoWidth=1" title="法轮功案不许评查 各级镇压从未松  " alt="法轮功案不许评查 各级镇压从未松  "></a></p>
 <p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/30/n12296232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/窃研究机密售往中国 美华裔女科学家认罪   >-009fcc?logoWidth=1" title="窃研究机密售往中国 美华裔女科学家认罪  " alt="窃研究机密售往中国 美华裔女科学家认罪  "></a></p>
 <p><a href="https://github.com/viliqq330/djy/blob/master/gb/20/7/31/n12297163.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连疫情升温 防疫草木皆兵         >-009fcc?logoWidth=1" title="大连疫情升温 防疫草木皆兵  " alt="大连疫情升温 防疫草木皆兵  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/viliqq330/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/viliqq330/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/viliqq330/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/viliqq330/www/blob/master/README.md?z#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/viliqq330/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/viliqq330/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/viliqq330/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/viliqq330/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/viliqq330/www/blob/master/README.md?k#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/viliqq330/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/c9999">git.io/c9999</a></div>
+<div align="center">短网址: <a href="https://git.io/hpppp">git.io/hpppp</a></div>
 
