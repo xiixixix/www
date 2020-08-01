@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ufywns3460/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ufywns3460/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/innnn">git.io/innnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2299">x.co/2299</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/skkkk">git.io/skkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/psp">x.co/psp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,15 +39,15 @@
 <p><a href="https://github.com/ufywns3460/djy/blob/master/gb/20/7/30/n12295855.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/连遭国际11击 习近平愁容露面       >-009fcc?logoWidth=1" title="连遭国际11击 习近平愁容露面  " alt="连遭国际11击 习近平愁容露面  "></a></p>
 <p><a href="https://github.com/ufywns3460/djy/blob/master/gb/20/7/31/n12297926.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共定调“经济内循环” 分析：糊弄老百姓  >-009fcc?logoWidth=1" title="中共定调“经济内循环” 分析：糊弄老百姓  " alt="中共定调“经济内循环” 分析：糊弄老百姓  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/2020/07/31/a102907456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/路透：中共央行建议调查支付宝和微信“垄断” >-009fcc?logoWidth=1" title="路透：中共央行建议调查支付宝和微信“垄断”  " alt="路透：中共央行建议调查支付宝和微信“垄断”  "></a></p>
 <p><a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/2020/07/30/a102906630.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/%3F 1】走出瘟疫奇特良方－－九字真言救命实录>-009fcc?logoWidth=1" title="? 1】走出瘟疫奇特良方－－九字真言救命实录  " alt="? 1】走出瘟疫奇特良方－－九字真言救命实录  "></a></p>
+<p><a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/2020/07/31/a102907060.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前共军中校：美中若开战 中共军队可能会哗变 >-009fcc?logoWidth=1" title="前共军中校：美中若开战 中共军队可能会哗变  " alt="前共军中校：美中若开战 中共军队可能会哗变  "></a></p>
+<p><a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/2020/07/31/a102906867.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共撤休斯顿领馆前搞破坏 大量装甲车现广东>-009fcc?logoWidth=1" title="传中共撤休斯顿领馆前搞破坏 大量装甲车现广东  " alt="传中共撤休斯顿领馆前搞破坏 大量装甲车现广东  "></a></p>
 <p><a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/2020/07/31/a102907244.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/垃圾站污水接入自来水管致病 杭州村民维权遭镇>-009fcc?logoWidth=1" title="垃圾站污水接入自来水管致病 杭州村民维权遭镇压  " alt="垃圾站污水接入自来水管致病 杭州村民维权遭镇压  "></a></p>
-<p><a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/2020/07/31/a102906713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平愁容满面眼发直 军阀割据时代来了？  >-009fcc?logoWidth=1" title="习近平愁容满面眼发直 军阀割据时代来了？  " alt="习近平愁容满面眼发直 军阀割据时代来了？  "></a></p>
 <p><a href="https://github.com/ufywns3460/djy/blob/master/gb/20/7/31/n12298143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李登辉关心中国民主 曾多次资助海外民运   >-009fcc?logoWidth=1" title="李登辉关心中国民主 曾多次资助海外民运  " alt="李登辉关心中国民主 曾多次资助海外民运  "></a></p>
 <p><a href="https://github.com/ufywns3460/djy/blob/master/gb/20/7/31/n12298335.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/风头盖过“习核心”？ 吉林公安厅副厅长贺电下>-009fcc?logoWidth=1" title="风头盖过“习核心”？ 吉林公安厅副厅长贺电下台  " alt="风头盖过“习核心”？ 吉林公安厅副厅长贺电下台  "></a></p>
+<p><a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/2020/07/31/a102906713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平愁容满面眼发直 军阀割据时代来了？  >-009fcc?logoWidth=1" title="习近平愁容满面眼发直 军阀割据时代来了？  " alt="习近平愁容满面眼发直 军阀割据时代来了？  "></a></p>
 <p><a href="https://github.com/ufywns3460/djy/blob/master/gb/20/7/31/n12297306.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福州市民质疑核酸检测 指政府失职      >-009fcc?logoWidth=1" title="福州市民质疑核酸检测 指政府失职  " alt="福州市民质疑核酸检测 指政府失职  "></a></p>
 <p><a href="https://github.com/ufywns3460/djy/blob/master/gb/20/7/31/n12298298.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙大开除犯强奸罪学生 网民：舆论治校    >-009fcc?logoWidth=1" title="浙大开除犯强奸罪学生 网民：舆论治校  " alt="浙大开除犯强奸罪学生 网民：舆论治校  "></a></p>
-<p><a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/2020/07/30/a102905975.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：北戴河或传惊雷 中共元老和美国联手倒习>-009fcc?logoWidth=1" title="文昭：北戴河或传惊雷 中共元老和美国联手倒习？  " alt="文昭：北戴河或传惊雷 中共元老和美国联手倒习？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ufywns3460/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ufywns3460/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ufywns3460/www/blob/master/README.md?b#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ufywns3460/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ufywns3460/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ufywns3460/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ufywns3460/www/blob/master/README.md?m#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ufywns3460/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/innnn">git.io/innnn</a></div>
+<div align="center">短网址: <a href="https://git.io/skkkk">git.io/skkkk</a></div>
 
