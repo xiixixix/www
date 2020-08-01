@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ufywns3460/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ufywns3460/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mkkkk">git.io/mkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/7aa">x.co/7aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a3333">git.io/a3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/jpp">x.co/jpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -30,7 +30,6 @@
 <p><a href="https://github.com/ufywns3460/djy/blob/master/gb/20/7/31/n12297892.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐娟被捕细节：本想自首但犯病 领馆车送出  >-009fcc?logoWidth=1" title="唐娟被捕细节：本想自首但犯病 领馆车送出  " alt="唐娟被捕细节：本想自首但犯病 领馆车送出  "></a></p>
 <p><a href="https://github.com/ufywns3460/djy/blob/master/gb/20/7/31/n12297926.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共定调“经济内循环” 分析：糊弄老百姓  >-009fcc?logoWidth=1" title="中共定调“经济内循环” 分析：糊弄老百姓  " alt="中共定调“经济内循环” 分析：糊弄老百姓  "></a></p>
 <p><a href="https://github.com/ufywns3460/djy/blob/master/gb/20/7/31/n12298335.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/风头盖过“习核心”？ 吉林省厅官贺电下台  >-009fcc?logoWidth=1" title="风头盖过“习核心”？ 吉林省厅官贺电下台  " alt="风头盖过“习核心”？ 吉林省厅官贺电下台  "></a></p>
-<p><a href="https://github.com/ufywns3460/djy/blob/master/gb/20/7/31/n12298689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：赵正永被判死缓 作恶者必遭清算   >-009fcc?logoWidth=1" title="王友群：赵正永被判死缓 作恶者必遭清算  " alt="王友群：赵正永被判死缓 作恶者必遭清算  "></a></p>
 <p><a href="https://github.com/ufywns3460/djy/blob/master/gb/20/7/31/n12298294.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：习近平六示军权的背后         >-009fcc?logoWidth=1" title="钟原：习近平六示军权的背后  " alt="钟原：习近平六示军权的背后  "></a></p>
 <p><a href="https://github.com/ufywns3460/djy/blob/master/gb/20/7/31/n12298359.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：习近平的一脸愁云与中共的走投无路   >-009fcc?logoWidth=1" title="袁斌：习近平的一脸愁云与中共的走投无路  " alt="袁斌：习近平的一脸愁云与中共的走投无路  "></a></p>
 <p><a href="https://github.com/ufywns3460/djy/blob/master/gb/20/7/28/n12290364.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭秘替中共牵线搭桥的神秘商会        >-009fcc?logoWidth=1" title="揭秘替中共牵线搭桥的神秘商会  " alt="揭秘替中共牵线搭桥的神秘商会  "></a></p>
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ufywns3460/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ufywns3460/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ufywns3460/www/blob/master/README.md?f#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ufywns3460/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ufywns3460/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ufywns3460/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ufywns3460/www/blob/master/README.md?h#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ufywns3460/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mkkkk">git.io/mkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/a3333">git.io/a3333</a></div>
 
