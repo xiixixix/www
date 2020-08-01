@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ufywns3460/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ufywns3460/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/skkkk">git.io/skkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/psp">x.co/psp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fkkkk">git.io/fkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/raa">x.co/raa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/2020/07/31/a102907511.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/汛情北上 北京天津同日开启“看海”模式(视频>-009fcc?logoWidth=1" title="汛情北上 北京天津同日开启“看海”模式(视频)  " alt="汛情北上 北京天津同日开启“看海”模式(视频)  "></a></p>
+<p><a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/2020/07/31/a102907457.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会前高官大调整 陕西书记突被贬职   >-009fcc?logoWidth=1" title="北戴河会前高官大调整 陕西书记突被贬职  " alt="北戴河会前高官大调整 陕西书记突被贬职  "></a></p>
+<p><a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/2020/07/31/a102907394.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉千人计划 美华裔教授被控44项罪最高刑期8>-009fcc?logoWidth=1" title="涉千人计划 美华裔教授被控44项罪最高刑期860年  " alt="涉千人计划 美华裔教授被控44项罪最高刑期860年  "></a></p>
 <p><a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/2020/07/31/a102907007.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军队可能会哗变？/习做梦李拆梦     >-009fcc?logoWidth=1" title="中共军队可能会哗变？/习做梦李拆梦  " alt="中共军队可能会哗变？/习做梦李拆梦  "></a></p>
 <p><a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/2020/07/31/a102906919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/树倒猢狲散 中领馆被关吓坏亲共侨团     >-009fcc?logoWidth=1" title="树倒猢狲散 中领馆被关吓坏亲共侨团  " alt="树倒猢狲散 中领馆被关吓坏亲共侨团  "></a></p>
 <p><a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/2020/07/31/a102906889.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：中共是当代主要威胁         >-009fcc?logoWidth=1" title="蓬佩奥：中共是当代主要威胁  " alt="蓬佩奥：中共是当代主要威胁  "></a></p>
-<p><a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/2020/07/30/a102906553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦：中共制造病毒 又伪造基因序列转移视线>-009fcc?logoWidth=1" title="闫丽梦：中共制造病毒 又伪造基因序列转移视线  " alt="闫丽梦：中共制造病毒 又伪造基因序列转移视线  "></a></p>
-<p><a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/2020/07/31/a102906813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强绝食出事了？网曝习近平怒砸九云杯   >-009fcc?logoWidth=1" title="任志强绝食出事了？网曝习近平怒砸九云杯  " alt="任志强绝食出事了？网曝习近平怒砸九云杯  "></a></p>
 <p><a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前共军中校：美中若开战 中共军队可能会哗变 >-009fcc?logoWidth=1" title="前共军中校：美中若开战 中共军队可能会哗变  " alt="前共军中校：美中若开战 中共军队可能会哗变  "></a></p>
+<p><a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/2020/08/01/a102907617.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西方老牌媒体支持清华 “马克思主义新闻”祸害>-009fcc?logoWidth=1" title="西方老牌媒体支持清华 “马克思主义新闻”祸害世界  " alt="西方老牌媒体支持清华 “马克思主义新闻”祸害世界  "></a></p>
 <p><a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/2020/07/31/a102907561.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/百年债券令中共政权陷合法性困境       >-009fcc?logoWidth=1" title="百年债券令中共政权陷合法性困境  " alt="百年债券令中共政权陷合法性困境  "></a></p>
 <p><a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/2020/07/31/a102907540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/难以为继 美国移民局申请费整体上涨20   >-009fcc?logoWidth=1" title="难以为继 美国移民局申请费整体上涨20  " alt="难以为继 美国移民局申请费整体上涨20  "></a></p>
 <p><a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/2020/07/31/a102907489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乌鲁木齐疫情下全面封市 欧洲经济大倒退   >-009fcc?logoWidth=1" title="乌鲁木齐疫情下全面封市 欧洲经济大倒退  " alt="乌鲁木齐疫情下全面封市 欧洲经济大倒退  "></a></p>
-<p><a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/2020/07/31/a102907468.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国宣布制裁新疆兵团及其两名官员      >-009fcc?logoWidth=1" title="美国宣布制裁新疆兵团及其两名官员  " alt="美国宣布制裁新疆兵团及其两名官员  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ufywns3460/djy/blob/master/gb/20/7/28/n12290364.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭秘替中共牵线搭桥的神秘商会        >-009fcc?logoWidth=1" title="揭秘替中共牵线搭桥的神秘商会  " alt="揭秘替中共牵线搭桥的神秘商会  "></a></p>
 <p><a href="https://github.com/ufywns3460/djy/blob/master/gb/20/7/31/n12297892.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐娟被捕细节：本想自首但犯病 领馆车送出  >-009fcc?logoWidth=1" title="唐娟被捕细节：本想自首但犯病 领馆车送出  " alt="唐娟被捕细节：本想自首但犯病 领馆车送出  "></a></p>
@@ -48,6 +48,8 @@
 <p><a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/2020/07/31/a102906713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平愁容满面眼发直 军阀割据时代来了？  >-009fcc?logoWidth=1" title="习近平愁容满面眼发直 军阀割据时代来了？  " alt="习近平愁容满面眼发直 军阀割据时代来了？  "></a></p>
 <p><a href="https://github.com/ufywns3460/djy/blob/master/gb/20/7/31/n12297306.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福州市民质疑核酸检测 指政府失职      >-009fcc?logoWidth=1" title="福州市民质疑核酸检测 指政府失职  " alt="福州市民质疑核酸检测 指政府失职  "></a></p>
 <p><a href="https://github.com/ufywns3460/djy/blob/master/gb/20/7/31/n12298298.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙大开除犯强奸罪学生 网民：舆论治校    >-009fcc?logoWidth=1" title="浙大开除犯强奸罪学生 网民：舆论治校  " alt="浙大开除犯强奸罪学生 网民：舆论治校  "></a></p>
+<p><a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/2020/07/30/a102906553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦：中共制造病毒 又伪造基因序列转移视线>-009fcc?logoWidth=1" title="闫丽梦：中共制造病毒 又伪造基因序列转移视线  " alt="闫丽梦：中共制造病毒 又伪造基因序列转移视线  "></a></p>
+<p><a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/2020/07/31/a102906813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强绝食出事了？网曝习近平怒砸九云杯   >-009fcc?logoWidth=1" title="任志强绝食出事了？网曝习近平怒砸九云杯  " alt="任志强绝食出事了？网曝习近平怒砸九云杯  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -485,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ufywns3460/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ufywns3460/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ufywns3460/www/blob/master/README.md?m#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ufywns3460/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ufywns3460/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ufywns3460/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ufywns3460/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ufywns3460/www/blob/master/README.md?j#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ufywns3460/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/skkkk">git.io/skkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/fkkkk">git.io/fkkkk</a></div>
 
