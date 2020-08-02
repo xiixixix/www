@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/uzmtnx309/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/uzmtnx309/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bbbbb">git.io/bbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2pp">x.co/2pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/sdddd">git.io/sdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pzp">x.co/pzp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,18 +40,18 @@
 <p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/7/31/n12298553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美7月重击中共要害 王毅急诡辩       >-009fcc?logoWidth=1" title="美7月重击中共要害 王毅急诡辩  " alt="美7月重击中共要害 王毅急诡辩  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/7/31/n12297540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/早预言香港未来 网赞李登辉最强先知     >-009fcc?logoWidth=1" title="早预言香港未来 网赞李登辉最强先知  " alt="早预言香港未来 网赞李登辉最强先知  "></a></p>
-<p><a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/2020/08/01/a102908330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦:中共改造蝙蝠病毒 伪造基因序列   >-009fcc?logoWidth=1" title="闫丽梦:中共改造蝙蝠病毒 伪造基因序列  " alt="闫丽梦:中共改造蝙蝠病毒 伪造基因序列  "></a></p>
+<p><a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/2020/08/02/a102908503.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国金牌主持人去年为何制作一期攻击郭文贵节目>-009fcc?logoWidth=1" title="美国金牌主持人去年为何制作一期攻击郭文贵节目？  " alt="美国金牌主持人去年为何制作一期攻击郭文贵节目？  "></a></p>
 <p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/8/1/n12298883.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：疫情二次爆发 远离中共的再选择    >-009fcc?logoWidth=1" title="杨威：疫情二次爆发 远离中共的再选择  " alt="杨威：疫情二次爆发 远离中共的再选择  "></a></p>
 <p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/8/1/n12300107.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐娟看病被抓？中领馆发生了什么       >-009fcc?logoWidth=1" title="唐娟看病被抓？中领馆发生了什么  " alt="唐娟看病被抓？中领馆发生了什么  "></a></p>
+<p><a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/2020/08/01/a102908330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦:中共改造蝙蝠病毒 伪造基因序列   >-009fcc?logoWidth=1" title="闫丽梦:中共改造蝙蝠病毒 伪造基因序列  " alt="闫丽梦:中共改造蝙蝠病毒 伪造基因序列  "></a></p>
 <p><a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/2020/08/02/a102908384.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐娟是自首还是“被看病”？/马云马化腾危殆，>-009fcc?logoWidth=1" title="唐娟是自首还是“被看病”？/马云马化腾危殆，支付宝和微信支付将被查？  " alt="唐娟是自首还是“被看病”？/马云马化腾危殆，支付宝和微信支付将被查？  "></a></p>
-<p><a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/2020/08/01/a102908166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港律政司高官突然辞职 被疑割席跳船    >-009fcc?logoWidth=1" title="香港律政司高官突然辞职 被疑割席跳船  " alt="香港律政司高官突然辞职 被疑割席跳船  "></a></p>
 <p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/8/1/n12299895.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国冷战武器今派用场 战斧巡航导弹     >-009fcc?logoWidth=1" title="美国冷战武器今派用场 战斧巡航导弹  " alt="美国冷战武器今派用场 战斧巡航导弹  "></a></p>
 <p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/7/24/n12280363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李木通：为《大纪元》加油打气        >-009fcc?logoWidth=1" title="李木通：为《大纪元》加油打气  " alt="李木通：为《大纪元》加油打气  "></a></p>
+<p><a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/2020/08/01/a102908166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港律政司高官突然辞职 被疑割席跳船    >-009fcc?logoWidth=1" title="香港律政司高官突然辞职 被疑割席跳船  " alt="香港律政司高官突然辞职 被疑割席跳船  "></a></p>
 <p><a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/2020/08/02/a102908394.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：亲共者走投无路 反共联盟全球剿共  >-009fcc?logoWidth=1" title="袁弓夷：亲共者走投无路 反共联盟全球剿共  " alt="袁弓夷：亲共者走投无路 反共联盟全球剿共  "></a></p>
 <p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/8/1/n12299836.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不明中国种子美50州警告 部分品种揭晓   >-009fcc?logoWidth=1" title="不明中国种子美50州警告 部分品种揭晓  " alt="不明中国种子美50州警告 部分品种揭晓  "></a></p>
 <p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/8/1/n12299965.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/6名被通缉的港人 5人发声：不会停止抗争  >-009fcc?logoWidth=1" title="6名被通缉的港人 5人发声：不会停止抗争  " alt="6名被通缉的港人 5人发声：不会停止抗争  "></a></p>
 <p><a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/2020/08/01/a102907867.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大前国防部长：约有80种外星人！他们堂而>-009fcc?logoWidth=1" title="加拿大前国防部长：约有80种外星人！他们堂而皇之走在大街上  " alt="加拿大前国防部长：约有80种外星人！他们堂而皇之走在大街上  "></a></p>
-<p><a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/2020/08/01/a102908150.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/九字真言救命实录 一份欧洲病毒学家临床实证科>-009fcc?logoWidth=1" title="九字真言救命实录 一份欧洲病毒学家临床实证科学研究报告揭谜底  " alt="九字真言救命实录 一份欧洲病毒学家临床实证科学研究报告揭谜底  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -489,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/uzmtnx309/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/uzmtnx309/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uzmtnx309/www/blob/master/README.md?u#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/uzmtnx309/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/uzmtnx309/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/uzmtnx309/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uzmtnx309/www/blob/master/README.md?k#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/uzmtnx309/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bbbbb">git.io/bbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/sdddd">git.io/sdddd</a></div>
 
