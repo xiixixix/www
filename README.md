@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bwcaeu346/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bwcaeu346/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kaaaa">git.io/kaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pmp">x.co/pmp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/abbbb">git.io/abbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/edd">x.co/edd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,15 +39,15 @@
 <p><a href="https://github.com/bwcaeu346/djy/blob/master/gb/20/8/1/n12298883.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：疫情二次爆发 远离中共的再选择    >-009fcc?logoWidth=1" title="杨威：疫情二次爆发 远离中共的再选择  " alt="杨威：疫情二次爆发 远离中共的再选择  "></a></p>
 <p><a href="https://github.com/bwcaeu346/djy/blob/master/gb/20/7/24/n12280363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李木通：为《大纪元》加油打气        >-009fcc?logoWidth=1" title="李木通：为《大纪元》加油打气  " alt="李木通：为《大纪元》加油打气  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/02/a102908384.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐娟是自首还是“被看病”？/马云马化腾危殆，>-009fcc?logoWidth=1" title="唐娟是自首还是“被看病”？/马云马化腾危殆，支付宝和微信支付将被查？  " alt="唐娟是自首还是“被看病”？/马云马化腾危殆，支付宝和微信支付将被查？  "></a></p>
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102908209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第二季度全球GDP大跌 唯中共数据“狂涨” >-009fcc?logoWidth=1" title="第二季度全球GDP大跌 唯中共数据“狂涨”  " alt="第二季度全球GDP大跌 唯中共数据“狂涨”  "></a></p>
-<p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102907735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国神秘种子 在美国长出来了是这样     >-009fcc?logoWidth=1" title="中国神秘种子 在美国长出来了是这样  " alt="中国神秘种子 在美国长出来了是这样  "></a></p>
 <p><a href="https://github.com/bwcaeu346/djy/blob/master/gb/20/8/1/n12299836.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不明中国种子美50州警告 部分品种揭晓   >-009fcc?logoWidth=1" title="不明中国种子美50州警告 部分品种揭晓  " alt="不明中国种子美50州警告 部分品种揭晓  "></a></p>
 <p><a href="https://github.com/bwcaeu346/djy/blob/master/gb/20/8/1/n12299865.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普推文被删 解读背后的故事        >-009fcc?logoWidth=1" title="川普推文被删 解读背后的故事  " alt="川普推文被删 解读背后的故事  "></a></p>
+<p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102907735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国神秘种子 在美国长出来了是这样     >-009fcc?logoWidth=1" title="中国神秘种子 在美国长出来了是这样  " alt="中国神秘种子 在美国长出来了是这样  "></a></p>
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102907816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“发明”新名词 泄露中南海双重危机  >-009fcc?logoWidth=1" title="习近平“发明”新名词 泄露中南海双重危机  " alt="习近平“发明”新名词 泄露中南海双重危机  "></a></p>
-<p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102907967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美何时开战？美军机南海巡弋2000多次，3>-009fcc?logoWidth=1" title="中美何时开战？美军机南海巡弋2000多次，30国已为5G洁净国，中共三个准备要毁灭全人类！  " alt="中美何时开战？美军机南海巡弋2000多次，30国已为5G洁净国，中共三个准备要毁灭全人类！  "></a></p>
 <p><a href="https://github.com/bwcaeu346/djy/blob/master/gb/20/8/1/n12299846.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陕西省书记、省长双双被换 前书记被叛死缓  >-009fcc?logoWidth=1" title="陕西省书记、省长双双被换 前书记被叛死缓  " alt="陕西省书记、省长双双被换 前书记被叛死缓  "></a></p>
 <p><a href="https://github.com/bwcaeu346/djy/blob/master/gb/20/8/1/n12299327.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情重创大陆餐饮业 海底捞半年预亏9亿   >-009fcc?logoWidth=1" title="疫情重创大陆餐饮业 海底捞半年预亏9亿  " alt="疫情重创大陆餐饮业 海底捞半年预亏9亿  "></a></p>
-<p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102907681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北斗导航变另类监控%3F 习“大秘”罕见现身  >-009fcc?logoWidth=1" title="北斗导航变另类监控? 习“大秘”罕见现身  " alt="北斗导航变另类监控? 习“大秘”罕见现身  "></a></p>
+<p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102907967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美何时开战？美军机南海巡弋2000多次，3>-009fcc?logoWidth=1" title="中美何时开战？美军机南海巡弋2000多次，30国已为5G洁净国，中共三个准备要毁灭全人类！  " alt="中美何时开战？美军机南海巡弋2000多次，30国已为5G洁净国，中共三个准备要毁灭全人类！  "></a></p>
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102907662.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦：中共高官都吃羟氯喹         >-009fcc?logoWidth=1" title="闫丽梦：中共高官都吃羟氯喹  " alt="闫丽梦：中共高官都吃羟氯喹  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bwcaeu346/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bwcaeu346/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bwcaeu346/www/blob/master/README.md?x#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/bwcaeu346/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bwcaeu346/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bwcaeu346/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bwcaeu346/www/blob/master/README.md?q#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/bwcaeu346/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kaaaa">git.io/kaaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/abbbb">git.io/abbbb</a></div>
 
