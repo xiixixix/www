@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rfklhm369/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rfklhm369/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cpppp">git.io/cpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/sdd">x.co/sdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/heeee">git.io/heeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppv">x.co/ppv</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,19 +26,23 @@
 <p><a href="https://github.com/rfklhm369/ntdtv/blob/master/gb/2020/08/02/a102908691.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/应对疫情美第二轮救助谈判 有进展分歧仍在  >-009fcc?logoWidth=1" title="应对疫情美第二轮救助谈判 有进展分歧仍在  " alt="应对疫情美第二轮救助谈判 有进展分歧仍在  "></a></p>
 <p><a href="https://github.com/rfklhm369/ntdtv/blob/master/gb/2020/08/02/a102908637.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何强行火化他们的遗体（9）      >-009fcc?logoWidth=1" title="中共为何强行火化他们的遗体（9）  " alt="中共为何强行火化他们的遗体（9）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/rfklhm369/djy/blob/master/gb/20/8/2/n12301427.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：川普未来几天将对中国软件采取行动  >-009fcc?logoWidth=1" title="蓬佩奥：川普未来几天将对中国软件采取行动  " alt="蓬佩奥：川普未来几天将对中国软件采取行动  "></a></p>
+<p><a href="https://github.com/rfklhm369/djy/blob/master/gb/20/8/1/n12300197.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美宇航员乘“龙飞船”海上降落        >-009fcc?logoWidth=1" title="美宇航员乘“龙飞船”海上降落  " alt="美宇航员乘“龙飞船”海上降落  "></a></p>
 <p><a href="https://github.com/rfklhm369/djy/blob/master/gb/20/8/2/n12300466.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千载云：执政运势一路狂跌，习近平如何解困？ >-009fcc?logoWidth=1" title="千载云：执政运势一路狂跌，习近平如何解困？  " alt="千载云：执政运势一路狂跌，习近平如何解困？  "></a></p>
+<p><a href="https://github.com/rfklhm369/djy/blob/master/gb/20/8/2/n12301515.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/43岁派出所长跳河 生前嘱托孩子别当公务员 >-009fcc?logoWidth=1" title="43岁派出所长跳河 生前嘱托孩子别当公务员  " alt="43岁派出所长跳河 生前嘱托孩子别当公务员  "></a></p>
+<p><a href="https://github.com/rfklhm369/djy/blob/master/gb/20/8/2/n12301770.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美小企业救助计划 数亿美元流向中企     >-009fcc?logoWidth=1" title="美小企业救助计划 数亿美元流向中企  " alt="美小企业救助计划 数亿美元流向中企  "></a></p>
+<p><a href="https://github.com/rfklhm369/djy/blob/master/gb/20/8/2/n12300366.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/对中共了如指掌 美鹰派高招迭出       >-009fcc?logoWidth=1" title="对中共了如指掌 美鹰派高招迭出  " alt="对中共了如指掌 美鹰派高招迭出  "></a></p>
 <p><a href="https://github.com/rfklhm369/djy/blob/master/gb/20/8/1/n12300211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/斯坦福学者宋琛软禁改宵禁 女儿已回国    >-009fcc?logoWidth=1" title="斯坦福学者宋琛软禁改宵禁 女儿已回国  " alt="斯坦福学者宋琛软禁改宵禁 女儿已回国  "></a></p>
-<p><a href="https://github.com/rfklhm369/djy/blob/master/gb/20/8/2/n12300674.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：习近平遭遇釜底抽薪式拷问—为谁保江山 >-009fcc?logoWidth=1" title="王赫：习近平遭遇釜底抽薪式拷问—为谁保江山  " alt="王赫：习近平遭遇釜底抽薪式拷问—为谁保江山  "></a></p>
-<p><a href="https://github.com/rfklhm369/djy/blob/master/gb/20/8/1/n12300047.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河北企业家铁矿被霸占 后代维权遭公安迫害  >-009fcc?logoWidth=1" title="河北企业家铁矿被霸占 后代维权遭公安迫害  " alt="河北企业家铁矿被霸占 后代维权遭公安迫害  "></a></p>
-<p><a href="https://github.com/rfklhm369/djy/blob/master/gb/20/8/1/n12298730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/玉清心：武汉协和医院高调“换心”的幕后   >-009fcc?logoWidth=1" title="玉清心：武汉协和医院高调“换心”的幕后  " alt="玉清心：武汉协和医院高调“换心”的幕后  "></a></p>
-<p><a href="https://github.com/rfklhm369/djy/blob/master/gb/20/8/1/n12300281.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：武汉护士张嬿婉之死涉及的三重内幕   >-009fcc?logoWidth=1" title="袁斌：武汉护士张嬿婉之死涉及的三重内幕  " alt="袁斌：武汉护士张嬿婉之死涉及的三重内幕  "></a></p>
-<p><a href="https://github.com/rfklhm369/djy/blob/master/gb/20/8/2/n12300318.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/廖远：唐山大地震中的“青龙奇迹”      >-009fcc?logoWidth=1" title="廖远：唐山大地震中的“青龙奇迹”  " alt="廖远：唐山大地震中的“青龙奇迹”  "></a></p>
 <p><a href="https://github.com/rfklhm369/djy/blob/master/gb/20/7/28/n12290364.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭秘替中共牵线搭桥的神秘商会        >-009fcc?logoWidth=1" title="揭秘替中共牵线搭桥的神秘商会  " alt="揭秘替中共牵线搭桥的神秘商会  "></a></p>
+<p><a href="https://github.com/rfklhm369/djy/blob/master/gb/20/8/2/n12301683.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共核专家打脸胡锡进 批其恶意炒作涉核问题 >-009fcc?logoWidth=1" title="中共核专家打脸胡锡进 批其恶意炒作涉核问题  " alt="中共核专家打脸胡锡进 批其恶意炒作涉核问题  "></a></p>
+<p><a href="https://github.com/rfklhm369/djy/blob/master/gb/20/8/2/n12301062.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中储粮肇州库禁手机录像 网民：做贼心虚  >-009fcc?logoWidth=1" title="传中储粮肇州库禁手机录像 网民：做贼心虚  " alt="传中储粮肇州库禁手机录像 网民：做贼心虚  "></a></p>
+<p><a href="https://github.com/rfklhm369/djy/blob/master/gb/20/8/2/n12301559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境 中共集结五千士兵并储存武器    >-009fcc?logoWidth=1" title="中印边境 中共集结五千士兵并储存武器  " alt="中印边境 中共集结五千士兵并储存武器  "></a></p>
+<p><a href="https://github.com/rfklhm369/djy/blob/master/gb/20/8/1/n12300229.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林官场再现“思想家” 被指野鸡大学毕业  >-009fcc?logoWidth=1" title="吉林官场再现“思想家” 被指野鸡大学毕业  " alt="吉林官场再现“思想家” 被指野鸡大学毕业  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rfklhm369/djy/blob/master/gb/20/8/2/n12300855.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度将查孔子学院 涉及清华等十所中国高校  >-009fcc?logoWidth=1" title="印度将查孔子学院 涉及清华等十所中国高校  " alt="印度将查孔子学院 涉及清华等十所中国高校  "></a></p>
 <p><a href="https://github.com/rfklhm369/djy/blob/master/gb/20/8/2/n12300535.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐山大地震中青龙奇迹的启示         >-009fcc?logoWidth=1" title="唐山大地震中青龙奇迹的启示  " alt="唐山大地震中青龙奇迹的启示  "></a></p>
 <p><a href="https://github.com/rfklhm369/djy/blob/master/gb/20/8/2/n12300771.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为中国献身的美国飞行员           >-009fcc?logoWidth=1" title="为中国献身的美国飞行员  " alt="为中国献身的美国飞行员  "></a></p>
 <p><a href="https://github.com/rfklhm369/djy/blob/master/gb/20/8/1/n12300283.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前美驻UN大使：中共二外交官曾被秘密驱逐  >-009fcc?logoWidth=1" title="前美驻UN大使：中共二外交官曾被秘密驱逐  " alt="前美驻UN大使：中共二外交官曾被秘密驱逐  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rfklhm369/ntdtv/blob/master/gb/2020/08/02/a102908400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热帖：听张召忠将军说准备打仗，我就放心了  >-009fcc?logoWidth=1" title="热帖：听张召忠将军说准备打仗，我就放心了  " alt="热帖：听张召忠将军说准备打仗，我就放心了  "></a></p>
 <p><a href="https://github.com/rfklhm369/ntdtv/blob/master/gb/2020/08/02/a102908406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/知情人透露：任志强刚与家人通话 揽下所有刑责>-009fcc?logoWidth=1" title="知情人透露：任志强刚与家人通话 揽下所有刑责  " alt="知情人透露：任志强刚与家人通话 揽下所有刑责  "></a></p>
 <p><a href="https://github.com/rfklhm369/djy/blob/master/gb/20/8/2/n12300697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连新一轮疫情发酵 凯洋海鲜公司成焦点   >-009fcc?logoWidth=1" title="大连新一轮疫情发酵 凯洋海鲜公司成焦点  " alt="大连新一轮疫情发酵 凯洋海鲜公司成焦点  "></a></p>
@@ -486,8 +490,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rfklhm369/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rfklhm369/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rfklhm369/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rfklhm369/www/blob/master/README.md?m#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/rfklhm369/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rfklhm369/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rfklhm369/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rfklhm369/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rfklhm369/www/blob/master/README.md?r#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/rfklhm369/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/cpppp">git.io/cpppp</a></div>
+<div align="center">短网址: <a href="https://git.io/heeee">git.io/heeee</a></div>
 
