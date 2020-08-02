@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bwcaeu346/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bwcaeu346/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/s2222">git.io/s2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a9a">x.co/a9a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/njjjj">git.io/njjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3366">x.co/3366</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102908247.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刘鹤主持会议语速突变 害李克强当场出丑（视频>-009fcc?logoWidth=1" title="刘鹤主持会议语速突变 害李克强当场出丑（视频）  " alt="刘鹤主持会议语速突变 害李克强当场出丑（视频）  "></a></p>
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102908166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港律政司高官突然辞职 被疑割席跳船    >-009fcc?logoWidth=1" title="香港律政司高官突然辞职 被疑割席跳船  " alt="香港律政司高官突然辞职 被疑割席跳船  "></a></p>
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102907920.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陕西书记突被贬 /中南海双重危机      >-009fcc?logoWidth=1" title="陕西书记突被贬 /中南海双重危机  " alt="陕西书记突被贬 /中南海双重危机  "></a></p>
+<p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/02/a102908449.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴西新增逾4.5万人确诊 南非累计破50万大>-009fcc?logoWidth=1" title="巴西新增逾4.5万人确诊 南非累计破50万大关  " alt="巴西新增逾4.5万人确诊 南非累计破50万大关  "></a></p>
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/02/a102908433.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/挪威疫情复燃 36名邮轮船员检测呈阳性   >-009fcc?logoWidth=1" title="挪威疫情复燃 36名邮轮船员检测呈阳性  " alt="挪威疫情复燃 36名邮轮船员检测呈阳性  "></a></p>
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/02/a102908400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热帖：听张召忠将军说准备打仗，我就放心了  >-009fcc?logoWidth=1" title="热帖：听张召忠将军说准备打仗，我就放心了  " alt="热帖：听张召忠将军说准备打仗，我就放心了  "></a></p>
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/02/a102908406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/知情人透露：任志强刚与家人通话 揽下所有刑责>-009fcc?logoWidth=1" title="知情人透露：任志强刚与家人通话 揽下所有刑责  " alt="知情人透露：任志强刚与家人通话 揽下所有刑责  "></a></p>
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102907976.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普边界墙承诺继续兑现 最高法院支持续建  >-009fcc?logoWidth=1" title="川普边界墙承诺继续兑现 最高法院支持续建  " alt="川普边界墙承诺继续兑现 最高法院支持续建  "></a></p>
-<p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“发明”新名词 泄露中南海双重危机  >-009fcc?logoWidth=1" title="习近平“发明”新名词 泄露中南海双重危机  " alt="习近平“发明”新名词 泄露中南海双重危机  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bwcaeu346/djy/blob/master/gb/20/8/1/n12298730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/玉清心：武汉协和医院高调“换心”的幕后   >-009fcc?logoWidth=1" title="玉清心：武汉协和医院高调“换心”的幕后  " alt="玉清心：武汉协和医院高调“换心”的幕后  "></a></p>
 <p><a href="https://github.com/bwcaeu346/djy/blob/master/gb/20/8/1/n12300047.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河北企业家铁矿被霸占 后代维权遭公安迫害  >-009fcc?logoWidth=1" title="河北企业家铁矿被霸占 后代维权遭公安迫害  " alt="河北企业家铁矿被霸占 后代维权遭公安迫害  "></a></p>
@@ -39,8 +39,8 @@
 <p><a href="https://github.com/bwcaeu346/djy/blob/master/gb/20/8/1/n12298883.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：疫情二次爆发 远离中共的再选择    >-009fcc?logoWidth=1" title="杨威：疫情二次爆发 远离中共的再选择  " alt="杨威：疫情二次爆发 远离中共的再选择  "></a></p>
 <p><a href="https://github.com/bwcaeu346/djy/blob/master/gb/20/8/1/n12300107.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐娟看病被抓？中领馆发生了什么       >-009fcc?logoWidth=1" title="唐娟看病被抓？中领馆发生了什么  " alt="唐娟看病被抓？中领馆发生了什么  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/02/a102908394.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：亲共者走投无路 反共联盟全球剿共  >-009fcc?logoWidth=1" title="袁弓夷：亲共者走投无路 反共联盟全球剿共  " alt="袁弓夷：亲共者走投无路 反共联盟全球剿共  "></a></p>
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102907867.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大前国防部长：约有80种外星人！他们堂而>-009fcc?logoWidth=1" title="加拿大前国防部长：约有80种外星人！他们堂而皇之走在大街上  " alt="加拿大前国防部长：约有80种外星人！他们堂而皇之走在大街上  "></a></p>
-<p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/02/a102908384.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐娟是自首还是“被看病”？/马云马化腾危殆，>-009fcc?logoWidth=1" title="唐娟是自首还是“被看病”？/马云马化腾危殆，支付宝和微信支付将被查？  " alt="唐娟是自首还是“被看病”？/马云马化腾危殆，支付宝和微信支付将被查？  "></a></p>
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102908150.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/九字真言救命实录 一份欧洲病毒学家临床实证科>-009fcc?logoWidth=1" title="九字真言救命实录 一份欧洲病毒学家临床实证科学研究报告揭谜底  " alt="九字真言救命实录 一份欧洲病毒学家临床实证科学研究报告揭谜底  "></a></p>
 <p><a href="https://github.com/bwcaeu346/djy/blob/master/gb/20/8/1/n12299895.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国冷战武器今派用场 战斧巡航导弹     >-009fcc?logoWidth=1" title="美国冷战武器今派用场 战斧巡航导弹  " alt="美国冷战武器今派用场 战斧巡航导弹  "></a></p>
 <p><a href="https://github.com/bwcaeu346/djy/blob/master/gb/20/7/24/n12280363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李木通：为《大纪元》加油打气        >-009fcc?logoWidth=1" title="李木通：为《大纪元》加油打气  " alt="李木通：为《大纪元》加油打气  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bwcaeu346/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bwcaeu346/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bwcaeu346/www/blob/master/README.md?m#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/bwcaeu346/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bwcaeu346/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bwcaeu346/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bwcaeu346/www/blob/master/README.md?l#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/bwcaeu346/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/s2222">git.io/s2222</a></div>
+<div align="center">短网址: <a href="https://git.io/njjjj">git.io/njjjj</a></div>
 
