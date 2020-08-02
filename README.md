@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/uzmtnx309/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/uzmtnx309/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fkkkk">git.io/fkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppu">x.co/ppu</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/n3333">git.io/n3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3999">x.co/3999</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,19 +28,20 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/8/2/n12300466.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千载云：执政运势一路狂跌，习近平如何解困？ >-009fcc?logoWidth=1" title="千载云：执政运势一路狂跌，习近平如何解困？  " alt="千载云：执政运势一路狂跌，习近平如何解困？  "></a></p>
 <p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/8/1/n12300211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/斯坦福学者宋琛软禁改宵禁 女儿已回国    >-009fcc?logoWidth=1" title="斯坦福学者宋琛软禁改宵禁 女儿已回国  " alt="斯坦福学者宋琛软禁改宵禁 女儿已回国  "></a></p>
-<p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/8/1/n12298730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/玉清心：武汉协和医院高调“换心”的幕后   >-009fcc?logoWidth=1" title="玉清心：武汉协和医院高调“换心”的幕后  " alt="玉清心：武汉协和医院高调“换心”的幕后  "></a></p>
+<p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/8/2/n12300674.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：习近平遭遇釜底抽薪式拷问—为谁保江山 >-009fcc?logoWidth=1" title="王赫：习近平遭遇釜底抽薪式拷问—为谁保江山  " alt="王赫：习近平遭遇釜底抽薪式拷问—为谁保江山  "></a></p>
 <p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/8/1/n12300047.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河北企业家铁矿被霸占 后代维权遭公安迫害  >-009fcc?logoWidth=1" title="河北企业家铁矿被霸占 后代维权遭公安迫害  " alt="河北企业家铁矿被霸占 后代维权遭公安迫害  "></a></p>
-<p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/8/1/n12299331.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉女告政府瞒疫 法院拒立案        >-009fcc?logoWidth=1" title="武汉女告政府瞒疫 法院拒立案  " alt="武汉女告政府瞒疫 法院拒立案  "></a></p>
+<p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/8/1/n12298730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/玉清心：武汉协和医院高调“换心”的幕后   >-009fcc?logoWidth=1" title="玉清心：武汉协和医院高调“换心”的幕后  " alt="玉清心：武汉协和医院高调“换心”的幕后  "></a></p>
 <p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/8/1/n12300281.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：武汉护士张嬿婉之死涉及的三重内幕   >-009fcc?logoWidth=1" title="袁斌：武汉护士张嬿婉之死涉及的三重内幕  " alt="袁斌：武汉护士张嬿婉之死涉及的三重内幕  "></a></p>
-<p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/8/1/n12298842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港选举延期 中共玩什么把戏？       >-009fcc?logoWidth=1" title="香港选举延期 中共玩什么把戏？  " alt="香港选举延期 中共玩什么把戏？  "></a></p>
+<p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/8/2/n12300318.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/廖远：唐山大地震中的“青龙奇迹”      >-009fcc?logoWidth=1" title="廖远：唐山大地震中的“青龙奇迹”  " alt="廖远：唐山大地震中的“青龙奇迹”  "></a></p>
 <p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/7/28/n12290364.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭秘替中共牵线搭桥的神秘商会        >-009fcc?logoWidth=1" title="揭秘替中共牵线搭桥的神秘商会  " alt="揭秘替中共牵线搭桥的神秘商会  "></a></p>
 <p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/8/1/n12300283.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前美驻UN大使：中共2外交官曾被秘密驱逐  >-009fcc?logoWidth=1" title="前美驻UN大使：中共2外交官曾被秘密驱逐  " alt="前美驻UN大使：中共2外交官曾被秘密驱逐  "></a></p>
 <p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/8/2/n12300535.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐山大地震中青龙奇迹的启示         >-009fcc?logoWidth=1" title="唐山大地震中青龙奇迹的启示  " alt="唐山大地震中青龙奇迹的启示  "></a></p>
 <p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/8/2/n12300697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连新一轮疫情发酵 凯洋海鲜公司成焦点   >-009fcc?logoWidth=1" title="大连新一轮疫情发酵 凯洋海鲜公司成焦点  " alt="大连新一轮疫情发酵 凯洋海鲜公司成焦点  "></a></p>
-<p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/8/1/n12299531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传任志强坚持自辩 全部揽下涉案人员刑责   >-009fcc?logoWidth=1" title="传任志强坚持自辩 全部揽下涉案人员刑责  " alt="传任志强坚持自辩 全部揽下涉案人员刑责  "></a></p>
+<p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/8/1/n12299643.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡慎坤：中美关系从热恋到冷对        >-009fcc?logoWidth=1" title="蔡慎坤：中美关系从热恋到冷对  " alt="蔡慎坤：中美关系从热恋到冷对  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/2020/08/02/a102908400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热帖：听张召忠将军说准备打仗，我就放心了  >-009fcc?logoWidth=1" title="热帖：听张召忠将军说准备打仗，我就放心了  " alt="热帖：听张召忠将军说准备打仗，我就放心了  "></a></p>
 <p><a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/2020/08/02/a102908503.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国金牌主持人去年为何制作一期攻击郭文贵节目>-009fcc?logoWidth=1" title="美国金牌主持人去年为何制作一期攻击郭文贵节目？  " alt="美国金牌主持人去年为何制作一期攻击郭文贵节目？  "></a></p>
+<p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/8/1/n12299531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传任志强坚持自辩 全部揽下涉案人员刑责   >-009fcc?logoWidth=1" title="传任志强坚持自辩 全部揽下涉案人员刑责  " alt="传任志强坚持自辩 全部揽下涉案人员刑责  "></a></p>
 <p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/7/31/n12298553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美7月重击中共要害 王毅急诡辩       >-009fcc?logoWidth=1" title="美7月重击中共要害 王毅急诡辩  " alt="美7月重击中共要害 王毅急诡辩  "></a></p>
 <p><a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/2020/08/02/a102908384.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐娟是自首还是“被看病”？/马云马化腾危殆，>-009fcc?logoWidth=1" title="唐娟是自首还是“被看病”？/马云马化腾危殆，支付宝和微信支付将被查？  " alt="唐娟是自首还是“被看病”？/马云马化腾危殆，支付宝和微信支付将被查？  "></a></p>
 <p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/8/1/n12298883.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：疫情二次爆发 远离中共的再选择    >-009fcc?logoWidth=1" title="杨威：疫情二次爆发 远离中共的再选择  " alt="杨威：疫情二次爆发 远离中共的再选择  "></a></p>
@@ -487,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/uzmtnx309/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/uzmtnx309/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uzmtnx309/www/blob/master/README.md?i#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/uzmtnx309/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/uzmtnx309/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/uzmtnx309/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uzmtnx309/www/blob/master/README.md?n#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/uzmtnx309/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fkkkk">git.io/fkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/n3333">git.io/n3333</a></div>
 
