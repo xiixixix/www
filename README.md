@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rfklhm369/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rfklhm369/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/seeee">git.io/seeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/vpp">x.co/vpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cpppp">git.io/cpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/sdd">x.co/sdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/rfklhm369/ntdtv/blob/master/gb/2020/08/02/a102908484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦爆中共高层防疫特供！都服用这个(视频)>-009fcc?logoWidth=1" title="闫丽梦爆中共高层防疫特供！都服用这个(视频)  " alt="闫丽梦爆中共高层防疫特供！都服用这个(视频)  "></a></p>
 <p><a href="https://github.com/rfklhm369/ntdtv/blob/master/gb/2020/08/02/a102908455.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海拿“内循环”当解药？李克强：行不通  >-009fcc?logoWidth=1" title="中南海拿“内循环”当解药？李克强：行不通  " alt="中南海拿“内循环”当解药？李克强：行不通  "></a></p>
 <p><a href="https://github.com/rfklhm369/ntdtv/blob/master/gb/2020/08/02/a102908447.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平中纪委插“钉子” 赵乐际下场不妙？  >-009fcc?logoWidth=1" title="习近平中纪委插“钉子” 赵乐际下场不妙？  " alt="习近平中纪委插“钉子” 赵乐际下场不妙？  "></a></p>
+<p><a href="https://github.com/rfklhm369/ntdtv/blob/master/gb/2020/08/02/a102908748.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共多年渗透破功 比利时众院挺台决议案0票反>-009fcc?logoWidth=1" title="中共多年渗透破功 比利时众院挺台决议案0票反对  " alt="中共多年渗透破功 比利时众院挺台决议案0票反对  "></a></p>
+<p><a href="https://github.com/rfklhm369/ntdtv/blob/master/gb/2020/08/02/a102908759.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美吹响反共号角 世界各国纷视中共为敌    >-009fcc?logoWidth=1" title="美吹响反共号角 世界各国纷视中共为敌  " alt="美吹响反共号角 世界各国纷视中共为敌  "></a></p>
 <p><a href="https://github.com/rfklhm369/ntdtv/blob/master/gb/2020/08/02/a102908738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国不明种子事件：美50州发警告 部分品种揭>-009fcc?logoWidth=1" title="中国不明种子事件：美50州发警告 部分品种揭晓  " alt="中国不明种子事件：美50州发警告 部分品种揭晓  "></a></p>
 <p><a href="https://github.com/rfklhm369/ntdtv/blob/master/gb/2020/08/02/a102908691.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/应对疫情美第二轮救助谈判 有进展分歧仍在  >-009fcc?logoWidth=1" title="应对疫情美第二轮救助谈判 有进展分歧仍在  " alt="应对疫情美第二轮救助谈判 有进展分歧仍在  "></a></p>
 <p><a href="https://github.com/rfklhm369/ntdtv/blob/master/gb/2020/08/02/a102908637.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何强行火化他们的遗体（9）      >-009fcc?logoWidth=1" title="中共为何强行火化他们的遗体（9）  " alt="中共为何强行火化他们的遗体（9）  "></a></p>
-<p><a href="https://github.com/rfklhm369/ntdtv/blob/master/gb/2020/08/02/a102908558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国历史上唯一一个被雷劈死的帝王      >-009fcc?logoWidth=1" title="中国历史上唯一一个被雷劈死的帝王  " alt="中国历史上唯一一个被雷劈死的帝王  "></a></p>
-<p><a href="https://github.com/rfklhm369/ntdtv/blob/master/gb/2020/08/02/a102908529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/独闯青海可可西里 南京女大生遗骸被寻获   >-009fcc?logoWidth=1" title="独闯青海可可西里 南京女大生遗骸被寻获  " alt="独闯青海可可西里 南京女大生遗骸被寻获  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rfklhm369/djy/blob/master/gb/20/8/2/n12300466.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千载云：执政运势一路狂跌，习近平如何解困？ >-009fcc?logoWidth=1" title="千载云：执政运势一路狂跌，习近平如何解困？  " alt="千载云：执政运势一路狂跌，习近平如何解困？  "></a></p>
 <p><a href="https://github.com/rfklhm369/djy/blob/master/gb/20/8/1/n12300211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/斯坦福学者宋琛软禁改宵禁 女儿已回国    >-009fcc?logoWidth=1" title="斯坦福学者宋琛软禁改宵禁 女儿已回国  " alt="斯坦福学者宋琛软禁改宵禁 女儿已回国  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rfklhm369/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rfklhm369/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rfklhm369/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rfklhm369/www/blob/master/README.md?j#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/rfklhm369/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rfklhm369/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rfklhm369/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rfklhm369/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rfklhm369/www/blob/master/README.md?m#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/rfklhm369/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/seeee">git.io/seeee</a></div>
+<div align="center">短网址: <a href="https://git.io/cpppp">git.io/cpppp</a></div>
 
