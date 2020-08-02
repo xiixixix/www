@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/uzmtnx309/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/uzmtnx309/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qdddd">git.io/qdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p5p">x.co/p5p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/myyyy">git.io/myyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9933">x.co/9933</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,7 +41,6 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/2020/08/02/a102908400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热帖：听张召忠将军说准备打仗，我就放心了  >-009fcc?logoWidth=1" title="热帖：听张召忠将军说准备打仗，我就放心了  " alt="热帖：听张召忠将军说准备打仗，我就放心了  "></a></p>
 <p><a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/2020/08/02/a102908503.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国金牌主持人去年为何制作一期攻击郭文贵节目>-009fcc?logoWidth=1" title="美国金牌主持人去年为何制作一期攻击郭文贵节目？  " alt="美国金牌主持人去年为何制作一期攻击郭文贵节目？  "></a></p>
-<p><a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/2020/08/02/a102908509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/押后香港选举 中共给美国送大礼       >-009fcc?logoWidth=1" title="押后香港选举 中共给美国送大礼  " alt="押后香港选举 中共给美国送大礼  "></a></p>
 <p><a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/2020/08/01/a102908330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦:中共改造蝙蝠病毒 伪造基因序列   >-009fcc?logoWidth=1" title="闫丽梦:中共改造蝙蝠病毒 伪造基因序列  " alt="闫丽梦:中共改造蝙蝠病毒 伪造基因序列  "></a></p>
 <p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/8/1/n12298883.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：疫情二次爆发 远离中共的再选择    >-009fcc?logoWidth=1" title="杨威：疫情二次爆发 远离中共的再选择  " alt="杨威：疫情二次爆发 远离中共的再选择  "></a></p>
 <p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/8/1/n12300107.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐娟看病被抓？中领馆发生了什么       >-009fcc?logoWidth=1" title="唐娟看病被抓？中领馆发生了什么  " alt="唐娟看病被抓？中领馆发生了什么  "></a></p>
@@ -49,8 +48,8 @@
 <p><a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/2020/08/01/a102908166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港律政司高官突然辞职 被疑割席跳船    >-009fcc?logoWidth=1" title="香港律政司高官突然辞职 被疑割席跳船  " alt="香港律政司高官突然辞职 被疑割席跳船  "></a></p>
 <p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/8/1/n12299965.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/6名被通缉的港人 5人发声：不会停止抗争  >-009fcc?logoWidth=1" title="6名被通缉的港人 5人发声：不会停止抗争  " alt="6名被通缉的港人 5人发声：不会停止抗争  "></a></p>
 <p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/8/1/n12299895.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国冷战武器今派用场 战斧巡航导弹     >-009fcc?logoWidth=1" title="美国冷战武器今派用场 战斧巡航导弹  " alt="美国冷战武器今派用场 战斧巡航导弹  "></a></p>
+<p><a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/2020/08/02/a102908528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李登辉故事（续） 台独还是护台？      >-009fcc?logoWidth=1" title="李登辉故事（续） 台独还是护台？  " alt="李登辉故事（续） 台独还是护台？  "></a></p>
 <p><a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/2020/08/02/a102908514.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第三回 姬昌解围进妲己（下）        >-009fcc?logoWidth=1" title="第三回 姬昌解围进妲己（下）  " alt="第三回 姬昌解围进妲己（下）  "></a></p>
-<p><a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/2020/08/02/a102908394.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：亲共者走投无路 反共联盟全球剿共  >-009fcc?logoWidth=1" title="袁弓夷：亲共者走投无路 反共联盟全球剿共  " alt="袁弓夷：亲共者走投无路 反共联盟全球剿共  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -488,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/uzmtnx309/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/uzmtnx309/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uzmtnx309/www/blob/master/README.md?w#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/uzmtnx309/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/uzmtnx309/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/uzmtnx309/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uzmtnx309/www/blob/master/README.md?z#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/uzmtnx309/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qdddd">git.io/qdddd</a></div>
+<div align="center">短网址: <a href="https://git.io/myyyy">git.io/myyyy</a></div>
 
