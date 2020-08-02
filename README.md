@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bwcaeu346/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bwcaeu346/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kdddd">git.io/kdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppq">x.co/ppq</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h6666">git.io/h6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/faa">x.co/faa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102907816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“发明”新名词 泄露中南海双重危机  >-009fcc?logoWidth=1" title="习近平“发明”新名词 泄露中南海双重危机  " alt="习近平“发明”新名词 泄露中南海双重危机  "></a></p>
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102907735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国神秘种子 在美国长出来了是这样     >-009fcc?logoWidth=1" title="中国神秘种子 在美国长出来了是这样  " alt="中国神秘种子 在美国长出来了是这样  "></a></p>
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“发明”新名词 泄露中南海双重危机  >-009fcc?logoWidth=1" title="习近平“发明”新名词 泄露中南海双重危机  " alt="习近平“发明”新名词 泄露中南海双重危机  "></a></p>
+<p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102908330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦:中共改造蝙蝠病毒 伪造基因序列   >-009fcc?logoWidth=1" title="闫丽梦:中共改造蝙蝠病毒 伪造基因序列  " alt="闫丽梦:中共改造蝙蝠病毒 伪造基因序列  "></a></p>
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102908297.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港警通缉黄台仰 德国随即宣布暂停与香港引渡协>-009fcc?logoWidth=1" title="港警通缉黄台仰 德国随即宣布暂停与香港引渡协议  " alt="港警通缉黄台仰 德国随即宣布暂停与香港引渡协议  "></a></p>
+<p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102908308.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港府通缉6位海外港人 美国国会领袖谴责   >-009fcc?logoWidth=1" title="港府通缉6位海外港人 美国国会领袖谴责  " alt="港府通缉6位海外港人 美国国会领袖谴责  "></a></p>
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102908310.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/面签被问是否共产党员？美律师：回答是不是都错>-009fcc?logoWidth=1" title="面签被问是否共产党员？美律师：回答是不是都错  " alt="面签被问是否共产党员？美律师：回答是不是都错  "></a></p>
-<p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102908292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普将下令字节跳动出售TikTok 微软或成>-009fcc?logoWidth=1" title="川普将下令字节跳动出售TikTok 微软或成买家  " alt="川普将下令字节跳动出售TikTok 微软或成买家  "></a></p>
-<p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102908284.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法首例：通缉美国公民        >-009fcc?logoWidth=1" title="港版国安法首例：通缉美国公民  " alt="港版国安法首例：通缉美国公民  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bwcaeu346/djy/blob/master/gb/20/7/31/n12298082.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国制裁新疆生产建设兵团 冻结资产     >-009fcc?logoWidth=1" title="美国制裁新疆生产建设兵团 冻结资产  " alt="美国制裁新疆生产建设兵团 冻结资产  "></a></p>
 <p><a href="https://github.com/bwcaeu346/djy/blob/master/gb/20/8/1/n12299531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传任志强坚持自辩 全部揽下涉案人员刑责   >-009fcc?logoWidth=1" title="传任志强坚持自辩 全部揽下涉案人员刑责  " alt="传任志强坚持自辩 全部揽下涉案人员刑责  "></a></p>
@@ -39,16 +39,16 @@
 <p><a href="https://github.com/bwcaeu346/djy/blob/master/gb/20/8/1/n12298911.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高岗遗孀李力群4月去世至今才开追悼会 引关注>-009fcc?logoWidth=1" title="高岗遗孀李力群4月去世至今才开追悼会 引关注  " alt="高岗遗孀李力群4月去世至今才开追悼会 引关注  "></a></p>
 <p><a href="https://github.com/bwcaeu346/djy/blob/master/gb/20/8/1/n12299154.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大股东套现离场？ 大陆A股7月份减持近千亿 >-009fcc?logoWidth=1" title="大股东套现离场？ 大陆A股7月份减持近千亿  " alt="大股东套现离场？ 大陆A股7月份减持近千亿  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102907967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美何时开战？美军机南海巡弋2000多次，3>-009fcc?logoWidth=1" title="中美何时开战？美军机南海巡弋2000多次，30国已为5G洁净国，中共三个准备要毁灭全人类！  " alt="中美何时开战？美军机南海巡弋2000多次，30国已为5G洁净国，中共三个准备要毁灭全人类！  "></a></p>
-<p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/07/31/a102907457.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会前高官大调整 陕西书记突被贬职   >-009fcc?logoWidth=1" title="北戴河会前高官大调整 陕西书记突被贬职  " alt="北戴河会前高官大调整 陕西书记突被贬职  "></a></p>
-<p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102907912.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普推文被删 你不知道的背后事       >-009fcc?logoWidth=1" title="川普推文被删 你不知道的背后事  " alt="川普推文被删 你不知道的背后事  "></a></p>
+<p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102908016.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推迟香港立法会选举 中共玩什么把戏？    >-009fcc?logoWidth=1" title="推迟香港立法会选举 中共玩什么把戏？  " alt="推迟香港立法会选举 中共玩什么把戏？  "></a></p>
+<p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102907681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北斗导航变另类监控%3F 习“大秘”罕见现身  >-009fcc?logoWidth=1" title="北斗导航变另类监控? 习“大秘”罕见现身  " alt="北斗导航变另类监控? 习“大秘”罕见现身  "></a></p>
 <p><a href="https://github.com/bwcaeu346/djy/blob/master/gb/20/7/31/n12296441.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李登辉谈习近平 休斯顿领馆被破坏      >-009fcc?logoWidth=1" title="李登辉谈习近平 休斯顿领馆被破坏  " alt="李登辉谈习近平 休斯顿领馆被破坏  "></a></p>
 <p><a href="https://github.com/bwcaeu346/djy/blob/master/gb/20/7/31/n12298689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：赵正永被判死缓 曾庆红可能被抓捕  >-009fcc?logoWidth=1" title="王友群：赵正永被判死缓 曾庆红可能被抓捕  " alt="王友群：赵正永被判死缓 曾庆红可能被抓捕  "></a></p>
-<p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/07/31/a102907594.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》闫丽梦对话班农：中共能在半年内制>-009fcc?logoWidth=1" title="《石涛聚焦》闫丽梦对话班农：中共能在半年内制造出病毒  " alt="《石涛聚焦》闫丽梦对话班农：中共能在半年内制造出病毒  "></a></p>
-<p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102907621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：广东调兵、武汉“边控”习要干什么？李登>-009fcc?logoWidth=1" title="文昭：广东调兵、武汉“边控”习要干什么？李登辉辞世留重要一课  " alt="文昭：广东调兵、武汉“边控”习要干什么？李登辉辞世留重要一课  "></a></p>
+<p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102907967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美何时开战？美军机南海巡弋2000多次，3>-009fcc?logoWidth=1" title="中美何时开战？美军机南海巡弋2000多次，30国已为5G洁净国，中共三个准备要毁灭全人类！  " alt="中美何时开战？美军机南海巡弋2000多次，30国已为5G洁净国，中共三个准备要毁灭全人类！  "></a></p>
+<p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102907818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国安恶法大棒砸下 习近平哭丧脸是因曾庆红政变>-009fcc?logoWidth=1" title="国安恶法大棒砸下 习近平哭丧脸是因曾庆红政变吗？  " alt="国安恶法大棒砸下 习近平哭丧脸是因曾庆红政变吗？  "></a></p>
 <p><a href="https://github.com/bwcaeu346/djy/blob/master/gb/20/8/1/n12298756.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/二名中共高官被美国制裁           >-009fcc?logoWidth=1" title="二名中共高官被美国制裁  " alt="二名中共高官被美国制裁  "></a></p>
 <p><a href="https://github.com/bwcaeu346/djy/blob/master/gb/20/7/31/n12298359.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：习近平的一脸愁云与中共的走投无路   >-009fcc?logoWidth=1" title="袁斌：习近平的一脸愁云与中共的走投无路  " alt="袁斌：习近平的一脸愁云与中共的走投无路  "></a></p>
-<p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102907631.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人民大学“有内鬼” 李登辉演讲被急删！   >-009fcc?logoWidth=1" title="人民大学“有内鬼” 李登辉演讲被急删！  " alt="人民大学“有内鬼” 李登辉演讲被急删！  "></a></p>
+<p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/07/31/a102907457.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会前高官大调整 陕西书记突被贬职   >-009fcc?logoWidth=1" title="北戴河会前高官大调整 陕西书记突被贬职  " alt="北戴河会前高官大调整 陕西书记突被贬职  "></a></p>
+<p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102908166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港律政司高官突然辞职 被疑割席跳船    >-009fcc?logoWidth=1" title="香港律政司高官突然辞职 被疑割席跳船  " alt="香港律政司高官突然辞职 被疑割席跳船  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bwcaeu346/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bwcaeu346/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bwcaeu346/www/blob/master/README.md?k#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/bwcaeu346/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bwcaeu346/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bwcaeu346/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bwcaeu346/www/blob/master/README.md?b#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/bwcaeu346/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kdddd">git.io/kdddd</a></div>
+<div align="center">短网址: <a href="https://git.io/h6666">git.io/h6666</a></div>
 
