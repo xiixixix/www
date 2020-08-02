@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rfklhm369/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rfklhm369/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/m2222">git.io/m2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j88">x.co/j88</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/xdddd">git.io/xdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/idd">x.co/idd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,9 +41,9 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rfklhm369/ntdtv/blob/master/gb/2020/08/02/a102908400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热帖：听张召忠将军说准备打仗，我就放心了  >-009fcc?logoWidth=1" title="热帖：听张召忠将军说准备打仗，我就放心了  " alt="热帖：听张召忠将军说准备打仗，我就放心了  "></a></p>
 <p><a href="https://github.com/rfklhm369/ntdtv/blob/master/gb/2020/08/02/a102908406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/知情人透露：任志强刚与家人通话 揽下所有刑责>-009fcc?logoWidth=1" title="知情人透露：任志强刚与家人通话 揽下所有刑责  " alt="知情人透露：任志强刚与家人通话 揽下所有刑责  "></a></p>
-<p><a href="https://github.com/rfklhm369/ntdtv/blob/master/gb/2020/08/02/a102908384.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐娟是自首还是“被看病”？/马云马化腾危殆，>-009fcc?logoWidth=1" title="唐娟是自首还是“被看病”？/马云马化腾危殆，支付宝和微信支付将被查？  " alt="唐娟是自首还是“被看病”？/马云马化腾危殆，支付宝和微信支付将被查？  "></a></p>
 <p><a href="https://github.com/rfklhm369/djy/blob/master/gb/20/8/2/n12300697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连新一轮疫情发酵 凯洋海鲜公司成焦点   >-009fcc?logoWidth=1" title="大连新一轮疫情发酵 凯洋海鲜公司成焦点  " alt="大连新一轮疫情发酵 凯洋海鲜公司成焦点  "></a></p>
 <p><a href="https://github.com/rfklhm369/djy/blob/master/gb/20/8/1/n12299643.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡慎坤：中美关系从热恋到冷对        >-009fcc?logoWidth=1" title="蔡慎坤：中美关系从热恋到冷对  " alt="蔡慎坤：中美关系从热恋到冷对  "></a></p>
+<p><a href="https://github.com/rfklhm369/ntdtv/blob/master/gb/2020/08/02/a102908384.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐娟是自首还是“被看病”？/马云马化腾危殆，>-009fcc?logoWidth=1" title="唐娟是自首还是“被看病”？/马云马化腾危殆，支付宝和微信支付将被查？  " alt="唐娟是自首还是“被看病”？/马云马化腾危殆，支付宝和微信支付将被查？  "></a></p>
 <p><a href="https://github.com/rfklhm369/ntdtv/blob/master/gb/2020/08/01/a102908353.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新冠病毒疫苗研发 佛奇对中俄疫苗安全性表担忧>-009fcc?logoWidth=1" title="新冠病毒疫苗研发 佛奇对中俄疫苗安全性表担忧  " alt="新冠病毒疫苗研发 佛奇对中俄疫苗安全性表担忧  "></a></p>
 <p><a href="https://github.com/rfklhm369/djy/blob/master/gb/20/8/2/n12300471.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加国多族裔联合集会 高喊中共滚出加拿大   >-009fcc?logoWidth=1" title="加国多族裔联合集会 高喊中共滚出加拿大  " alt="加国多族裔联合集会 高喊中共滚出加拿大  "></a></p>
 <p><a href="https://github.com/rfklhm369/djy/blob/master/gb/20/8/1/n12299531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传任志强坚持自辩 全部揽下涉案人员刑责   >-009fcc?logoWidth=1" title="传任志强坚持自辩 全部揽下涉案人员刑责  " alt="传任志强坚持自辩 全部揽下涉案人员刑责  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rfklhm369/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rfklhm369/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rfklhm369/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rfklhm369/www/blob/master/README.md?j#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/rfklhm369/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rfklhm369/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rfklhm369/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rfklhm369/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rfklhm369/www/blob/master/README.md?i#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/rfklhm369/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/m2222">git.io/m2222</a></div>
+<div align="center">短网址: <a href="https://git.io/xdddd">git.io/xdddd</a></div>
 
