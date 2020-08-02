@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bwcaeu346/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bwcaeu346/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jzzzz">git.io/jzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2aa">x.co/2aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mnnnn">git.io/mnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aia">x.co/aia</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/02/a102908379.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美南海势必一战？日媒爆川普计划轰炸黄岩岛 >-009fcc?logoWidth=1" title="中美南海势必一战？日媒爆川普计划轰炸黄岩岛  " alt="中美南海势必一战？日媒爆川普计划轰炸黄岩岛  "></a></p>
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102908310.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/面签被问是否共产党员？美律师：回答是不是都错>-009fcc?logoWidth=1" title="面签被问是否共产党员？美律师：回答是不是都错  " alt="面签被问是否共产党员？美律师：回答是不是都错  "></a></p>
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102908228.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润否认嫖娼拟告北京 国保上门警告律师  >-009fcc?logoWidth=1" title="许章润否认嫖娼拟告北京 国保上门警告律师  " alt="许章润否认嫖娼拟告北京 国保上门警告律师  "></a></p>
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102908247.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刘鹤主持会议语速突变 害李克强当场出丑（视频>-009fcc?logoWidth=1" title="刘鹤主持会议语速突变 害李克强当场出丑（视频）  " alt="刘鹤主持会议语速突变 害李克强当场出丑（视频）  "></a></p>
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102908166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港律政司高官突然辞职 被疑割席跳船    >-009fcc?logoWidth=1" title="香港律政司高官突然辞职 被疑割席跳船  " alt="香港律政司高官突然辞职 被疑割席跳船  "></a></p>
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102907920.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陕西书记突被贬 /中南海双重危机      >-009fcc?logoWidth=1" title="陕西书记突被贬 /中南海双重危机  " alt="陕西书记突被贬 /中南海双重危机  "></a></p>
-<p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102907921.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩保镖神秘战死 独身母亲等来“机密”  >-009fcc?logoWidth=1" title="金正恩保镖神秘战死 独身母亲等来“机密”  " alt="金正恩保镖神秘战死 独身母亲等来“机密”  "></a></p>
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102907976.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普边界墙承诺继续兑现 最高法院支持续建  >-009fcc?logoWidth=1" title="川普边界墙承诺继续兑现 最高法院支持续建  " alt="川普边界墙承诺继续兑现 最高法院支持续建  "></a></p>
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/07/20/a102897569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“发明”新名词 泄露中南海双重危机  >-009fcc?logoWidth=1" title="习近平“发明”新名词 泄露中南海双重危机  " alt="习近平“发明”新名词 泄露中南海双重危机  "></a></p>
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102908297.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港警通缉黄台仰 德国随即宣布暂停与香港引渡协>-009fcc?logoWidth=1" title="港警通缉黄台仰 德国随即宣布暂停与香港引渡协议  " alt="港警通缉黄台仰 德国随即宣布暂停与香港引渡协议  "></a></p>
@@ -41,13 +41,13 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/02/a102908384.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐娟是自首还是“被看病”？/马云马化腾危殆，>-009fcc?logoWidth=1" title="唐娟是自首还是“被看病”？/马云马化腾危殆，支付宝和微信支付将被查？  " alt="唐娟是自首还是“被看病”？/马云马化腾危殆，支付宝和微信支付将被查？  "></a></p>
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102908209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第二季度全球GDP大跌 唯中共数据“狂涨” >-009fcc?logoWidth=1" title="第二季度全球GDP大跌 唯中共数据“狂涨”  " alt="第二季度全球GDP大跌 唯中共数据“狂涨”  "></a></p>
+<p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102907921.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩保镖神秘战死 独身母亲等来“机密”  >-009fcc?logoWidth=1" title="金正恩保镖神秘战死 独身母亲等来“机密”  " alt="金正恩保镖神秘战死 独身母亲等来“机密”  "></a></p>
+<p><a href="https://github.com/bwcaeu346/djy/blob/master/gb/20/8/1/n12299895.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国冷战武器今派用场 战斧巡航导弹     >-009fcc?logoWidth=1" title="美国冷战武器今派用场 战斧巡航导弹  " alt="美国冷战武器今派用场 战斧巡航导弹  "></a></p>
 <p><a href="https://github.com/bwcaeu346/djy/blob/master/gb/20/7/24/n12280363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李木通：为《大纪元》加油打气        >-009fcc?logoWidth=1" title="李木通：为《大纪元》加油打气  " alt="李木通：为《大纪元》加油打气  "></a></p>
-<p><a href="https://github.com/bwcaeu346/djy/blob/master/gb/20/8/1/n12299836.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不明中国种子美50州警告 部分品种揭晓   >-009fcc?logoWidth=1" title="不明中国种子美50州警告 部分品种揭晓  " alt="不明中国种子美50州警告 部分品种揭晓  "></a></p>
-<p><a href="https://github.com/bwcaeu346/djy/blob/master/gb/20/8/1/n12299865.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普推文被删 解读背后的故事        >-009fcc?logoWidth=1" title="川普推文被删 解读背后的故事  " alt="川普推文被删 解读背后的故事  "></a></p>
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102907735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国神秘种子 在美国长出来了是这样     >-009fcc?logoWidth=1" title="中国神秘种子 在美国长出来了是这样  " alt="中国神秘种子 在美国长出来了是这样  "></a></p>
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102907816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“发明”新名词 泄露中南海双重危机  >-009fcc?logoWidth=1" title="习近平“发明”新名词 泄露中南海双重危机  " alt="习近平“发明”新名词 泄露中南海双重危机  "></a></p>
-<p><a href="https://github.com/bwcaeu346/djy/blob/master/gb/20/8/1/n12299846.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陕西省书记、省长双双被换 前书记被叛死缓  >-009fcc?logoWidth=1" title="陕西省书记、省长双双被换 前书记被叛死缓  " alt="陕西省书记、省长双双被换 前书记被叛死缓  "></a></p>
-<p><a href="https://github.com/bwcaeu346/djy/blob/master/gb/20/8/1/n12299327.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情重创大陆餐饮业 海底捞半年预亏9亿   >-009fcc?logoWidth=1" title="疫情重创大陆餐饮业 海底捞半年预亏9亿  " alt="疫情重创大陆餐饮业 海底捞半年预亏9亿  "></a></p>
+<p><a href="https://github.com/bwcaeu346/djy/blob/master/gb/20/8/1/n12299836.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不明中国种子美50州警告 部分品种揭晓   >-009fcc?logoWidth=1" title="不明中国种子美50州警告 部分品种揭晓  " alt="不明中国种子美50州警告 部分品种揭晓  "></a></p>
+<p><a href="https://github.com/bwcaeu346/djy/blob/master/gb/20/8/1/n12299965.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/6名被通缉的港人 5人发声：不会停止抗争  >-009fcc?logoWidth=1" title="6名被通缉的港人 5人发声：不会停止抗争  " alt="6名被通缉的港人 5人发声：不会停止抗争  "></a></p>
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102907967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美何时开战？美军机南海巡弋2000多次，3>-009fcc?logoWidth=1" title="中美何时开战？美军机南海巡弋2000多次，30国已为5G洁净国，中共三个准备要毁灭全人类！  " alt="中美何时开战？美军机南海巡弋2000多次，30国已为5G洁净国，中共三个准备要毁灭全人类！  "></a></p>
 <p><a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/2020/08/01/a102908179.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/听张召忠说准备打仗 我就放心了%3F%3F     >-009fcc?logoWidth=1" title="听张召忠说准备打仗 我就放心了??  " alt="听张召忠说准备打仗 我就放心了??  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bwcaeu346/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bwcaeu346/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bwcaeu346/www/blob/master/README.md?u#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/bwcaeu346/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bwcaeu346/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bwcaeu346/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bwcaeu346/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bwcaeu346/www/blob/master/README.md?s#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/bwcaeu346/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jzzzz">git.io/jzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/mnnnn">git.io/mnnnn</a></div>
 
