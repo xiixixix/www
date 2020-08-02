@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/uzmtnx309/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/uzmtnx309/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tmmmm">git.io/tmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p9p">x.co/p9p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/m7777">git.io/m7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aua">x.co/aua</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -48,7 +48,7 @@
 <p><a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/2020/08/01/a102908166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港律政司高官突然辞职 被疑割席跳船    >-009fcc?logoWidth=1" title="香港律政司高官突然辞职 被疑割席跳船  " alt="香港律政司高官突然辞职 被疑割席跳船  "></a></p>
 <p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/8/1/n12299965.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/6名被通缉的港人 5人发声：不会停止抗争  >-009fcc?logoWidth=1" title="6名被通缉的港人 5人发声：不会停止抗争  " alt="6名被通缉的港人 5人发声：不会停止抗争  "></a></p>
 <p><a href="https://github.com/uzmtnx309/djy/blob/master/gb/20/8/1/n12299895.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国冷战武器今派用场 战斧巡航导弹     >-009fcc?logoWidth=1" title="美国冷战武器今派用场 战斧巡航导弹  " alt="美国冷战武器今派用场 战斧巡航导弹  "></a></p>
-<p><a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/2020/08/02/a102908528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李登辉故事（续） 台独还是护台？      >-009fcc?logoWidth=1" title="李登辉故事（续） 台独还是护台？  " alt="李登辉故事（续） 台独还是护台？  "></a></p>
+<p><a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/2020/08/02/a102908546.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/【时事小品】美中闭馆大战          >-009fcc?logoWidth=1" title="【时事小品】美中闭馆大战  " alt="【时事小品】美中闭馆大战  "></a></p>
 <p><a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/2020/08/02/a102908514.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第三回 姬昌解围进妲己（下）        >-009fcc?logoWidth=1" title="第三回 姬昌解围进妲己（下）  " alt="第三回 姬昌解围进妲己（下）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/uzmtnx309/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/uzmtnx309/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uzmtnx309/www/blob/master/README.md?j#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/uzmtnx309/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/uzmtnx309/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uzmtnx309/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/uzmtnx309/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uzmtnx309/www/blob/master/README.md?g#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/uzmtnx309/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/tmmmm">git.io/tmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/m7777">git.io/m7777</a></div>
 
