@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zakhge305/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zakhge305/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jcccc">git.io/jcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/jpp">x.co/jpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dcccc">git.io/dcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/apa">x.co/apa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/03/a102909185.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家:美中在南海一旦开打 中共就完     >-009fcc?logoWidth=1" title="专家:美中在南海一旦开打 中共就完  " alt="专家:美中在南海一旦开打 中共就完  "></a></p>
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/03/a102909138.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：美中在南海一旦开打，中共就完了    >-009fcc?logoWidth=1" title="专家：美中在南海一旦开打，中共就完了  " alt="专家：美中在南海一旦开打，中共就完了  "></a></p>
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/03/a102908960.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议时间到了 开不开有三大信号    >-009fcc?logoWidth=1" title="北戴河会议时间到了 开不开有三大信号  " alt="北戴河会议时间到了 开不开有三大信号  "></a></p>
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/02/a102908838.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/当众被刘鹤羞辱 李克强或祭出终极手段    >-009fcc?logoWidth=1" title="当众被刘鹤羞辱 李克强或祭出终极手段  " alt="当众被刘鹤羞辱 李克强或祭出终极手段  "></a></p>
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/02/a102908687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中方妥协放弃TikTok所有股权 纳瓦罗:2>-009fcc?logoWidth=1" title="中方妥协放弃TikTok所有股权 纳瓦罗:2天内或封杀  " alt="中方妥协放弃TikTok所有股权 纳瓦罗:2天内或封杀  "></a></p>
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/02/a102908601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦爆中共高层防疫特供/2020预言不再准>-009fcc?logoWidth=1" title="闫丽梦爆中共高层防疫特供/2020预言不再准确？  " alt="闫丽梦爆中共高层防疫特供/2020预言不再准确？  "></a></p>
-<p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/02/a102908532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共隐瞒疫情 伪造基因序列         >-009fcc?logoWidth=1" title="中共隐瞒疫情 伪造基因序列  " alt="中共隐瞒疫情 伪造基因序列  "></a></p>
+<p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/03/a102908866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度内政部长染疫 拉美死亡破20万     >-009fcc?logoWidth=1" title="印度内政部长染疫 拉美死亡破20万  " alt="印度内政部长染疫 拉美死亡破20万  "></a></p>
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/03/a102909194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/禅师泄杨家将天机：金沙滩双龙会 七子去六子回>-009fcc?logoWidth=1" title="禅师泄杨家将天机：金沙滩双龙会 七子去六子回  " alt="禅师泄杨家将天机：金沙滩双龙会 七子去六子回  "></a></p>
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/03/a102909143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抗疫冲击经济 杜特尔特：没钱再发给贫民   >-009fcc?logoWidth=1" title="抗疫冲击经济 杜特尔特：没钱再发给贫民  " alt="抗疫冲击经济 杜特尔特：没钱再发给贫民  "></a></p>
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/03/a102909131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/窦娥冤再现？北京、上海、青海齐飘“六月雪” >-009fcc?logoWidth=1" title="窦娥冤再现？北京、上海、青海齐飘“六月雪”  " alt="窦娥冤再现？北京、上海、青海齐飘“六月雪”  "></a></p>
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/03/a102909145.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西班牙男家藏罗马古文物 甚至有3200年前珠>-009fcc?logoWidth=1" title="西班牙男家藏罗马古文物 甚至有3200年前珠宝  " alt="西班牙男家藏罗马古文物 甚至有3200年前珠宝  "></a></p>
-<p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/03/a102909128.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伊朗掩盖疫情 BBC爆实际死亡病例为官方数字>-009fcc?logoWidth=1" title="伊朗掩盖疫情 BBC爆实际死亡病例为官方数字3倍  " alt="伊朗掩盖疫情 BBC爆实际死亡病例为官方数字3倍  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zakhge305/djy/blob/master/gb/20/7/30/n12295728.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共监控“流氓化”：家中偷窥你       >-009fcc?logoWidth=1" title="中共监控“流氓化”：家中偷窥你  " alt="中共监控“流氓化”：家中偷窥你  "></a></p>
 <p><a href="https://github.com/zakhge305/djy/blob/master/gb/20/8/2/n12301427.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：川普未来几天将对中国软件采取行动  >-009fcc?logoWidth=1" title="蓬佩奥：川普未来几天将对中国软件采取行动  " alt="蓬佩奥：川普未来几天将对中国软件采取行动  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/zakhge305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zakhge305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zakhge305/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zakhge305/www/blob/master/README.md?e#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/zakhge305/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/zakhge305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zakhge305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zakhge305/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zakhge305/www/blob/master/README.md?w#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/zakhge305/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jcccc">git.io/jcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/dcccc">git.io/dcccc</a></div>
 
