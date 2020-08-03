@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zakhge305/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zakhge305/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/i6666">git.io/i6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3366">x.co/3366</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/2222222">git.io/2222222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/afa">x.co/afa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/03/a102908960.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议时间到了 开不开有三大信号    >-009fcc?logoWidth=1" title="北戴河会议时间到了 开不开有三大信号  " alt="北戴河会议时间到了 开不开有三大信号  "></a></p>
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/02/a102908838.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/当众被刘鹤羞辱 李克强或祭出终极手段    >-009fcc?logoWidth=1" title="当众被刘鹤羞辱 李克强或祭出终极手段  " alt="当众被刘鹤羞辱 李克强或祭出终极手段  "></a></p>
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/02/a102908687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中方妥协放弃TikTok所有股权 纳瓦罗:2>-009fcc?logoWidth=1" title="中方妥协放弃TikTok所有股权 纳瓦罗:2天内或封杀  " alt="中方妥协放弃TikTok所有股权 纳瓦罗:2天内或封杀  "></a></p>
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/02/a102908601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦爆中共高层防疫特供/2020预言不再准>-009fcc?logoWidth=1" title="闫丽梦爆中共高层防疫特供/2020预言不再准确？  " alt="闫丽梦爆中共高层防疫特供/2020预言不再准确？  "></a></p>
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/02/a102908532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共隐瞒疫情 伪造基因序列         >-009fcc?logoWidth=1" title="中共隐瞒疫情 伪造基因序列  " alt="中共隐瞒疫情 伪造基因序列  "></a></p>
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/02/a102908534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话:抖音海外版被禁,微软接管？美国>-009fcc?logoWidth=1" title="外交部大实话:抖音海外版被禁,微软接管？美国宣布新一轮制裁  " alt="外交部大实话:抖音海外版被禁,微软接管？美国宣布新一轮制裁  "></a></p>
-<p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/02/a102908484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦爆中共高层防疫特供！都服用这个(视频)>-009fcc?logoWidth=1" title="闫丽梦爆中共高层防疫特供！都服用这个(视频)  " alt="闫丽梦爆中共高层防疫特供！都服用这个(视频)  "></a></p>
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/03/a102908919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微信也要禁？川普政府将打击一大批中国软件  >-009fcc?logoWidth=1" title="微信也要禁？川普政府将打击一大批中国软件  " alt="微信也要禁？川普政府将打击一大批中国软件  "></a></p>
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/03/a102908949.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：中共利用AI技术 打造全国性“全景监狱>-009fcc?logoWidth=1" title="美媒：中共利用AI技术 打造全国性“全景监狱”  " alt="美媒：中共利用AI技术 打造全国性“全景监狱”  "></a></p>
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/03/a102908948.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/徐考澧：恶意延选打压民主派 工会团结反抗  >-009fcc?logoWidth=1" title="徐考澧：恶意延选打压民主派 工会团结反抗  " alt="徐考澧：恶意延选打压民主派 工会团结反抗  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/zakhge305/djy/blob/master/gb/20/8/2/n12301755.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共利用TikTok对美国人做什么 纳瓦罗解>-009fcc?logoWidth=1" title="中共利用TikTok对美国人做什么 纳瓦罗解释  " alt="中共利用TikTok对美国人做什么 纳瓦罗解释  "></a></p>
 <p><a href="https://github.com/zakhge305/djy/blob/master/gb/20/8/1/n12300120.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国院士吴宜灿批中共借疫情要求捐款     >-009fcc?logoWidth=1" title="中国院士吴宜灿批中共借疫情要求捐款  " alt="中国院士吴宜灿批中共借疫情要求捐款  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/02/a102908484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦爆中共高层防疫特供！都服用这个(视频)>-009fcc?logoWidth=1" title="闫丽梦爆中共高层防疫特供！都服用这个(视频)  " alt="闫丽梦爆中共高层防疫特供！都服用这个(视频)  "></a></p>
 <p><a href="https://github.com/zakhge305/djy/blob/master/gb/20/8/1/n12300120.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/院士吴宜灿批中共借疫情要求捐款 录音曝光  >-009fcc?logoWidth=1" title="院士吴宜灿批中共借疫情要求捐款 录音曝光  " alt="院士吴宜灿批中共借疫情要求捐款 录音曝光  "></a></p>
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/02/a102908581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/虾头能吃吗？虾皮真的能补钙吗？现在知道还不晚>-009fcc?logoWidth=1" title="虾头能吃吗？虾皮真的能补钙吗？现在知道还不晚  " alt="虾头能吃吗？虾皮真的能补钙吗？现在知道还不晚  "></a></p>
 <p><a href="https://github.com/zakhge305/djy/blob/master/gb/20/8/2/n12301559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境 中共集结五千士兵并储存武器    >-009fcc?logoWidth=1" title="中印边境 中共集结五千士兵并储存武器  " alt="中印边境 中共集结五千士兵并储存武器  "></a></p>
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/zakhge305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zakhge305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zakhge305/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zakhge305/www/blob/master/README.md?k#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/zakhge305/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/zakhge305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zakhge305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zakhge305/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zakhge305/www/blob/master/README.md?u#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/zakhge305/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/i6666">git.io/i6666</a></div>
+<div align="center">短网址: <a href="https://git.io/2222222">git.io/2222222</a></div>
 
