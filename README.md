@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xdbxou357/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xdbxou357/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/krrrr">git.io/krrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u33">x.co/u33</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qiiii">git.io/qiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/5pp">x.co/5pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/02/a102908687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中方妥协放弃TikTok所有股权 纳瓦罗:2>-009fcc?logoWidth=1" title="中方妥协放弃TikTok所有股权 纳瓦罗:2天内或封杀  " alt="中方妥协放弃TikTok所有股权 纳瓦罗:2天内或封杀  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/02/a102908601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦爆中共高层防疫特供/2020预言不再准>-009fcc?logoWidth=1" title="闫丽梦爆中共高层防疫特供/2020预言不再准确？  " alt="闫丽梦爆中共高层防疫特供/2020预言不再准确？  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102909504.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/载人龙飞船成功返回溅落海上 川普推文祝贺(视>-009fcc?logoWidth=1" title="载人龙飞船成功返回溅落海上 川普推文祝贺(视频)  " alt="载人龙飞船成功返回溅落海上 川普推文祝贺(视频)  "></a></p>
+<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102909488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美各界正在转变 汉学家林培瑞：看清了中共本质>-009fcc?logoWidth=1" title="美各界正在转变 汉学家林培瑞：看清了中共本质  " alt="美各界正在转变 汉学家林培瑞：看清了中共本质  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102909450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普会科技工作者 签署雇美国人行政令（同声翻>-009fcc?logoWidth=1" title="川普会科技工作者 签署雇美国人行政令（同声翻译）  " alt="川普会科技工作者 签署雇美国人行政令（同声翻译）  "></a></p>
-<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102909400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/路透：川普给45天 让TikTok与微软磋商>-009fcc?logoWidth=1" title="路透：川普给45天 让TikTok与微软磋商出售事宜  " alt="路透：川普给45天 让TikTok与微软磋商出售事宜  "></a></p>
+<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102909400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/路透：川普给45天期限 让微软与TikTok>-009fcc?logoWidth=1" title="路透：川普给45天期限 让微软与TikTok磋商收购  " alt="路透：川普给45天期限 让微软与TikTok磋商收购  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102909430.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度教育部将审查孔子学院          >-009fcc?logoWidth=1" title="印度教育部将审查孔子学院  " alt="印度教育部将审查孔子学院  "></a></p>
-<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102909446.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国公民遭港府通缉 港人时代广场抗议    >-009fcc?logoWidth=1" title="美国公民遭港府通缉 港人时代广场抗议  " alt="美国公民遭港府通缉 港人时代广场抗议  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/7/30/n12295728.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共监控“流氓化”：家中偷窥你       >-009fcc?logoWidth=1" title="中共监控“流氓化”：家中偷窥你  " alt="中共监控“流氓化”：家中偷窥你  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/2/n12301427.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：川普未来几天将对中国软件采取行动  >-009fcc?logoWidth=1" title="蓬佩奥：川普未来几天将对中国软件采取行动  " alt="蓬佩奥：川普未来几天将对中国软件采取行动  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xdbxou357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xdbxou357/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xdbxou357/www/blob/master/README.md?m#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/xdbxou357/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xdbxou357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xdbxou357/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xdbxou357/www/blob/master/README.md?z#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/xdbxou357/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/krrrr">git.io/krrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/qiiii">git.io/qiiii</a></div>
 
