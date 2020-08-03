@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zakhge305/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zakhge305/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kyyyy">git.io/kyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aau">x.co/aau</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/urrrr">git.io/urrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/udd">x.co/udd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -42,14 +42,12 @@
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/02/a102908447.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平中纪委插“钉子” 赵乐际下场不妙？  >-009fcc?logoWidth=1" title="习近平中纪委插“钉子” 赵乐际下场不妙？  " alt="习近平中纪委插“钉子” 赵乐际下场不妙？  "></a></p>
 <p><a href="https://github.com/zakhge305/djy/blob/master/gb/20/8/1/n12300120.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/院士吴宜灿批中共借疫情要求捐款 录音曝光  >-009fcc?logoWidth=1" title="院士吴宜灿批中共借疫情要求捐款 录音曝光  " alt="院士吴宜灿批中共借疫情要求捐款 录音曝光  "></a></p>
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/02/a102908484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦爆中共高层防疫特供！都服用这个(视频)>-009fcc?logoWidth=1" title="闫丽梦爆中共高层防疫特供！都服用这个(视频)  " alt="闫丽梦爆中共高层防疫特供！都服用这个(视频)  "></a></p>
-<p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/02/a102908581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/虾头能吃吗？虾皮真的能补钙吗？现在知道还不晚>-009fcc?logoWidth=1" title="虾头能吃吗？虾皮真的能补钙吗？现在知道还不晚  " alt="虾头能吃吗？虾皮真的能补钙吗？现在知道还不晚  "></a></p>
 <p><a href="https://github.com/zakhge305/djy/blob/master/gb/20/8/2/n12301559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境 中共集结五千士兵并储存武器    >-009fcc?logoWidth=1" title="中印边境 中共集结五千士兵并储存武器  " alt="中印边境 中共集结五千士兵并储存武器  "></a></p>
 <p><a href="https://github.com/zakhge305/djy/blob/master/gb/20/7/30/n12293661.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美经济学家：抗共不影响美国经济       >-009fcc?logoWidth=1" title="美经济学家：抗共不影响美国经济  " alt="美经济学家：抗共不影响美国经济  "></a></p>
-<p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/03/a102908929.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：川普未来几天将对中国软件采取行动  >-009fcc?logoWidth=1" title="蓬佩奥：川普未来几天将对中国软件采取行动  " alt="蓬佩奥：川普未来几天将对中国软件采取行动  "></a></p>
-<p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/01/a102908310.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/面签被问是否共产党员？美律师：回答是不是都错>-009fcc?logoWidth=1" title="面签被问是否共产党员？美律师：回答是不是都错  " alt="面签被问是否共产党员？美律师：回答是不是都错  "></a></p>
+<p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/02/a102908581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/虾头能吃吗？虾皮真的能补钙吗？现在知道还不晚>-009fcc?logoWidth=1" title="虾头能吃吗？虾皮真的能补钙吗？现在知道还不晚  " alt="虾头能吃吗？虾皮真的能补钙吗？现在知道还不晚  "></a></p>
 <p><a href="https://github.com/zakhge305/djy/blob/master/gb/20/8/2/n12301062.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中储粮肇州库禁手机录像 网民：做贼心虚  >-009fcc?logoWidth=1" title="传中储粮肇州库禁手机录像 网民：做贼心虚  " alt="传中储粮肇州库禁手机录像 网民：做贼心虚  "></a></p>
 <p><a href="https://github.com/zakhge305/djy/blob/master/gb/20/8/2/n12301583.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共政权能坚持到下次香港选举吗？   >-009fcc?logoWidth=1" title="钟原：中共政权能坚持到下次香港选举吗？  " alt="钟原：中共政权能坚持到下次香港选举吗？  "></a></p>
-<p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/02/a102908770.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国南方沿海双台风来袭 北方黄河开闸泄洪  >-009fcc?logoWidth=1" title="中国南方沿海双台风来袭 北方黄河开闸泄洪  " alt="中国南方沿海双台风来袭 北方黄河开闸泄洪  "></a></p>
+<p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/02/a102908560.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020年巴西数万人目击UFO坠落事件！  >-009fcc?logoWidth=1" title="2020年巴西数万人目击UFO坠落事件！  " alt="2020年巴西数万人目击UFO坠落事件！  "></a></p>
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/02/a102908527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普急眼：官媒盛赞蓬佩奥 李克强遭遇下马威 >-009fcc?logoWidth=1" title="川普急眼：官媒盛赞蓬佩奥 李克强遭遇下马威  " alt="川普急眼：官媒盛赞蓬佩奥 李克强遭遇下马威  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -488,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/zakhge305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zakhge305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zakhge305/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zakhge305/www/blob/master/README.md?v#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/zakhge305/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/zakhge305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zakhge305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zakhge305/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zakhge305/www/blob/master/README.md?n#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/zakhge305/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kyyyy">git.io/kyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/urrrr">git.io/urrrr</a></div>
 
