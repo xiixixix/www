@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zakhge305/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zakhge305/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fzzzz">git.io/fzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/vaa">x.co/vaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ammmm">git.io/ammmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a6a">x.co/a6a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,17 @@
 <p><a href="https://github.com/zakhge305/djy/blob/master/gb/20/8/2/n12301683.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共核专家打脸胡锡进 批其恶意炒作涉核问题 >-009fcc?logoWidth=1" title="中共核专家打脸胡锡进 批其恶意炒作涉核问题  " alt="中共核专家打脸胡锡进 批其恶意炒作涉核问题  "></a></p>
 <p><a href="https://github.com/zakhge305/djy/blob/master/gb/20/8/2/n12301755.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共利用TikTok对美国人做什么 纳瓦罗解>-009fcc?logoWidth=1" title="中共利用TikTok对美国人做什么 纳瓦罗解释  " alt="中共利用TikTok对美国人做什么 纳瓦罗解释  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/03/a102909146.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战争逼近？全国准备防空洞；习近平忧北戴河几百>-009fcc?logoWidth=1" title="战争逼近？全国准备防空洞；习近平忧北戴河几百元老聚集政变  " alt="战争逼近？全国准备防空洞；习近平忧北戴河几百元老聚集政变  "></a></p>
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/02/a102908447.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平中纪委插“钉子” 赵乐际下场不妙？  >-009fcc?logoWidth=1" title="习近平中纪委插“钉子” 赵乐际下场不妙？  " alt="习近平中纪委插“钉子” 赵乐际下场不妙？  "></a></p>
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/03/a102909091.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/Tiktok中共的黑手被川普斩断 全面禁止中>-009fcc?logoWidth=1" title="Tiktok中共的黑手被川普斩断 全面禁止中共app有多远?  " alt="Tiktok中共的黑手被川普斩断 全面禁止中共app有多远?  "></a></p>
-<p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/02/a102908581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/虾头能吃吗？虾皮真的能补钙吗？现在知道还不晚>-009fcc?logoWidth=1" title="虾头能吃吗？虾皮真的能补钙吗？现在知道还不晚  " alt="虾头能吃吗？虾皮真的能补钙吗？现在知道还不晚  "></a></p>
 <p><a href="https://github.com/zakhge305/djy/blob/master/gb/20/8/1/n12300120.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/院士吴宜灿批中共借疫情要求捐款 录音曝光  >-009fcc?logoWidth=1" title="院士吴宜灿批中共借疫情要求捐款 录音曝光  " alt="院士吴宜灿批中共借疫情要求捐款 录音曝光  "></a></p>
 <p><a href="https://github.com/zakhge305/djy/blob/master/gb/20/8/2/n12301559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境 中共集结五千士兵并储存武器    >-009fcc?logoWidth=1" title="中印边境 中共集结五千士兵并储存武器  " alt="中印边境 中共集结五千士兵并储存武器  "></a></p>
+<p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/02/a102908581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/虾头能吃吗？虾皮真的能补钙吗？现在知道还不晚>-009fcc?logoWidth=1" title="虾头能吃吗？虾皮真的能补钙吗？现在知道还不晚  " alt="虾头能吃吗？虾皮真的能补钙吗？现在知道还不晚  "></a></p>
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/03/a102909062.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美将轰炸黄岩岛%3F 中美开战你帮谁      >-009fcc?logoWidth=1" title="美将轰炸黄岩岛? 中美开战你帮谁  " alt="美将轰炸黄岩岛? 中美开战你帮谁  "></a></p>
 <p><a href="https://github.com/zakhge305/djy/blob/master/gb/20/8/2/n12301062.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中储粮肇州库禁手机录像 网民：做贼心虚  >-009fcc?logoWidth=1" title="传中储粮肇州库禁手机录像 网民：做贼心虚  " alt="传中储粮肇州库禁手机录像 网民：做贼心虚  "></a></p>
 <p><a href="https://github.com/zakhge305/djy/blob/master/gb/20/8/2/n12301583.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共政权能坚持到下次香港选举吗？   >-009fcc?logoWidth=1" title="钟原：中共政权能坚持到下次香港选举吗？  " alt="钟原：中共政权能坚持到下次香港选举吗？  "></a></p>
-<p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/02/a102908484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦爆中共高层防疫特供！都服用这个(视频)>-009fcc?logoWidth=1" title="闫丽梦爆中共高层防疫特供！都服用这个(视频)  " alt="闫丽梦爆中共高层防疫特供！都服用这个(视频)  "></a></p>
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/02/a102908527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普急眼：官媒盛赞蓬佩奥 李克强遭遇下马威 >-009fcc?logoWidth=1" title="川普急眼：官媒盛赞蓬佩奥 李克强遭遇下马威  " alt="川普急眼：官媒盛赞蓬佩奥 李克强遭遇下马威  "></a></p>
+<p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/02/a102908484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦爆中共高层防疫特供！都服用这个(视频)>-009fcc?logoWidth=1" title="闫丽梦爆中共高层防疫特供！都服用这个(视频)  " alt="闫丽梦爆中共高层防疫特供！都服用这个(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/zakhge305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zakhge305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zakhge305/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zakhge305/www/blob/master/README.md?d#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/zakhge305/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/zakhge305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zakhge305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zakhge305/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zakhge305/www/blob/master/README.md?h#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/zakhge305/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fzzzz">git.io/fzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/ammmm">git.io/ammmm</a></div>
 
