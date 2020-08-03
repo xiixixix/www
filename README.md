@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ufsjfy3164/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ufsjfy3164/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/akkkk">git.io/akkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2aa">x.co/2aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g3333">git.io/g3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3332">x.co/3332</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,13 +39,13 @@
 <p><a href="https://github.com/ufsjfy3164/djy/blob/master/gb/20/8/1/n12300229.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林官场再现“思想家” 被指野鸡大学毕业  >-009fcc?logoWidth=1" title="吉林官场再现“思想家” 被指野鸡大学毕业  " alt="吉林官场再现“思想家” 被指野鸡大学毕业  "></a></p>
 <p><a href="https://github.com/ufsjfy3164/djy/blob/master/gb/20/8/2/n12301322.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习又升旧部 赵一德成最年轻省政府“一把手” >-009fcc?logoWidth=1" title="习又升旧部 赵一德成最年轻省政府“一把手”  " alt="习又升旧部 赵一德成最年轻省政府“一把手”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ufsjfy3164/ntdtv/blob/master/gb/2020/08/02/a102908503.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国金牌主持人去年为何制作一期攻击郭文贵节目>-009fcc?logoWidth=1" title="美国金牌主持人去年为何制作一期攻击郭文贵节目？  " alt="美国金牌主持人去年为何制作一期攻击郭文贵节目？  "></a></p>
 <p><a href="https://github.com/ufsjfy3164/ntdtv/blob/master/gb/2020/08/02/a102908355.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020预言不再准确 “十户余一”不会发生 >-009fcc?logoWidth=1" title="2020预言不再准确 “十户余一”不会发生 （第20集）  " alt="2020预言不再准确 “十户余一”不会发生 （第20集）  "></a></p>
 <p><a href="https://github.com/ufsjfy3164/djy/blob/master/gb/20/8/1/n12300229.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林厅级“思想家”被指野鸡大学毕业 获吴邦国>-009fcc?logoWidth=1" title="吉林厅级“思想家”被指野鸡大学毕业 获吴邦国贾庆林接见  " alt="吉林厅级“思想家”被指野鸡大学毕业 获吴邦国贾庆林接见  "></a></p>
 <p><a href="https://github.com/ufsjfy3164/djy/blob/master/gb/20/8/2/n12301322.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习又提拔旧部 赵一德成最年轻省政府“一把手”>-009fcc?logoWidth=1" title="习又提拔旧部 赵一德成最年轻省政府“一把手”  " alt="习又提拔旧部 赵一德成最年轻省政府“一把手”  "></a></p>
+<p><a href="https://github.com/ufsjfy3164/ntdtv/blob/master/gb/2020/08/02/a102908400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热帖：听张召忠将军说准备打仗，我就放心了  >-009fcc?logoWidth=1" title="热帖：听张召忠将军说准备打仗，我就放心了  " alt="热帖：听张召忠将军说准备打仗，我就放心了  "></a></p>
 <p><a href="https://github.com/ufsjfy3164/djy/blob/master/gb/20/8/2/n12301219.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抖音微信受审查 美国line下载量骤增213>-009fcc?logoWidth=1" title="抖音微信受审查 美国line下载量骤增213％  " alt="抖音微信受审查 美国line下载量骤增213％  "></a></p>
 <p><a href="https://github.com/ufsjfy3164/djy/blob/master/gb/20/8/2/n12300380.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/K歌之王财产被封 王思聪曾一夜消费250万 >-009fcc?logoWidth=1" title="K歌之王财产被封 王思聪曾一夜消费250万  " alt="K歌之王财产被封 王思聪曾一夜消费250万  "></a></p>
-<p><a href="https://github.com/ufsjfy3164/ntdtv/blob/master/gb/2020/08/02/a102908400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热帖：听张召忠将军说准备打仗，我就放心了  >-009fcc?logoWidth=1" title="热帖：听张召忠将军说准备打仗，我就放心了  " alt="热帖：听张召忠将军说准备打仗，我就放心了  "></a></p>
+<p><a href="https://github.com/ufsjfy3164/ntdtv/blob/master/gb/2020/08/02/a102908379.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美南海势必一战？前陆军少将：地点是黄岩岛 >-009fcc?logoWidth=1" title="中美南海势必一战？前陆军少将：地点是黄岩岛  " alt="中美南海势必一战？前陆军少将：地点是黄岩岛  "></a></p>
 <p><a href="https://github.com/ufsjfy3164/ntdtv/blob/master/gb/2020/08/02/a102908406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/知情人透露：任志强刚与家人通话 揽下所有刑责>-009fcc?logoWidth=1" title="知情人透露：任志强刚与家人通话 揽下所有刑责  " alt="知情人透露：任志强刚与家人通话 揽下所有刑责  "></a></p>
 <p><a href="https://github.com/ufsjfy3164/djy/blob/master/gb/20/8/2/n12300674.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：习近平遭遇釜底抽薪式拷问—为谁保江山 >-009fcc?logoWidth=1" title="王赫：习近平遭遇釜底抽薪式拷问—为谁保江山  " alt="王赫：习近平遭遇釜底抽薪式拷问—为谁保江山  "></a></p>
 <p><a href="https://github.com/ufsjfy3164/djy/blob/master/gb/20/8/2/n12301128.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共隐瞒疫情 伪造基因序列         >-009fcc?logoWidth=1" title="中共隐瞒疫情 伪造基因序列  " alt="中共隐瞒疫情 伪造基因序列  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ufsjfy3164/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ufsjfy3164/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ufsjfy3164/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ufsjfy3164/www/blob/master/README.md?r#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ufsjfy3164/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ufsjfy3164/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ufsjfy3164/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ufsjfy3164/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ufsjfy3164/www/blob/master/README.md?l#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ufsjfy3164/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/akkkk">git.io/akkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/g3333">git.io/g3333</a></div>
 
