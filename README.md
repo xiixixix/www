@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ufsjfy3164/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ufsjfy3164/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/auuuu">git.io/auuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a8a">x.co/a8a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cccccccc">git.io/cccccccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/8aa">x.co/8aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ufsjfy3164/ntdtv/blob/master/gb/2020/08/02/a102908532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共隐瞒疫情 伪造基因序列         >-009fcc?logoWidth=1" title="中共隐瞒疫情 伪造基因序列  " alt="中共隐瞒疫情 伪造基因序列  "></a></p>
 <p><a href="https://github.com/ufsjfy3164/ntdtv/blob/master/gb/2020/08/02/a102908534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话:抖音海外版被禁,微软接管？美国>-009fcc?logoWidth=1" title="外交部大实话:抖音海外版被禁,微软接管？美国宣布新一轮制裁  " alt="外交部大实话:抖音海外版被禁,微软接管？美国宣布新一轮制裁  "></a></p>
 <p><a href="https://github.com/ufsjfy3164/ntdtv/blob/master/gb/2020/08/02/a102908484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦爆中共高层防疫特供！都服用这个(视频)>-009fcc?logoWidth=1" title="闫丽梦爆中共高层防疫特供！都服用这个(视频)  " alt="闫丽梦爆中共高层防疫特供！都服用这个(视频)  "></a></p>
+<p><a href="https://github.com/ufsjfy3164/ntdtv/blob/master/gb/2020/08/03/a102908930.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京施行“港版国安法” 瑞士：西方国家将果断>-009fcc?logoWidth=1" title="北京施行“港版国安法” 瑞士：西方国家将果断回应  " alt="北京施行“港版国安法” 瑞士：西方国家将果断回应  "></a></p>
 <p><a href="https://github.com/ufsjfy3164/ntdtv/blob/master/gb/2020/08/02/a102908813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南婴儿救命药标价70万刷屏  网友：澳洲只>-009fcc?logoWidth=1" title="湖南婴儿救命药标价70万刷屏  网友：澳洲只需41元  " alt="湖南婴儿救命药标价70万刷屏  网友：澳洲只需41元  "></a></p>
 <p><a href="https://github.com/ufsjfy3164/ntdtv/blob/master/gb/2020/08/02/a102908611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巨大海象隔玻璃亲吻小女孩 众人惊呼连连   >-009fcc?logoWidth=1" title="巨大海象隔玻璃亲吻小女孩 众人惊呼连连  " alt="巨大海象隔玻璃亲吻小女孩 众人惊呼连连  "></a></p>
 <p><a href="https://github.com/ufsjfy3164/ntdtv/blob/master/gb/2020/08/03/a102908866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度内政部长染疫 拉美死亡破20万     >-009fcc?logoWidth=1" title="印度内政部长染疫 拉美死亡破20万  " alt="印度内政部长染疫 拉美死亡破20万  "></a></p>
 <p><a href="https://github.com/ufsjfy3164/ntdtv/blob/master/gb/2020/08/02/a102908830.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一带一路又踢铁板 爱沙尼亚拒绝中共援建海底隧>-009fcc?logoWidth=1" title="一带一路又踢铁板 爱沙尼亚拒绝中共援建海底隧道  " alt="一带一路又踢铁板 爱沙尼亚拒绝中共援建海底隧道  "></a></p>
-<p><a href="https://github.com/ufsjfy3164/ntdtv/blob/master/gb/2020/08/02/a102908789.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥发声明 反对香港立法会选举延期    >-009fcc?logoWidth=1" title="蓬佩奥发声明 反对香港立法会选举延期  " alt="蓬佩奥发声明 反对香港立法会选举延期  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ufsjfy3164/djy/blob/master/gb/20/8/2/n12301427.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：川普未来几天将对中国软件采取行动  >-009fcc?logoWidth=1" title="蓬佩奥：川普未来几天将对中国软件采取行动  " alt="蓬佩奥：川普未来几天将对中国软件采取行动  "></a></p>
 <p><a href="https://github.com/ufsjfy3164/djy/blob/master/gb/20/8/1/n12300197.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美宇航员乘“龙飞船”海上降落        >-009fcc?logoWidth=1" title="美宇航员乘“龙飞船”海上降落  " alt="美宇航员乘“龙飞船”海上降落  "></a></p>
@@ -40,7 +40,6 @@
 <p><a href="https://github.com/ufsjfy3164/djy/blob/master/gb/20/8/2/n12301322.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习又升旧部 赵一德成最年轻省政府“一把手” >-009fcc?logoWidth=1" title="习又升旧部 赵一德成最年轻省政府“一把手”  " alt="习又升旧部 赵一德成最年轻省政府“一把手”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ufsjfy3164/ntdtv/blob/master/gb/2020/08/02/a102908379.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美南海势必一战？前陆军少将：地点是黄岩岛 >-009fcc?logoWidth=1" title="中美南海势必一战？前陆军少将：地点是黄岩岛  " alt="中美南海势必一战？前陆军少将：地点是黄岩岛  "></a></p>
-<p><a href="https://github.com/ufsjfy3164/ntdtv/blob/master/gb/2020/08/02/a102908780.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港防疫“中共化”？未确诊女被误送方舱医院 >-009fcc?logoWidth=1" title="香港防疫“中共化”？未确诊女被误送方舱医院  " alt="香港防疫“中共化”？未确诊女被误送方舱医院  "></a></p>
 <p><a href="https://github.com/ufsjfy3164/djy/blob/master/gb/20/8/1/n12300229.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林厅级“思想家”被指野鸡大学毕业 获吴邦国>-009fcc?logoWidth=1" title="吉林厅级“思想家”被指野鸡大学毕业 获吴邦国贾庆林接见  " alt="吉林厅级“思想家”被指野鸡大学毕业 获吴邦国贾庆林接见  "></a></p>
 <p><a href="https://github.com/ufsjfy3164/djy/blob/master/gb/20/8/2/n12301322.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习又提拔旧部 赵一德成最年轻省政府“一把手”>-009fcc?logoWidth=1" title="习又提拔旧部 赵一德成最年轻省政府“一把手”  " alt="习又提拔旧部 赵一德成最年轻省政府“一把手”  "></a></p>
 <p><a href="https://github.com/ufsjfy3164/ntdtv/blob/master/gb/2020/08/02/a102908355.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020预言不再准确 “十户余一”不会发生 >-009fcc?logoWidth=1" title="2020预言不再准确 “十户余一”不会发生 （第20集）  " alt="2020预言不再准确 “十户余一”不会发生 （第20集）  "></a></p>
@@ -488,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ufsjfy3164/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ufsjfy3164/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ufsjfy3164/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ufsjfy3164/www/blob/master/README.md?c#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ufsjfy3164/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ufsjfy3164/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ufsjfy3164/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ufsjfy3164/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ufsjfy3164/www/blob/master/README.md?x#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ufsjfy3164/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/auuuu">git.io/auuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/cccccccc">git.io/cccccccc</a></div>
 
