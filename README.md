@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zakhge305/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zakhge305/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kpppp">git.io/kpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppn">x.co/ppn</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/byyyy">git.io/byyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/psp">x.co/psp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/02/a102908601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦爆中共高层防疫特供/2020预言不再准>-009fcc?logoWidth=1" title="闫丽梦爆中共高层防疫特供/2020预言不再准确？  " alt="闫丽梦爆中共高层防疫特供/2020预言不再准确？  "></a></p>
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/02/a102908532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共隐瞒疫情 伪造基因序列         >-009fcc?logoWidth=1" title="中共隐瞒疫情 伪造基因序列  " alt="中共隐瞒疫情 伪造基因序列  "></a></p>
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/02/a102908534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话:抖音海外版被禁,微软接管？美国>-009fcc?logoWidth=1" title="外交部大实话:抖音海外版被禁,微软接管？美国宣布新一轮制裁  " alt="外交部大实话:抖音海外版被禁,微软接管？美国宣布新一轮制裁  "></a></p>
+<p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/03/a102909128.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伊朗掩盖疫情 BBC爆实际死亡病例为官方数字>-009fcc?logoWidth=1" title="伊朗掩盖疫情 BBC爆实际死亡病例为官方数字3倍  " alt="伊朗掩盖疫情 BBC爆实际死亡病例为官方数字3倍  "></a></p>
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/03/a102909049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港选举推迟一年 蓬佩奥：中共害怕自己人失败>-009fcc?logoWidth=1" title="香港选举推迟一年 蓬佩奥：中共害怕自己人失败  " alt="香港选举推迟一年 蓬佩奥：中共害怕自己人失败  "></a></p>
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/03/a102909008.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/助长暴力升温 墨西哥毒枭“锤子”落网    >-009fcc?logoWidth=1" title="助长暴力升温 墨西哥毒枭“锤子”落网  " alt="助长暴力升温 墨西哥毒枭“锤子”落网  "></a></p>
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/03/a102908955.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四段回忆揭示社会主义真面目         >-009fcc?logoWidth=1" title="四段回忆揭示社会主义真面目  " alt="四段回忆揭示社会主义真面目  "></a></p>
 <p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/03/a102909031.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港海关截获中国劣质口罩 吁市民立即停用  >-009fcc?logoWidth=1" title="香港海关截获中国劣质口罩 吁市民立即停用  " alt="香港海关截获中国劣质口罩 吁市民立即停用  "></a></p>
-<p><a href="https://github.com/zakhge305/ntdtv/blob/master/gb/2020/08/03/a102909022.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普斥推翻波士顿爆炸案原判不公 誓言再次诉请>-009fcc?logoWidth=1" title="川普斥推翻波士顿爆炸案原判不公 誓言再次诉请罪犯死刑  " alt="川普斥推翻波士顿爆炸案原判不公 誓言再次诉请罪犯死刑  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zakhge305/djy/blob/master/gb/20/7/30/n12295728.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共监控“流氓化”：家中偷窥你       >-009fcc?logoWidth=1" title="中共监控“流氓化”：家中偷窥你  " alt="中共监控“流氓化”：家中偷窥你  "></a></p>
 <p><a href="https://github.com/zakhge305/djy/blob/master/gb/20/8/2/n12301427.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：川普未来几天将对中国软件采取行动  >-009fcc?logoWidth=1" title="蓬佩奥：川普未来几天将对中国软件采取行动  " alt="蓬佩奥：川普未来几天将对中国软件采取行动  "></a></p>
@@ -64,19 +64,19 @@
 <h1><p><strong>免费翻墙软件下载</strong></p></h1>
 绿色、安全、免费，帮您破除网络封禁，一键上外网。<br>
 
-<p><details><summary><a href="https://cdn.jsdelivr.net/gh/zakhge305/www/szzd/oGate.apk">网门&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;（安卓版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a href="https://cdn.jsdelivr.net/gh/zakhge305/www/szzd/oGate.zip">网门（电脑版）</a>
+<p><details><summary><a href="https://gitlab.com/szzdlab/w/raw/master/szzd/oGate.apk">网门&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;（安卓版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><a href="https://gitlab.com/szzdlab/w/raw/master/szzd/oGate.zip">网门（电脑版）</a>
 </details>
-<p><details><summary><a href="https://cdn.jsdelivr.net/gh/zakhge305/www/szzd/SzzdOgate.apk">神州正道（安卓版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://cdn.jsdelivr.net/gh/zakhge305/www/szzd/szzdogate.rar">神州正道（网页版）</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://cdn.jsdelivr.net/gh/zakhge305/www/szzd/SzzdOgateTV.apk">神州正道（电视机顶盒版）</a></p>
+<p><details><summary><a href="https://gitlab.com/szzdlab/w/raw/master/szzd/SzzdOgate.apk">神州正道（安卓版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://gitlab.com/szzdlab/w/raw/master/szzd/szzdogate.rar">神州正道（网页版）</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://gitlab.com/szzdlab/w/raw/master/szzd/SzzdOgateTV.apk">神州正道（电视机顶盒版）</a></p>
 </details>
-<p><details><summary><a href="https://cdn.jsdelivr.net/gh/zakhge305/www/szzd/fgp.zip">自由门&thinsp;&nbsp;&nbsp;&nbsp;（电脑版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://cdn.jsdelivr.net/gh/zakhge305/www/szzd/fgma.apk">自由门4.2（安卓版）</a></p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://cdn.jsdelivr.net/gh/zakhge305/www/szzd/iPPOTV.zip">爱博电视&nbsp;（电脑版）</a></p>
+<p><details><summary><a href="https://gitlab.com/szzdlab/w/raw/master/szzd/fgp.zip">自由门&thinsp;&nbsp;&nbsp;&nbsp;（电脑版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://gitlab.com/szzdlab/w/raw/master/szzd/fgma.apk">自由门4.2（安卓版）</a></p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://gitlab.com/szzdlab/w/raw/master/szzd/iPPOTV.zip">爱博电视&nbsp;（电脑版）</a></p>
 </details>
-<p><details><summary><a href="https://cdn.jsdelivr.net/gh/zakhge305/www/szzd/u.zip">无界浏览（电脑版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://cdn.jsdelivr.net/gh/zakhge305/www/szzd/um.apk">无界浏览（安卓版）</a></p>
+<p><details><summary><a href="https://gitlab.com/szzdlab/w/raw/master/szzd/u.zip">无界浏览（电脑版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://gitlab.com/szzdlab/w/raw/master/szzd/um.apk">无界浏览（安卓版）</a></p>
 </details>
 
 <img src="https://raw.githubusercontent.com/zakhge305/www/master/t/lh600.jpg"><br>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/zakhge305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zakhge305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zakhge305/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zakhge305/www/blob/master/README.md?w#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/zakhge305/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/zakhge305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zakhge305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zakhge305/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zakhge305/www/blob/master/README.md?r#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/zakhge305/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kpppp">git.io/kpppp</a></div>
+<div align="center">短网址: <a href="https://git.io/byyyy">git.io/byyyy</a></div>
 
