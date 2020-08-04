@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xdbxou357/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xdbxou357/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/9999999">git.io/9999999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp7">x.co/pp7</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uuuuuu">git.io/uuuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/4445">x.co/4445</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -33,10 +33,11 @@
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/3/n12304238.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共依靠“内循环”？分析：经济将衰败    >-009fcc?logoWidth=1" title="中共依靠“内循环”？分析：经济将衰败  " alt="中共依靠“内循环”？分析：经济将衰败  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/7/28/n12290364.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭秘替中共牵线搭桥的神秘商会        >-009fcc?logoWidth=1" title="揭秘替中共牵线搭桥的神秘商会  " alt="揭秘替中共牵线搭桥的神秘商会  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/3/n12302287.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刘鹤公开羞辱李克强？ 央视视频火爆流传   >-009fcc?logoWidth=1" title="刘鹤公开羞辱李克强？ 央视视频火爆流传  " alt="刘鹤公开羞辱李克强？ 央视视频火爆流传  "></a></p>
-<p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/3/n12303554.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谁剥夺了美国人的真正货币？         >-009fcc?logoWidth=1" title="谁剥夺了美国人的真正货币？  " alt="谁剥夺了美国人的真正货币？  "></a></p>
+<p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/3/n12303554.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谁让美国的货币贬值呢？           >-009fcc?logoWidth=1" title="谁让美国的货币贬值呢？  " alt="谁让美国的货币贬值呢？  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12304844.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前海军高官透露中共军队底牌         >-009fcc?logoWidth=1" title="前海军高官透露中共军队底牌  " alt="前海军高官透露中共军队底牌  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12304815.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析师：TikTok出售案或影响到微信   >-009fcc?logoWidth=1" title="分析师：TikTok出售案或影响到微信  " alt="分析师：TikTok出售案或影响到微信  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/3/n12303554.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谁剥夺了美国人的真正货币？         >-009fcc?logoWidth=1" title="谁剥夺了美国人的真正货币？  " alt="谁剥夺了美国人的真正货币？  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102908866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：孙力军转移病毒证据被澳洲截获 已交美>-009fcc?logoWidth=1" title="袁弓夷：孙力军转移病毒证据被澳洲截获 已交美国  " alt="袁弓夷：孙力军转移病毒证据被澳洲截获 已交美国  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102909138.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：美中在南海一旦开打，中共就完了    >-009fcc?logoWidth=1" title="专家：美中在南海一旦开打，中共就完了  " alt="专家：美中在南海一旦开打，中共就完了  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/3/n12304143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/TikTok命运？蓬佩奥：川普受够了    >-009fcc?logoWidth=1" title="TikTok命运？蓬佩奥：川普受够了  " alt="TikTok命运？蓬佩奥：川普受够了  "></a></p>
@@ -487,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xdbxou357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xdbxou357/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xdbxou357/www/blob/master/README.md?m#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/xdbxou357/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xdbxou357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xdbxou357/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xdbxou357/www/blob/master/README.md?g#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/xdbxou357/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/9999999">git.io/9999999</a></div>
+<div align="center">短网址: <a href="https://git.io/uuuuuu">git.io/uuuuuu</a></div>
 
