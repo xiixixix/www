@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xdbxou357/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xdbxou357/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f6666">git.io/f6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/idd">x.co/idd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fgggg">git.io/fgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/gaa">x.co/gaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,17 +28,18 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12306881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抖音姓党%3FTikTok何去何从       >-009fcc?logoWidth=1" title="抖音姓党?TikTok何去何从  " alt="抖音姓党?TikTok何去何从  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12306435.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/40名中共驻美记者签证将到期 或面临驱逐  >-009fcc?logoWidth=1" title="40名中共驻美记者签证将到期 或面临驱逐  " alt="40名中共驻美记者签证将到期 或面临驱逐  "></a></p>
-<p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/3/n12304528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：为什么蓬佩奥说中共“不正常”？   >-009fcc?logoWidth=1" title="王友群：为什么蓬佩奥说中共“不正常”？  " alt="王友群：为什么蓬佩奥说中共“不正常”？  "></a></p>
-<p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12305198.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：美国为何要封杀TikTok？     >-009fcc?logoWidth=1" title="袁斌：美国为何要封杀TikTok？  " alt="袁斌：美国为何要封杀TikTok？  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12306563.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共学者宣扬强硬政策 分析：投习近平所好  >-009fcc?logoWidth=1" title="中共学者宣扬强硬政策 分析：投习近平所好  " alt="中共学者宣扬强硬政策 分析：投习近平所好  "></a></p>
+<p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12305959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美欲黄岩岛开战？闫丽梦再揭内幕       >-009fcc?logoWidth=1" title="美欲黄岩岛开战？闫丽梦再揭内幕  " alt="美欲黄岩岛开战？闫丽梦再揭内幕  "></a></p>
+<p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12306755.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：中共外交部自曝党媒被美国驱逐     >-009fcc?logoWidth=1" title="沈舟：中共外交部自曝党媒被美国驱逐  " alt="沈舟：中共外交部自曝党媒被美国驱逐  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/3/n12302964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高调宣传北斗导航 遭质疑窃全球数据   >-009fcc?logoWidth=1" title="中共高调宣传北斗导航 遭质疑窃全球数据  " alt="中共高调宣传北斗导航 遭质疑窃全球数据  "></a></p>
-<p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12306916.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/领馆一样被关 中美两种情境         >-009fcc?logoWidth=1" title="领馆一样被关 中美两种情境  " alt="领馆一样被关 中美两种情境  "></a></p>
+<p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/3/n12304528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：为什么蓬佩奥说中共“不正常”？   >-009fcc?logoWidth=1" title="王友群：为什么蓬佩奥说中共“不正常”？  " alt="王友群：为什么蓬佩奥说中共“不正常”？  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12306396.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/恐惧真相插播 中共设10万奖金“举报”   >-009fcc?logoWidth=1" title="恐惧真相插播 中共设10万奖金“举报”  " alt="恐惧真相插播 中共设10万奖金“举报”  "></a></p>
-<p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12305552.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/受瘟疫重创 义乌国贸商城生意现断崖式下降  >-009fcc?logoWidth=1" title="受瘟疫重创 义乌国贸商城生意现断崖式下降  " alt="受瘟疫重创 义乌国贸商城生意现断崖式下降  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12306781.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/辽宁葫芦岛银行现挤兑 行长再出事 利润腰斩 >-009fcc?logoWidth=1" title="辽宁葫芦岛银行现挤兑 行长再出事 利润腰斩  " alt="辽宁葫芦岛银行现挤兑 行长再出事 利润腰斩  "></a></p>
-<p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12306940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：中共是黑手党 我们该清除这个黑帮  >-009fcc?logoWidth=1" title="袁弓夷：中共是黑手党 我们该清除这个黑帮  " alt="袁弓夷：中共是黑手党 我们该清除这个黑帮  "></a></p>
-<p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/3/n12304238.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共依靠“内循环”？分析：经济将衰败    >-009fcc?logoWidth=1" title="中共依靠“内循环”？分析：经济将衰败  " alt="中共依靠“内循环”？分析：经济将衰败  "></a></p>
+<p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12305963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/萧美琴：战狼外交让世界领悟中共本质     >-009fcc?logoWidth=1" title="萧美琴：战狼外交让世界领悟中共本质  " alt="萧美琴：战狼外交让世界领悟中共本质  "></a></p>
+<p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12306347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆企业家发文吁开放网络 被全网删除    >-009fcc?logoWidth=1" title="大陆企业家发文吁开放网络 被全网删除  " alt="大陆企业家发文吁开放网络 被全网删除  "></a></p>
+<p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12306339.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平旧部蔡奇又强拆北京四合院 引民怨   >-009fcc?logoWidth=1" title="习近平旧部蔡奇又强拆北京四合院 引民怨  " alt="习近平旧部蔡奇又强拆北京四合院 引民怨  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12305552.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/受瘟疫重创 义乌国贸商城生意现断崖式下降  >-009fcc?logoWidth=1" title="受瘟疫重创 义乌国贸商城生意现断崖式下降  " alt="受瘟疫重创 义乌国贸商城生意现断崖式下降  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12305405.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不当使用个资 推特或面临2.5亿美元罚款  >-009fcc?logoWidth=1" title="不当使用个资 推特或面临2.5亿美元罚款  " alt="不当使用个资 推特或面临2.5亿美元罚款  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102910136.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共多省专项行动打压法轮功 煽动全民参与  >-009fcc?logoWidth=1" title="中共多省专项行动打压法轮功 煽动全民参与  " alt="中共多省专项行动打压法轮功 煽动全民参与  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/3/n12302287.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刘鹤公开羞辱李克强？ 央视视频火爆流传   >-009fcc?logoWidth=1" title="刘鹤公开羞辱李克强？ 央视视频火爆流传  " alt="刘鹤公开羞辱李克强？ 央视视频火爆流传  "></a></p>
@@ -490,8 +491,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xdbxou357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xdbxou357/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xdbxou357/www/blob/master/README.md?u#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/xdbxou357/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xdbxou357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xdbxou357/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xdbxou357/www/blob/master/README.md?k#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/xdbxou357/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/f6666">git.io/f6666</a></div>
+<div align="center">短网址: <a href="https://git.io/fgggg">git.io/fgggg</a></div>
 
