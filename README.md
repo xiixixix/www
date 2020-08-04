@@ -10,14 +10,14 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xdbxou357/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xdbxou357/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b8888">git.io/b8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j99">x.co/j99</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/u5555">git.io/u5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aia">x.co/aia</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102909843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官媒曝习近平扭脸斜视李克强 画面又秒删(视频>-009fcc?logoWidth=1" title="官媒曝习近平扭脸斜视李克强 画面又秒删(视频)  " alt="官媒曝习近平扭脸斜视李克强 画面又秒删(视频)  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102909185.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦：中共在研发更可怕病毒        >-009fcc?logoWidth=1" title="闫丽梦：中共在研发更可怕病毒  " alt="闫丽梦：中共在研发更可怕病毒  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102909138.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：美中在南海一旦开打，中共就完了    >-009fcc?logoWidth=1" title="专家：美中在南海一旦开打，中共就完了  " alt="专家：美中在南海一旦开打，中共就完了  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102908960.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议时间到了 开不开有三大信号    >-009fcc?logoWidth=1" title="北戴河会议时间到了 开不开有三大信号  " alt="北戴河会议时间到了 开不开有三大信号  "></a></p>
-<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/02/a102908838.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/当众被刘鹤羞辱 李克强或祭出终极手段    >-009fcc?logoWidth=1" title="当众被刘鹤羞辱 李克强或祭出终极手段  " alt="当众被刘鹤羞辱 李克强或祭出终极手段  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102909802.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉与华商权钱交易 前洛杉矶市议员否认34指控>-009fcc?logoWidth=1" title="涉与华商权钱交易 前洛杉矶市议员否认34指控  " alt="涉与华商权钱交易 前洛杉矶市议员否认34指控  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102909359.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国少女弄丢戒指 9个月后从田里“长回来” >-009fcc?logoWidth=1" title="美国少女弄丢戒指 9个月后从田里“长回来”  " alt="美国少女弄丢戒指 9个月后从田里“长回来”  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102908866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：孙力军转移病毒证据被澳洲截获 已交美>-009fcc?logoWidth=1" title="袁弓夷：孙力军转移病毒证据被澳洲截获 已交美国  " alt="袁弓夷：孙力军转移病毒证据被澳洲截获 已交美国  "></a></p>
@@ -38,6 +38,7 @@
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/2/n12301515.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/43岁派出所长跳河 生前嘱托孩子别当公务员 >-009fcc?logoWidth=1" title="43岁派出所长跳河 生前嘱托孩子别当公务员  " alt="43岁派出所长跳河 生前嘱托孩子别当公务员  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102909576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》美驻华使馆通告 8.3起变卖家俬>-009fcc?logoWidth=1" title="《石涛聚焦》美驻华使馆通告 8.3起变卖家俬——网友：美国人要跑？”  " alt="《石涛聚焦》美驻华使馆通告 8.3起变卖家俬——网友：美国人要跑？”  "></a></p>
+<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/02/a102908838.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/当众被刘鹤羞辱 李克强或祭出终极手段    >-009fcc?logoWidth=1" title="当众被刘鹤羞辱 李克强或祭出终极手段  " alt="当众被刘鹤羞辱 李克强或祭出终极手段  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102909400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/路透：川普给45天期限 让微软与TikTok>-009fcc?logoWidth=1" title="路透：川普给45天期限 让微软与TikTok磋商收购  " alt="路透：川普给45天期限 让微软与TikTok磋商收购  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/2/n12301683.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共核专家打脸胡锡进 批其恶意炒作涉核问题 >-009fcc?logoWidth=1" title="中共核专家打脸胡锡进 批其恶意炒作涉核问题  " alt="中共核专家打脸胡锡进 批其恶意炒作涉核问题  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/3/n12303947.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：跟伊朗合作违反制裁令 中共将受罚  >-009fcc?logoWidth=1" title="蓬佩奥：跟伊朗合作违反制裁令 中共将受罚  " alt="蓬佩奥：跟伊朗合作违反制裁令 中共将受罚  "></a></p>
@@ -482,8 +483,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xdbxou357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xdbxou357/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xdbxou357/www/blob/master/README.md?v#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/xdbxou357/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xdbxou357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xdbxou357/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xdbxou357/www/blob/master/README.md?u#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/xdbxou357/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/b8888">git.io/b8888</a></div>
+<div align="center">短网址: <a href="https://git.io/u5555">git.io/u5555</a></div>
 
