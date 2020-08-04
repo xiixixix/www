@@ -10,19 +10,19 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xdbxou357/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xdbxou357/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kjjjj">git.io/kjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aan">x.co/aan</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c7777">git.io/c7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3399">x.co/3399</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102910062.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/释何信号？美驻华大使馆清仓拍卖惹猜测    >-009fcc?logoWidth=1" title="释何信号？美驻华大使馆清仓拍卖惹猜测  " alt="释何信号？美驻华大使馆清仓拍卖惹猜测  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102909901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河秘会内幕：中共高层集体看禁片     >-009fcc?logoWidth=1" title="北戴河秘会内幕：中共高层集体看禁片  " alt="北戴河秘会内幕：中共高层集体看禁片  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102909898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反习派进攻讯号？ 中共党媒罕见批军演“浪费”>-009fcc?logoWidth=1" title="反习派进攻讯号？ 中共党媒罕见批军演“浪费”  " alt="反习派进攻讯号？ 中共党媒罕见批军演“浪费”  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102909843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官媒曝习近平扭脸斜视李克强 画面又秒删(视频>-009fcc?logoWidth=1" title="官媒曝习近平扭脸斜视李克强 画面又秒删(视频)  " alt="官媒曝习近平扭脸斜视李克强 画面又秒删(视频)  "></a></p>
-<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102909185.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦：中共在研发更可怕病毒        >-009fcc?logoWidth=1" title="闫丽梦：中共在研发更可怕病毒  " alt="闫丽梦：中共在研发更可怕病毒  "></a></p>
-<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102910062.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/释何信号？美驻华大使馆清仓拍卖惹猜测    >-009fcc?logoWidth=1" title="释何信号？美驻华大使馆清仓拍卖惹猜测  " alt="释何信号？美驻华大使馆清仓拍卖惹猜测  "></a></p>
-<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102910068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/密密麻麻“蚊子龙卷风”袭击俄罗斯堪察加半岛 >-009fcc?logoWidth=1" title="密密麻麻“蚊子龙卷风”袭击俄罗斯堪察加半岛  " alt="密密麻麻“蚊子龙卷风”袭击俄罗斯堪察加半岛  "></a></p>
+<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102910068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/密密麻麻“蚊子龙卷风” 袭击俄罗斯堪察加半岛>-009fcc?logoWidth=1" title="密密麻麻“蚊子龙卷风” 袭击俄罗斯堪察加半岛  " alt="密密麻麻“蚊子龙卷风” 袭击俄罗斯堪察加半岛  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102910053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多省公安专项行动打压法轮功 煽动全民参与  >-009fcc?logoWidth=1" title="多省公安专项行动打压法轮功 煽动全民参与  " alt="多省公安专项行动打压法轮功 煽动全民参与  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102909979.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆农民进京打工 讲述“刷脸”的故事    >-009fcc?logoWidth=1" title="大陆农民进京打工 讲述“刷脸”的故事  " alt="大陆农民进京打工 讲述“刷脸”的故事  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102909962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球疫情难控 谭德塞绝望：有效疫苗恐难问世 >-009fcc?logoWidth=1" title="全球疫情难控 谭德塞绝望：有效疫苗恐难问世  " alt="全球疫情难控 谭德塞绝望：有效疫苗恐难问世  "></a></p>
+<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102909986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩国暴雨酿灾 13死13失踪 逾千人流离失所>-009fcc?logoWidth=1" title="韩国暴雨酿灾 13死13失踪 逾千人流离失所  " alt="韩国暴雨酿灾 13死13失踪 逾千人流离失所  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/3/n12304528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：为什么蓬佩奥说中共“不正常”？   >-009fcc?logoWidth=1" title="王友群：为什么蓬佩奥说中共“不正常”？  " alt="王友群：为什么蓬佩奥说中共“不正常”？  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/3/n12302081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前中共军官：中共海空军不经打        >-009fcc?logoWidth=1" title="前中共军官：中共海空军不经打  " alt="前中共军官：中共海空军不经打  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xdbxou357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xdbxou357/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xdbxou357/www/blob/master/README.md?p#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/xdbxou357/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xdbxou357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xdbxou357/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xdbxou357/www/blob/master/README.md?w#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/xdbxou357/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kjjjj">git.io/kjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/c7777">git.io/c7777</a></div>
 
