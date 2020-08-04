@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xdbxou357/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xdbxou357/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/grrrr">git.io/grrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p4p">x.co/p4p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ptttt">git.io/ptttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/faa">x.co/faa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102909901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河秘会内幕：中共高层集体看禁片     >-009fcc?logoWidth=1" title="北戴河秘会内幕：中共高层集体看禁片  " alt="北戴河秘会内幕：中共高层集体看禁片  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102909898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反习派进攻讯号？ 中共党媒罕见批军演“浪费”>-009fcc?logoWidth=1" title="反习派进攻讯号？ 中共党媒罕见批军演“浪费”  " alt="反习派进攻讯号？ 中共党媒罕见批军演“浪费”  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102909843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官媒曝习近平扭脸斜视李克强 画面又秒删(视频>-009fcc?logoWidth=1" title="官媒曝习近平扭脸斜视李克强 画面又秒删(视频)  " alt="官媒曝习近平扭脸斜视李克强 画面又秒删(视频)  "></a></p>
+<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102910579.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党官妻揭丈夫出轨证据 7小时后身亡  警称“>-009fcc?logoWidth=1" title="党官妻揭丈夫出轨证据 7小时后身亡  警称“病死”  " alt="党官妻揭丈夫出轨证据 7小时后身亡  警称“病死”  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102910562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度禁用百度和微博 拟阻中国商品从第三国入境>-009fcc?logoWidth=1" title="印度禁用百度和微博 拟阻中国商品从第三国入境  " alt="印度禁用百度和微博 拟阻中国商品从第三国入境  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102910521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又一人跳船？香港医管局高管突然辞职     >-009fcc?logoWidth=1" title="又一人跳船？香港医管局高管突然辞职  " alt="又一人跳船？香港医管局高管突然辞职  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102910555.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭中共“国防七子”美中科研合作高风险    >-009fcc?logoWidth=1" title="揭中共“国防七子”美中科研合作高风险  " alt="揭中共“国防七子”美中科研合作高风险  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102910550.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“黑格比”袭击温州 破坏力惊人 数十万人受灾>-009fcc?logoWidth=1" title="“黑格比”袭击温州 破坏力惊人 数十万人受灾  " alt="“黑格比”袭击温州 破坏力惊人 数十万人受灾  "></a></p>
-<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102910565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/索马利兰拟与台湾建交 中共大使求见总统被拒 >-009fcc?logoWidth=1" title="索马利兰拟与台湾建交 中共大使求见总统被拒  " alt="索马利兰拟与台湾建交 中共大使求见总统被拒  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12306881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抖音姓党%3FTikTok何去何从       >-009fcc?logoWidth=1" title="抖音姓党?TikTok何去何从  " alt="抖音姓党?TikTok何去何从  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12305959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美欲黄岩岛开战？闫丽梦再揭内幕       >-009fcc?logoWidth=1" title="美欲黄岩岛开战？闫丽梦再揭内幕  " alt="美欲黄岩岛开战？闫丽梦再揭内幕  "></a></p>
@@ -491,8 +491,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xdbxou357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xdbxou357/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xdbxou357/www/blob/master/README.md?o#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/xdbxou357/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xdbxou357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xdbxou357/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xdbxou357/www/blob/master/README.md?x#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/xdbxou357/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/grrrr">git.io/grrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/ptttt">git.io/ptttt</a></div>
 
