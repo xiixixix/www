@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xdbxou357/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xdbxou357/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nrrrr">git.io/nrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aad">x.co/aad</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mtttt">git.io/mtttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp7">x.co/pp7</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,10 +20,11 @@
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102909901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河秘会内幕：中共高层集体看禁片     >-009fcc?logoWidth=1" title="北戴河秘会内幕：中共高层集体看禁片  " alt="北戴河秘会内幕：中共高层集体看禁片  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102909898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反习派进攻讯号？ 中共党媒罕见批军演“浪费”>-009fcc?logoWidth=1" title="反习派进攻讯号？ 中共党媒罕见批军演“浪费”  " alt="反习派进攻讯号？ 中共党媒罕见批军演“浪费”  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102909843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官媒曝习近平扭脸斜视李克强 画面又秒删(视频>-009fcc?logoWidth=1" title="官媒曝习近平扭脸斜视李克强 画面又秒删(视频)  " alt="官媒曝习近平扭脸斜视李克强 画面又秒删(视频)  "></a></p>
-<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102910395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国发警告：中共用恶意软件Taidoor网攻>-009fcc?logoWidth=1" title="美国发警告：中共用恶意软件Taidoor网攻  " alt="美国发警告：中共用恶意软件Taidoor网攻  "></a></p>
-<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102910349.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑格比台风袭浙江撤离40万 韩国暴雨14死 >-009fcc?logoWidth=1" title="黑格比台风袭浙江撤离40万 韩国暴雨14死  " alt="黑格比台风袭浙江撤离40万 韩国暴雨14死  "></a></p>
-<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102910312.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆7检测人员到“华大基因”香港区议员到场抗议>-009fcc?logoWidth=1" title="陆7检测人员到“华大基因”香港区议员到场抗议  " alt="陆7检测人员到“华大基因”香港区议员到场抗议  "></a></p>
-<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102910279.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共武吓阻索马利兰建交台湾？学者：被反围堵 >-009fcc?logoWidth=1" title="中共武吓阻索马利兰建交台湾？学者：被反围堵  " alt="中共武吓阻索马利兰建交台湾？学者：被反围堵  "></a></p>
+<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102910412.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三星的中国电脑生产线停产 年内撤走显示器厂 >-009fcc?logoWidth=1" title="三星的中国电脑生产线停产 年内撤走显示器厂  " alt="三星的中国电脑生产线停产 年内撤走显示器厂  "></a></p>
+<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102910365.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/借空壳公司巨额赞助美国名校 中共用意何在？ >-009fcc?logoWidth=1" title="借空壳公司巨额赞助美国名校 中共用意何在？  " alt="借空壳公司巨额赞助美国名校 中共用意何在？  "></a></p>
+<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102910322.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/批美禁TikTok外交部翻车 党媒挺禁Gma>-009fcc?logoWidth=1" title="批美禁TikTok外交部翻车 党媒挺禁Gmail旧文热传  " alt="批美禁TikTok外交部翻车 党媒挺禁Gmail旧文热传  "></a></p>
+<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102910407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南加苹果山火连烧4天 研判车辆废气引燃   >-009fcc?logoWidth=1" title="南加苹果山火连烧4天 研判车辆废气引燃  " alt="南加苹果山火连烧4天 研判车辆废气引燃  "></a></p>
+<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102910397.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/转第三方经营 Zoom将停售中国用户软件及升>-009fcc?logoWidth=1" title="转第三方经营 Zoom将停售中国用户软件及升级  " alt="转第三方经营 Zoom将停售中国用户软件及升级  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/3/n12304528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：为什么蓬佩奥说中共“不正常”？   >-009fcc?logoWidth=1" title="王友群：为什么蓬佩奥说中共“不正常”？  " alt="王友群：为什么蓬佩奥说中共“不正常”？  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/3/n12304472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/借空壳公司巨额赞助美国名校 中共用意何在？ >-009fcc?logoWidth=1" title="借空壳公司巨额赞助美国名校 中共用意何在？  " alt="借空壳公司巨额赞助美国名校 中共用意何在？  "></a></p>
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xdbxou357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xdbxou357/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xdbxou357/www/blob/master/README.md?t#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/xdbxou357/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xdbxou357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xdbxou357/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xdbxou357/www/blob/master/README.md?n#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/xdbxou357/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/nrrrr">git.io/nrrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/mtttt">git.io/mtttt</a></div>
 
