@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xdbxou357/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xdbxou357/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jjjjjjjj">git.io/jjjjjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppa">x.co/ppa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hffff">git.io/hffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a5a">x.co/a5a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,9 +20,9 @@
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102909138.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：美中在南海一旦开打，中共就完了    >-009fcc?logoWidth=1" title="专家：美中在南海一旦开打，中共就完了  " alt="专家：美中在南海一旦开打，中共就完了  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102909896.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卷入收贿丑闻 西班牙前国王流亡海外     >-009fcc?logoWidth=1" title="卷入收贿丑闻 西班牙前国王流亡海外  " alt="卷入收贿丑闻 西班牙前国王流亡海外  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102909864.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谁剥夺了美国人的真正货币？         >-009fcc?logoWidth=1" title="谁剥夺了美国人的真正货币？  " alt="谁剥夺了美国人的真正货币？  "></a></p>
+<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102909837.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/旗下遭美制裁 大陆华大基因掌港人DNA？  >-009fcc?logoWidth=1" title="旗下遭美制裁 大陆华大基因掌港人DNA？  " alt="旗下遭美制裁 大陆华大基因掌港人DNA？  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102909800.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/八一中共建军日 洛民运人士中领馆抗议    >-009fcc?logoWidth=1" title="八一中共建军日 洛民运人士中领馆抗议  " alt="八一中共建军日 洛民运人士中领馆抗议  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102909802.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉与华商权钱交易 前洛杉矶市议员否认34指控>-009fcc?logoWidth=1" title="涉与华商权钱交易 前洛杉矶市议员否认34指控  " alt="涉与华商权钱交易 前洛杉矶市议员否认34指控  "></a></p>
-<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102909359.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国少女弄丢戒指 9个月后从田里“长回来” >-009fcc?logoWidth=1" title="美国少女弄丢戒指 9个月后从田里“长回来”  " alt="美国少女弄丢戒指 9个月后从田里“长回来”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/3/n12302081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前中共军官：中共海空军不经打        >-009fcc?logoWidth=1" title="前中共军官：中共海空军不经打  " alt="前中共军官：中共海空军不经打  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/3/n12304472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/借空壳公司巨额赞助美国名校 中共用意何在？ >-009fcc?logoWidth=1" title="借空壳公司巨额赞助美国名校 中共用意何在？  " alt="借空壳公司巨额赞助美国名校 中共用意何在？  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xdbxou357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xdbxou357/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xdbxou357/www/blob/master/README.md?m#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/xdbxou357/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xdbxou357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xdbxou357/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xdbxou357/www/blob/master/README.md?e#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/xdbxou357/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jjjjjjjj">git.io/jjjjjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/hffff">git.io/hffff</a></div>
 
