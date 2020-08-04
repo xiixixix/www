@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xdbxou357/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xdbxou357/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qyyyy">git.io/qyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9996">x.co/9996</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/xtttt">git.io/xtttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9pp">x.co/9pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -37,15 +37,17 @@
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12304844.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前海军高官透露中共军队底牌         >-009fcc?logoWidth=1" title="前海军高官透露中共军队底牌  " alt="前海军高官透露中共军队底牌  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12304815.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析师：TikTok出售案或影响到微信   >-009fcc?logoWidth=1" title="分析师：TikTok出售案或影响到微信  " alt="分析师：TikTok出售案或影响到微信  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/3/n12303554.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谁剥夺了美国人的真正货币？         >-009fcc?logoWidth=1" title="谁剥夺了美国人的真正货币？  " alt="谁剥夺了美国人的真正货币？  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102908866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：孙力军转移病毒证据被澳洲截获 已交美>-009fcc?logoWidth=1" title="袁弓夷：孙力军转移病毒证据被澳洲截获 已交美国  " alt="袁弓夷：孙力军转移病毒证据被澳洲截获 已交美国  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102909138.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：美中在南海一旦开打，中共就完了    >-009fcc?logoWidth=1" title="专家：美中在南海一旦开打，中共就完了  " alt="专家：美中在南海一旦开打，中共就完了  "></a></p>
+<p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/3/n12304143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/TikTok命运？蓬佩奥：川普受够了    >-009fcc?logoWidth=1" title="TikTok命运？蓬佩奥：川普受够了  " alt="TikTok命运？蓬佩奥：川普受够了  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102909576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》美驻华使馆通告 8.3起变卖家俬>-009fcc?logoWidth=1" title="《石涛聚焦》美驻华使馆通告 8.3起变卖家俬——网友：美国人要跑？”  " alt="《石涛聚焦》美驻华使馆通告 8.3起变卖家俬——网友：美国人要跑？”  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/02/a102908838.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/当众被刘鹤羞辱 李克强或祭出终极手段    >-009fcc?logoWidth=1" title="当众被刘鹤羞辱 李克强或祭出终极手段  " alt="当众被刘鹤羞辱 李克强或祭出终极手段  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/3/n12304363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连湾封区买不到菜 民怨沸腾        >-009fcc?logoWidth=1" title="大连湾封区买不到菜 民怨沸腾  " alt="大连湾封区买不到菜 民怨沸腾  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/3/n12303947.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：跟伊朗合作违反制裁令 中共将受罚  >-009fcc?logoWidth=1" title="蓬佩奥：跟伊朗合作违反制裁令 中共将受罚  " alt="蓬佩奥：跟伊朗合作违反制裁令 中共将受罚  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102909194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/禅师泄杨家将天机：金沙滩双龙会 七子去六子回>-009fcc?logoWidth=1" title="禅师泄杨家将天机：金沙滩双龙会 七子去六子回  " alt="禅师泄杨家将天机：金沙滩双龙会 七子去六子回  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102909550.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中华祖脉青海玉树罕见六月飞雪 有何冤情？  >-009fcc?logoWidth=1" title="中华祖脉青海玉树罕见六月飞雪 有何冤情？  " alt="中华祖脉青海玉树罕见六月飞雪 有何冤情？  "></a></p>
-<p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/3/n12303881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆访民进京 火车上被暴力拦截       >-009fcc?logoWidth=1" title="重庆访民进京 火车上被暴力拦截  " alt="重庆访民进京 火车上被暴力拦截  "></a></p>
+<p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/3/n12304022.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆奶粉泡出铁砂 厂家称“对人体无害”遭批 >-009fcc?logoWidth=1" title="大陆奶粉泡出铁砂 厂家称“对人体无害”遭批  " alt="大陆奶粉泡出铁砂 厂家称“对人体无害”遭批  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/3/n12303847.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/银行乱象频现 江苏不识字老太的存单变保单  >-009fcc?logoWidth=1" title="银行乱象频现 江苏不识字老太的存单变保单  " alt="银行乱象频现 江苏不识字老太的存单变保单  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102909553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习李斗白热化 逆淘汰加内循环 人性下架？  >-009fcc?logoWidth=1" title="习李斗白热化 逆淘汰加内循环 人性下架？  " alt="习李斗白热化 逆淘汰加内循环 人性下架？  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/02/a102908581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/虾头能吃吗？虾皮真的能补钙吗？现在知道还不晚>-009fcc?logoWidth=1" title="虾头能吃吗？虾皮真的能补钙吗？现在知道还不晚  " alt="虾头能吃吗？虾皮真的能补钙吗？现在知道还不晚  "></a></p>
@@ -486,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xdbxou357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xdbxou357/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xdbxou357/www/blob/master/README.md?x#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/xdbxou357/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xdbxou357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xdbxou357/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xdbxou357/www/blob/master/README.md?c#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/xdbxou357/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qyyyy">git.io/qyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/xtttt">git.io/xtttt</a></div>
 
