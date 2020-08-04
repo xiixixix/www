@@ -10,14 +10,14 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xdbxou357/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xdbxou357/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nrrrr">git.io/nrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aya">x.co/aya</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rjjjj">git.io/rjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/caa">x.co/caa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102909185.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦：中共在研发更可怕病毒        >-009fcc?logoWidth=1" title="闫丽梦：中共在研发更可怕病毒  " alt="闫丽梦：中共在研发更可怕病毒  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102909138.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：美中在南海一旦开打，中共就完了    >-009fcc?logoWidth=1" title="专家：美中在南海一旦开打，中共就完了  " alt="专家：美中在南海一旦开打，中共就完了  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102908960.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议时间到了 开不开有三大信号    >-009fcc?logoWidth=1" title="北戴河会议时间到了 开不开有三大信号  " alt="北戴河会议时间到了 开不开有三大信号  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/02/a102908838.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/当众被刘鹤羞辱 李克强或祭出终极手段    >-009fcc?logoWidth=1" title="当众被刘鹤羞辱 李克强或祭出终极手段  " alt="当众被刘鹤羞辱 李克强或祭出终极手段  "></a></p>
-<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/02/a102908687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中方妥协放弃TikTok所有股权 纳瓦罗:2>-009fcc?logoWidth=1" title="中方妥协放弃TikTok所有股权 纳瓦罗:2天内或封杀  " alt="中方妥协放弃TikTok所有股权 纳瓦罗:2天内或封杀  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102908866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：孙力军转移病毒证据被澳洲截获 已交美>-009fcc?logoWidth=1" title="袁弓夷：孙力军转移病毒证据被澳洲截获 已交美国  " alt="袁弓夷：孙力军转移病毒证据被澳洲截获 已交美国  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102909725.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热带风暴扑向纽约地区 霍博肯防洪禁行车   >-009fcc?logoWidth=1" title="热带风暴扑向纽约地区 霍博肯防洪禁行车  " alt="热带风暴扑向纽约地区 霍博肯防洪禁行车  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102909648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共核专家批胡锡进危害国家安全 被指“演双簧>-009fcc?logoWidth=1" title="中共核专家批胡锡进危害国家安全 被指“演双簧”  " alt="中共核专家批胡锡进危害国家安全 被指“演双簧”  "></a></p>
@@ -40,7 +40,6 @@
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/02/a102908813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南婴儿救命药标价70万刷屏  网友：澳洲只>-009fcc?logoWidth=1" title="湖南婴儿救命药标价70万刷屏  网友：澳洲只需41元  " alt="湖南婴儿救命药标价70万刷屏  网友：澳洲只需41元  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102908919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微信也要禁？川普政府将打击一大批中国软件  >-009fcc?logoWidth=1" title="微信也要禁？川普政府将打击一大批中国软件  " alt="微信也要禁？川普政府将打击一大批中国软件  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102909146.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战争逼近？全国准备防空洞；习近平忧北戴河几百>-009fcc?logoWidth=1" title="战争逼近？全国准备防空洞；习近平忧北戴河几百元老聚集政变  " alt="战争逼近？全国准备防空洞；习近平忧北戴河几百元老聚集政变  "></a></p>
-<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102909185.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦：中共在研发更可怕病毒        >-009fcc?logoWidth=1" title="闫丽梦：中共在研发更可怕病毒  " alt="闫丽梦：中共在研发更可怕病毒  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/2/n12301683.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共核专家打脸胡锡进 批其恶意炒作涉核问题 >-009fcc?logoWidth=1" title="中共核专家打脸胡锡进 批其恶意炒作涉核问题  " alt="中共核专家打脸胡锡进 批其恶意炒作涉核问题  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/3/n12303947.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：跟伊朗合作违反制裁令 中共将受罚  >-009fcc?logoWidth=1" title="蓬佩奥：跟伊朗合作违反制裁令 中共将受罚  " alt="蓬佩奥：跟伊朗合作违反制裁令 中共将受罚  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/03/a102908954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国要禁微信和抖音 中共为何也调查微信？  >-009fcc?logoWidth=1" title="美国要禁微信和抖音 中共为何也调查微信？  " alt="美国要禁微信和抖音 中共为何也调查微信？  "></a></p>
@@ -485,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xdbxou357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xdbxou357/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xdbxou357/www/blob/master/README.md?w#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/xdbxou357/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xdbxou357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xdbxou357/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xdbxou357/www/blob/master/README.md?m#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/xdbxou357/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/nrrrr">git.io/nrrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/rjjjj">git.io/rjjjj</a></div>
 
