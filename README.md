@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xdbxou357/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xdbxou357/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rzzzz">git.io/rzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3222">x.co/3222</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gssss">git.io/gssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppv">x.co/ppv</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,19 +20,19 @@
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102909901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河秘会内幕：中共高层集体看禁片     >-009fcc?logoWidth=1" title="北戴河秘会内幕：中共高层集体看禁片  " alt="北戴河秘会内幕：中共高层集体看禁片  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102909898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反习派进攻讯号？ 中共党媒罕见批军演“浪费”>-009fcc?logoWidth=1" title="反习派进攻讯号？ 中共党媒罕见批军演“浪费”  " alt="反习派进攻讯号？ 中共党媒罕见批军演“浪费”  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102909843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官媒曝习近平扭脸斜视李克强 画面又秒删(视频>-009fcc?logoWidth=1" title="官媒曝习近平扭脸斜视李克强 画面又秒删(视频)  " alt="官媒曝习近平扭脸斜视李克强 画面又秒删(视频)  "></a></p>
+<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102910521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又一人跳船？香港医管局高管突然辞职     >-009fcc?logoWidth=1" title="又一人跳船？香港医管局高管突然辞职  " alt="又一人跳船？香港医管局高管突然辞职  "></a></p>
+<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102910555.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭中共“国防七子”美中科研合作高风险    >-009fcc?logoWidth=1" title="揭中共“国防七子”美中科研合作高风险  " alt="揭中共“国防七子”美中科研合作高风险  "></a></p>
+<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102910550.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“黑格比”袭击温州 破坏力惊人 数十万人受灾>-009fcc?logoWidth=1" title="“黑格比”袭击温州 破坏力惊人 数十万人受灾  " alt="“黑格比”袭击温州 破坏力惊人 数十万人受灾  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102910565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/索马利兰拟与台湾建交 中共大使求见总统被拒 >-009fcc?logoWidth=1" title="索马利兰拟与台湾建交 中共大使求见总统被拒  " alt="索马利兰拟与台湾建交 中共大使求见总统被拒  "></a></p>
 <p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102910512.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒自曝四川国粮监守自盗 粮库空仓一年无人过>-009fcc?logoWidth=1" title="党媒自曝四川国粮监守自盗 粮库空仓一年无人过问  " alt="党媒自曝四川国粮监守自盗 粮库空仓一年无人过问  "></a></p>
-<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102910509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下瑞典不封城  新增病例不升反降    >-009fcc?logoWidth=1" title="疫情下瑞典不封城  新增病例不升反降  " alt="疫情下瑞典不封城  新增病例不升反降  "></a></p>
-<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102910501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普:TikTok必须9月卖出 纳瓦罗:微软>-009fcc?logoWidth=1" title="川普:TikTok必须9月卖出 纳瓦罗:微软买不太合适  " alt="川普:TikTok必须9月卖出 纳瓦罗:微软买不太合适  "></a></p>
-<p><a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/2020/08/04/a102910518.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国疫情逐步趋缓 日本或再入“紧急状态”  >-009fcc?logoWidth=1" title="美国疫情逐步趋缓 日本或再入“紧急状态”  " alt="美国疫情逐步趋缓 日本或再入“紧急状态”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12306881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抖音姓党%3FTikTok何去何从       >-009fcc?logoWidth=1" title="抖音姓党?TikTok何去何从  " alt="抖音姓党?TikTok何去何从  "></a></p>
-<p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12306435.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/40名中共驻美记者签证将到期 或面临驱逐  >-009fcc?logoWidth=1" title="40名中共驻美记者签证将到期 或面临驱逐  " alt="40名中共驻美记者签证将到期 或面临驱逐  "></a></p>
-<p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12306563.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共学者宣扬强硬政策 分析：投习近平所好  >-009fcc?logoWidth=1" title="中共学者宣扬强硬政策 分析：投习近平所好  " alt="中共学者宣扬强硬政策 分析：投习近平所好  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12305959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美欲黄岩岛开战？闫丽梦再揭内幕       >-009fcc?logoWidth=1" title="美欲黄岩岛开战？闫丽梦再揭内幕  " alt="美欲黄岩岛开战？闫丽梦再揭内幕  "></a></p>
+<p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12306563.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共学者宣扬强硬政策 分析：投习近平所好  >-009fcc?logoWidth=1" title="中共学者宣扬强硬政策 分析：投习近平所好  " alt="中共学者宣扬强硬政策 分析：投习近平所好  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12306755.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：中共外交部自曝党媒被美国驱逐     >-009fcc?logoWidth=1" title="沈舟：中共外交部自曝党媒被美国驱逐  " alt="沈舟：中共外交部自曝党媒被美国驱逐  "></a></p>
-<p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/3/n12302964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高调宣传北斗导航 遭质疑窃全球数据   >-009fcc?logoWidth=1" title="中共高调宣传北斗导航 遭质疑窃全球数据  " alt="中共高调宣传北斗导航 遭质疑窃全球数据  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/3/n12304528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：为什么蓬佩奥说中共“不正常”？   >-009fcc?logoWidth=1" title="王友群：为什么蓬佩奥说中共“不正常”？  " alt="王友群：为什么蓬佩奥说中共“不正常”？  "></a></p>
+<p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12306435.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/40名中共驻美记者签证将到期 或面临驱逐  >-009fcc?logoWidth=1" title="40名中共驻美记者签证将到期 或面临驱逐  " alt="40名中共驻美记者签证将到期 或面临驱逐  "></a></p>
+<p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/3/n12302964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高调宣传北斗导航 遭质疑窃全球数据   >-009fcc?logoWidth=1" title="中共高调宣传北斗导航 遭质疑窃全球数据  " alt="中共高调宣传北斗导航 遭质疑窃全球数据  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12306396.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/恐惧真相插播 中共设10万奖金“举报”   >-009fcc?logoWidth=1" title="恐惧真相插播 中共设10万奖金“举报”  " alt="恐惧真相插播 中共设10万奖金“举报”  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12306781.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/辽宁葫芦岛银行现挤兑 行长再出事 利润腰斩 >-009fcc?logoWidth=1" title="辽宁葫芦岛银行现挤兑 行长再出事 利润腰斩  " alt="辽宁葫芦岛银行现挤兑 行长再出事 利润腰斩  "></a></p>
 <p><a href="https://github.com/xdbxou357/djy/blob/master/gb/20/8/4/n12305963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/萧美琴：战狼外交让世界领悟中共本质     >-009fcc?logoWidth=1" title="萧美琴：战狼外交让世界领悟中共本质  " alt="萧美琴：战狼外交让世界领悟中共本质  "></a></p>
@@ -491,8 +491,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xdbxou357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xdbxou357/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xdbxou357/www/blob/master/README.md?q#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/xdbxou357/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xdbxou357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xdbxou357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xdbxou357/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xdbxou357/www/blob/master/README.md?t#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/xdbxou357/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rzzzz">git.io/rzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/gssss">git.io/gssss</a></div>
 
