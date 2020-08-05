@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qlkxxl3651/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qlkxxl3651/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyy">git.io/yyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p6p">x.co/p6p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/r3333">git.io/r3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/eaa">x.co/eaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -30,26 +30,24 @@
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12305959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美欲黄岩岛开战？闫丽梦再揭内幕       >-009fcc?logoWidth=1" title="美欲黄岩岛开战？闫丽梦再揭内幕  " alt="美欲黄岩岛开战？闫丽梦再揭内幕  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12306563.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共学者宣扬强硬政策 分析：投习近平所好  >-009fcc?logoWidth=1" title="中共学者宣扬强硬政策 分析：投习近平所好  " alt="中共学者宣扬强硬政策 分析：投习近平所好  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12306755.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：中共外交部自曝党媒被美国驱逐     >-009fcc?logoWidth=1" title="沈舟：中共外交部自曝党媒被美国驱逐  " alt="沈舟：中共外交部自曝党媒被美国驱逐  "></a></p>
-<p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/3/n12304528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：为什么蓬佩奥说中共“不正常”？   >-009fcc?logoWidth=1" title="王友群：为什么蓬佩奥说中共“不正常”？  " alt="王友群：为什么蓬佩奥说中共“不正常”？  "></a></p>
+<p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12307155.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共吹嘘北斗系统 专家分析其军事太空企图  >-009fcc?logoWidth=1" title="中共吹嘘北斗系统 专家分析其军事太空企图  " alt="中共吹嘘北斗系统 专家分析其军事太空企图  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12306435.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/40名中共驻美记者签证将到期 或面临驱逐  >-009fcc?logoWidth=1" title="40名中共驻美记者签证将到期 或面临驱逐  " alt="40名中共驻美记者签证将到期 或面临驱逐  "></a></p>
-<p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/3/n12302964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高调宣传北斗导航 遭质疑窃全球数据   >-009fcc?logoWidth=1" title="中共高调宣传北斗导航 遭质疑窃全球数据  " alt="中共高调宣传北斗导航 遭质疑窃全球数据  "></a></p>
+<p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12306603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普为何打击TikTok 专家披露深层原因 >-009fcc?logoWidth=1" title="川普为何打击TikTok 专家披露深层原因  " alt="川普为何打击TikTok 专家披露深层原因  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12306396.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/恐惧真相插播 中共设10万奖金“举报”   >-009fcc?logoWidth=1" title="恐惧真相插播 中共设10万奖金“举报”  " alt="恐惧真相插播 中共设10万奖金“举报”  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12306781.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/辽宁葫芦岛银行现挤兑 行长再出事 利润腰斩 >-009fcc?logoWidth=1" title="辽宁葫芦岛银行现挤兑 行长再出事 利润腰斩  " alt="辽宁葫芦岛银行现挤兑 行长再出事 利润腰斩  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12305963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/萧美琴：战狼外交让世界领悟中共本质     >-009fcc?logoWidth=1" title="萧美琴：战狼外交让世界领悟中共本质  " alt="萧美琴：战狼外交让世界领悟中共本质  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12306347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆企业家发文吁开放网络 被全网删除    >-009fcc?logoWidth=1" title="大陆企业家发文吁开放网络 被全网删除  " alt="大陆企业家发文吁开放网络 被全网删除  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12306339.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平旧部蔡奇又强拆北京四合院 引民怨   >-009fcc?logoWidth=1" title="习近平旧部蔡奇又强拆北京四合院 引民怨  " alt="习近平旧部蔡奇又强拆北京四合院 引民怨  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102910565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/索马利兰拟与台湾建交 中共大使求见总统被拒 >-009fcc?logoWidth=1" title="索马利兰拟与台湾建交 中共大使求见总统被拒  " alt="索马利兰拟与台湾建交 中共大使求见总统被拒  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12306339.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平旧部蔡奇干又强拆北京四合院 引民怨  >-009fcc?logoWidth=1" title="习近平旧部蔡奇干又强拆北京四合院 引民怨  " alt="习近平旧部蔡奇干又强拆北京四合院 引民怨  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102910521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又一人跳船？香港医管局高管突然辞职     >-009fcc?logoWidth=1" title="又一人跳船？香港医管局高管突然辞职  " alt="又一人跳船？香港医管局高管突然辞职  "></a></p>
-<p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102909931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逆向工程发现抖音惊人黑幕！微软收购TikTo>-009fcc?logoWidth=1" title="逆向工程发现抖音惊人黑幕！微软收购TikTok靠谱吗？川普为何不直接禁止？  " alt="逆向工程发现抖音惊人黑幕！微软收购TikTok靠谱吗？川普为何不直接禁止？  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12306655.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎巴嫩首都爆炸 蘑菇云腾起 数千死伤    >-009fcc?logoWidth=1" title="黎巴嫩首都爆炸 蘑菇云腾起 数千死伤  " alt="黎巴嫩首都爆炸 蘑菇云腾起 数千死伤  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12306916.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/领馆一样被关 中美两种情境         >-009fcc?logoWidth=1" title="领馆一样被关 中美两种情境  " alt="领馆一样被关 中美两种情境  "></a></p>
-<p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102910501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普:TikTok必须9月卖出 纳瓦罗:微软>-009fcc?logoWidth=1" title="川普:TikTok必须9月卖出 纳瓦罗:微软买不太合适  " alt="川普:TikTok必须9月卖出 纳瓦罗:微软买不太合适  "></a></p>
+<p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102910557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微软收购抖音风险巨大 美国拒绝所有中共记者签>-009fcc?logoWidth=1" title="微软收购抖音风险巨大 美国拒绝所有中共记者签证申请  " alt="微软收购抖音风险巨大 美国拒绝所有中共记者签证申请  "></a></p>
+<p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102909931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逆向工程发现抖音惊人黑幕！微软收购TikTo>-009fcc?logoWidth=1" title="逆向工程发现抖音惊人黑幕！微软收购TikTok靠谱吗？川普为何不直接禁止？  " alt="逆向工程发现抖音惊人黑幕！微软收购TikTok靠谱吗？川普为何不直接禁止？  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12306940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：中共是黑手党 我们该清除这个黑帮  >-009fcc?logoWidth=1" title="袁弓夷：中共是黑手党 我们该清除这个黑帮  " alt="袁弓夷：中共是黑手党 我们该清除这个黑帮  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12306639.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/细思极恐！大陆手机记录日常对话       >-009fcc?logoWidth=1" title="细思极恐！大陆手机记录日常对话  " alt="细思极恐！大陆手机记录日常对话  "></a></p>
-<p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102910557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微软收购抖音风险巨大 美国拒绝所有中共记者签>-009fcc?logoWidth=1" title="微软收购抖音风险巨大 美国拒绝所有中共记者签证申请  " alt="微软收购抖音风险巨大 美国拒绝所有中共记者签证申请  "></a></p>
-<p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102910296.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与中共暧昧 微软想买抖音？         >-009fcc?logoWidth=1" title="与中共暧昧 微软想买抖音？  " alt="与中共暧昧 微软想买抖音？  "></a></p>
+<p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102910501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普:TikTok必须9月卖出 纳瓦罗:微软>-009fcc?logoWidth=1" title="川普:TikTok必须9月卖出 纳瓦罗:微软买不太合适  " alt="川普:TikTok必须9月卖出 纳瓦罗:微软买不太合适  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qlkxxl3651/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qlkxxl3651/www/blob/master/README.md?g#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/qlkxxl3651/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qlkxxl3651/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qlkxxl3651/www/blob/master/README.md?c#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/qlkxxl3651/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/yyyyy">git.io/yyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/r3333">git.io/r3333</a></div>
 
