@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qlkxxl3651/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qlkxxl3651/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/deeee">git.io/deeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2444">x.co/2444</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nnnnnn">git.io/nnnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u33">x.co/u33</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -35,20 +35,19 @@
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12306603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普为何打击TikTok 专家披露深层原因 >-009fcc?logoWidth=1" title="川普为何打击TikTok 专家披露深层原因  " alt="川普为何打击TikTok 专家披露深层原因  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12306396.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/恐惧真相插播 中共设10万奖金“举报”   >-009fcc?logoWidth=1" title="恐惧真相插播 中共设10万奖金“举报”  " alt="恐惧真相插播 中共设10万奖金“举报”  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12306781.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/辽宁葫芦岛银行现挤兑 行长再出事 利润腰斩 >-009fcc?logoWidth=1" title="辽宁葫芦岛银行现挤兑 行长再出事 利润腰斩  " alt="辽宁葫芦岛银行现挤兑 行长再出事 利润腰斩  "></a></p>
+<p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/5/n12307604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抖音和“字节跳动”都姓党          >-009fcc?logoWidth=1" title="抖音和“字节跳动”都姓党  " alt="抖音和“字节跳动”都姓党  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12306667.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒吹三峡大坝削峰能力 专家揭背后猫腻   >-009fcc?logoWidth=1" title="党媒吹三峡大坝削峰能力 专家揭背后猫腻  " alt="党媒吹三峡大坝削峰能力 专家揭背后猫腻  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12305963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/萧美琴：战狼外交让世界领悟中共本质     >-009fcc?logoWidth=1" title="萧美琴：战狼外交让世界领悟中共本质  " alt="萧美琴：战狼外交让世界领悟中共本质  "></a></p>
-<p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12307254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共灭亡前的最后疯狂        >-009fcc?logoWidth=1" title="王友群：中共灭亡前的最后疯狂  " alt="王友群：中共灭亡前的最后疯狂  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102910512.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒自曝四川国粮监守自盗 粮库空仓一年无人过>-009fcc?logoWidth=1" title="党媒自曝四川国粮监守自盗 粮库空仓一年无人过问  " alt="党媒自曝四川国粮监守自盗 粮库空仓一年无人过问  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12306347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆企业家发文吁开放网络 被全网删除    >-009fcc?logoWidth=1" title="大陆企业家发文吁开放网络 被全网删除  " alt="大陆企业家发文吁开放网络 被全网删除  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12306339.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平旧部蔡奇干又强拆北京四合院 引民怨  >-009fcc?logoWidth=1" title="习近平旧部蔡奇干又强拆北京四合院 引民怨  " alt="习近平旧部蔡奇干又强拆北京四合院 引民怨  "></a></p>
-<p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102909931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逆向工程发现抖音惊人黑幕！微软收购TikTo>-009fcc?logoWidth=1" title="逆向工程发现抖音惊人黑幕！微软收购TikTok靠谱吗？川普为何不直接禁止？  " alt="逆向工程发现抖音惊人黑幕！微软收购TikTok靠谱吗？川普为何不直接禁止？  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12306655.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎巴嫩首都爆炸 蘑菇云腾起 数千死伤    >-009fcc?logoWidth=1" title="黎巴嫩首都爆炸 蘑菇云腾起 数千死伤  " alt="黎巴嫩首都爆炸 蘑菇云腾起 数千死伤  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12306916.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/领馆一样被关 中美两种情境         >-009fcc?logoWidth=1" title="领馆一样被关 中美两种情境  " alt="领馆一样被关 中美两种情境  "></a></p>
-<p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102909843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官媒曝习近平扭脸斜视李克强 画面又秒删(视频>-009fcc?logoWidth=1" title="官媒曝习近平扭脸斜视李克强 画面又秒删(视频)  " alt="官媒曝习近平扭脸斜视李克强 画面又秒删(视频)  "></a></p>
+<p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102909931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逆向工程发现抖音惊人黑幕！微软收购TikTo>-009fcc?logoWidth=1" title="逆向工程发现抖音惊人黑幕！微软收购TikTok靠谱吗？川普为何不直接禁止？  " alt="逆向工程发现抖音惊人黑幕！微软收购TikTok靠谱吗？川普为何不直接禁止？  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12306940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：中共是黑手党 我们该清除这个黑帮  >-009fcc?logoWidth=1" title="袁弓夷：中共是黑手党 我们该清除这个黑帮  " alt="袁弓夷：中共是黑手党 我们该清除这个黑帮  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12306639.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/细思极恐！大陆手机记录日常对话       >-009fcc?logoWidth=1" title="细思极恐！大陆手机记录日常对话  " alt="细思极恐！大陆手机记录日常对话  "></a></p>
-<p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102910521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又一人跳船？香港医管局高管突然辞职     >-009fcc?logoWidth=1" title="又一人跳船？香港医管局高管突然辞职  " alt="又一人跳船？香港医管局高管突然辞职  "></a></p>
+<p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102909843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官媒曝习近平扭脸斜视李克强 画面又秒删(视频>-009fcc?logoWidth=1" title="官媒曝习近平扭脸斜视李克强 画面又秒删(视频)  " alt="官媒曝习近平扭脸斜视李克强 画面又秒删(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qlkxxl3651/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qlkxxl3651/www/blob/master/README.md?v#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/qlkxxl3651/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qlkxxl3651/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qlkxxl3651/www/blob/master/README.md?d#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/qlkxxl3651/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/deeee">git.io/deeee</a></div>
+<div align="center">短网址: <a href="https://git.io/nnnnnn">git.io/nnnnnn</a></div>
 
