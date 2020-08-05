@@ -10,12 +10,12 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qlkxxl3651/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qlkxxl3651/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rdddd">git.io/rdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/fpp">x.co/fpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d6666">git.io/d6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppa">x.co/ppa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/05/a102910789.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抖音姓党 内部名单曝光           >-009fcc?logoWidth=1" title="抖音姓党 内部名单曝光  " alt="抖音姓党 内部名单曝光  "></a></p>
-<p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/05/a102910773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贝鲁特大爆炸至少78死近4千人伤 劫后画面直>-009fcc?logoWidth=1" title="贝鲁特大爆炸至少78死近4千人伤 劫后画面直击  " alt="贝鲁特大爆炸至少78死近4千人伤 劫后画面直击  "></a></p>
+<p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/05/a102910773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贝鲁特“灾难性”爆炸画面爆光 至少78死近4>-009fcc?logoWidth=1" title="贝鲁特“灾难性”爆炸画面爆光 至少78死近4千人伤  " alt="贝鲁特“灾难性”爆炸画面爆光 至少78死近4千人伤  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/05/a102910785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连市突然封区 民众买不到菜维权被抓(视频)>-009fcc?logoWidth=1" title="大连市突然封区 民众买不到菜维权被抓(视频)  " alt="大连市突然封区 民众买不到菜维权被抓(视频)  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102910054.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习要拿马云、马化腾开刀？/北戴河秘会内幕  >-009fcc?logoWidth=1" title="习要拿马云、马化腾开刀？/北戴河秘会内幕  " alt="习要拿马云、马化腾开刀？/北戴河秘会内幕  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102910117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/发源地疫情再起 武汉再爆确诊        >-009fcc?logoWidth=1" title="发源地疫情再起 武汉再爆确诊  " alt="发源地疫情再起 武汉再爆确诊  "></a></p>
@@ -39,16 +39,14 @@
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12306667.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒吹三峡大坝削峰能力 专家揭背后猫腻   >-009fcc?logoWidth=1" title="党媒吹三峡大坝削峰能力 专家揭背后猫腻  " alt="党媒吹三峡大坝削峰能力 专家揭背后猫腻  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12305963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/萧美琴：战狼外交让世界领悟中共本质     >-009fcc?logoWidth=1" title="萧美琴：战狼外交让世界领悟中共本质  " alt="萧美琴：战狼外交让世界领悟中共本质  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102909898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反习派进攻讯号？ 中共党媒罕见批军演“浪费”>-009fcc?logoWidth=1" title="反习派进攻讯号？ 中共党媒罕见批军演“浪费”  " alt="反习派进攻讯号？ 中共党媒罕见批军演“浪费”  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102910565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/索马利兰拟与台湾建交 中共大使求见总统被拒 >-009fcc?logoWidth=1" title="索马利兰拟与台湾建交 中共大使求见总统被拒  " alt="索马利兰拟与台湾建交 中共大使求见总统被拒  "></a></p>
-<p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102910322.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/批美禁TikTok外交部翻车 党媒挺禁Gma>-009fcc?logoWidth=1" title="批美禁TikTok外交部翻车 党媒挺禁Gmail旧文热传  " alt="批美禁TikTok外交部翻车 党媒挺禁Gmail旧文热传  "></a></p>
-<p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102910512.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒自曝四川国粮监守自盗 粮库空仓一年无人过>-009fcc?logoWidth=1" title="党媒自曝四川国粮监守自盗 粮库空仓一年无人过问  " alt="党媒自曝四川国粮监守自盗 粮库空仓一年无人过问  "></a></p>
-<p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102909901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河秘会内幕：中共高层集体看禁片     >-009fcc?logoWidth=1" title="北戴河秘会内幕：中共高层集体看禁片  " alt="北戴河秘会内幕：中共高层集体看禁片  "></a></p>
+<p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102909843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官媒曝习近平扭脸斜视李克强 画面又秒删(视频>-009fcc?logoWidth=1" title="官媒曝习近平扭脸斜视李克强 画面又秒删(视频)  " alt="官媒曝习近平扭脸斜视李克强 画面又秒删(视频)  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12307254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共灭亡前的最后疯狂        >-009fcc?logoWidth=1" title="王友群：中共灭亡前的最后疯狂  " alt="王友群：中共灭亡前的最后疯狂  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12306347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆企业家发文吁开放网络 被全网删除    >-009fcc?logoWidth=1" title="大陆企业家发文吁开放网络 被全网删除  " alt="大陆企业家发文吁开放网络 被全网删除  "></a></p>
-<p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102909931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逆向工程发现抖音惊人黑幕！微软收购TikTo>-009fcc?logoWidth=1" title="逆向工程发现抖音惊人黑幕！微软收购TikTok靠谱吗？川普为何不直接禁止？  " alt="逆向工程发现抖音惊人黑幕！微软收购TikTok靠谱吗？川普为何不直接禁止？  "></a></p>
+<p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102909901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河秘会内幕：中共高层集体看禁片     >-009fcc?logoWidth=1" title="北戴河秘会内幕：中共高层集体看禁片  " alt="北戴河秘会内幕：中共高层集体看禁片  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/4/n12306339.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平旧部蔡奇干又强拆北京四合院 引民怨  >-009fcc?logoWidth=1" title="习近平旧部蔡奇干又强拆北京四合院 引民怨  " alt="习近平旧部蔡奇干又强拆北京四合院 引民怨  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/20/8/5/n12307491.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美卫生部长将访台 1979年以来最高阁员  >-009fcc?logoWidth=1" title="美卫生部长将访台 1979年以来最高阁员  " alt="美卫生部长将访台 1979年以来最高阁员  "></a></p>
-<p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102909843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官媒曝习近平扭脸斜视李克强 画面又秒删(视频>-009fcc?logoWidth=1" title="官媒曝习近平扭脸斜视李克强 画面又秒删(视频)  " alt="官媒曝习近平扭脸斜视李克强 画面又秒删(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qlkxxl3651/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qlkxxl3651/www/blob/master/README.md?l#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/qlkxxl3651/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qlkxxl3651/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qlkxxl3651/www/blob/master/README.md?j#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/qlkxxl3651/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rdddd">git.io/rdddd</a></div>
+<div align="center">短网址: <a href="https://git.io/d6666">git.io/d6666</a></div>
 
