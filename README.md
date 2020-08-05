@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qlkxxl3651/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qlkxxl3651/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dgggg">git.io/dgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp9">x.co/pp9</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uuuuuuuu">git.io/uuuuuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/7aa">x.co/7aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/05/a102910789.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抖音姓党 内部名单曝光           >-009fcc?logoWidth=1" title="抖音姓党 内部名单曝光  " alt="抖音姓党 内部名单曝光  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/05/a102910785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连市突然封区 民众买不到菜维权被抓(视频)>-009fcc?logoWidth=1" title="大连市突然封区 民众买不到菜维权被抓(视频)  " alt="大连市突然封区 民众买不到菜维权被抓(视频)  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102910054.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习要拿马云、马化腾开刀？/北戴河秘会内幕  >-009fcc?logoWidth=1" title="习要拿马云、马化腾开刀？/北戴河秘会内幕  " alt="习要拿马云、马化腾开刀？/北戴河秘会内幕  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102910117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/发源地疫情再起 武汉再爆确诊        >-009fcc?logoWidth=1" title="发源地疫情再起 武汉再爆确诊  " alt="发源地疫情再起 武汉再爆确诊  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102910062.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/释何信号？美驻华大使馆清仓拍卖引猜测    >-009fcc?logoWidth=1" title="释何信号？美驻华大使馆清仓拍卖引猜测  " alt="释何信号？美驻华大使馆清仓拍卖引猜测  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102909901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河秘会内幕：中共高层集体看禁片     >-009fcc?logoWidth=1" title="北戴河秘会内幕：中共高层集体看禁片  " alt="北戴河秘会内幕：中共高层集体看禁片  "></a></p>
-<p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102909898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反习派进攻讯号？ 中共党媒罕见批军演“浪费”>-009fcc?logoWidth=1" title="反习派进攻讯号？ 中共党媒罕见批军演“浪费”  " alt="反习派进攻讯号？ 中共党媒罕见批军演“浪费”  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/05/a102910761.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港民调：习近平输给李克强险垫底      >-009fcc?logoWidth=1" title="香港民调：习近平输给李克强险垫底  " alt="香港民调：习近平输给李克强险垫底  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/04/a102910581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不满白思豪抗疫处理 纽约市卫生局长辞职   >-009fcc?logoWidth=1" title="不满白思豪抗疫处理 纽约市卫生局长辞职  " alt="不满白思豪抗疫处理 纽约市卫生局长辞职  "></a></p>
 <p><a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/2020/08/05/a102910735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港版国安法”黑手伸向海外 蓬佩奥强硬反击 >-009fcc?logoWidth=1" title="“港版国安法”黑手伸向海外 蓬佩奥强硬反击  " alt="“港版国安法”黑手伸向海外 蓬佩奥强硬反击  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qlkxxl3651/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qlkxxl3651/www/blob/master/README.md?b#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/qlkxxl3651/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qlkxxl3651/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qlkxxl3651/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qlkxxl3651/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qlkxxl3651/www/blob/master/README.md?j#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/qlkxxl3651/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dgggg">git.io/dgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/uuuuuuuu">git.io/uuuuuuuu</a></div>
 
