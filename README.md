@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gwbfbn385/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gwbfbn385/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/smmmm">git.io/smmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j77">x.co/j77</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rmmmm">git.io/rmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppj">x.co/ppj</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/04/a102910054.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习要拿马云、马化腾开刀？/北戴河秘会内幕  >-009fcc?logoWidth=1" title="习要拿马云、马化腾开刀？/北戴河秘会内幕  " alt="习要拿马云、马化腾开刀？/北戴河秘会内幕  "></a></p>
 <p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/04/a102910117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/发源地疫情再起 武汉再爆确诊        >-009fcc?logoWidth=1" title="发源地疫情再起 武汉再爆确诊  " alt="发源地疫情再起 武汉再爆确诊  "></a></p>
 <p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/04/a102910062.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/释何信号？美驻华大使馆清仓拍卖引猜测    >-009fcc?logoWidth=1" title="释何信号？美驻华大使馆清仓拍卖引猜测  " alt="释何信号？美驻华大使馆清仓拍卖引猜测  "></a></p>
+<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910888.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴西总统府沦疫情重灾区 178公务人员染疫 >-009fcc?logoWidth=1" title="巴西总统府沦疫情重灾区 178公务人员染疫  " alt="巴西总统府沦疫情重灾区 178公务人员染疫  "></a></p>
 <p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910858.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：纽时、CNN等替中共宣传马克思主义  >-009fcc?logoWidth=1" title="美媒：纽时、CNN等替中共宣传马克思主义  " alt="美媒：纽时、CNN等替中共宣传马克思主义  "></a></p>
 <p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910761.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港民调：习近平输给李克强险垫底      >-009fcc?logoWidth=1" title="香港民调：习近平输给李克强险垫底  " alt="香港民调：习近平输给李克强险垫底  "></a></p>
 <p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/04/a102910581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不满白思豪抗疫处理 纽约市卫生局长辞职   >-009fcc?logoWidth=1" title="不满白思豪抗疫处理 纽约市卫生局长辞职  " alt="不满白思豪抗疫处理 纽约市卫生局长辞职  "></a></p>
 <p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“港版国安法”黑手伸向海外 蓬佩奥强硬反击 >-009fcc?logoWidth=1" title="“港版国安法”黑手伸向海外 蓬佩奥强硬反击  " alt="“港版国安法”黑手伸向海外 蓬佩奥强硬反击  "></a></p>
-<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910725.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国多省又爆新病毒 7人已死        >-009fcc?logoWidth=1" title="中国多省又爆新病毒 7人已死  " alt="中国多省又爆新病毒 7人已死  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gwbfbn385/djy/blob/master/gb/20/8/4/n12306881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党支部名单曝光 抖音何去何从        >-009fcc?logoWidth=1" title="党支部名单曝光 抖音何去何从  " alt="党支部名单曝光 抖音何去何从  "></a></p>
 <p><a href="https://github.com/gwbfbn385/djy/blob/master/gb/20/8/4/n12305959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美欲黄岩岛开战？闫丽梦再揭内幕       >-009fcc?logoWidth=1" title="美欲黄岩岛开战？闫丽梦再揭内幕  " alt="美欲黄岩岛开战？闫丽梦再揭内幕  "></a></p>
@@ -36,10 +36,11 @@
 <p><a href="https://github.com/gwbfbn385/djy/blob/master/gb/20/8/4/n12306396.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/恐惧真相插播 中共设10万奖金“举报”   >-009fcc?logoWidth=1" title="恐惧真相插播 中共设10万奖金“举报”  " alt="恐惧真相插播 中共设10万奖金“举报”  "></a></p>
 <p><a href="https://github.com/gwbfbn385/djy/blob/master/gb/20/8/4/n12306781.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/辽宁葫芦岛银行现挤兑 行长再出事 利润腰斩 >-009fcc?logoWidth=1" title="辽宁葫芦岛银行现挤兑 行长再出事 利润腰斩  " alt="辽宁葫芦岛银行现挤兑 行长再出事 利润腰斩  "></a></p>
 <p><a href="https://github.com/gwbfbn385/djy/blob/master/gb/20/8/5/n12307604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抖音和“字节跳动”都姓党          >-009fcc?logoWidth=1" title="抖音和“字节跳动”都姓党  " alt="抖音和“字节跳动”都姓党  "></a></p>
-<p><a href="https://github.com/gwbfbn385/djy/blob/master/gb/20/8/4/n12306667.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒吹三峡大坝削峰能力 专家揭背后猫腻   >-009fcc?logoWidth=1" title="党媒吹三峡大坝削峰能力 专家揭背后猫腻  " alt="党媒吹三峡大坝削峰能力 专家揭背后猫腻  "></a></p>
+<p><a href="https://github.com/gwbfbn385/djy/blob/master/gb/20/8/4/n12306667.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝削峰能力被高调宣传 专家指混淆视听 >-009fcc?logoWidth=1" title="三峡大坝削峰能力被高调宣传 专家指混淆视听  " alt="三峡大坝削峰能力被高调宣传 专家指混淆视听  "></a></p>
 <p><a href="https://github.com/gwbfbn385/djy/blob/master/gb/20/8/4/n12305963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/萧美琴：战狼外交让世界领悟中共本质     >-009fcc?logoWidth=1" title="萧美琴：战狼外交让世界领悟中共本质  " alt="萧美琴：战狼外交让世界领悟中共本质  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/04/a102909898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反习派进攻讯号？ 中共党媒罕见批军演“浪费”>-009fcc?logoWidth=1" title="反习派进攻讯号？ 中共党媒罕见批军演“浪费”  " alt="反习派进攻讯号？ 中共党媒罕见批军演“浪费”  "></a></p>
+<p><a href="https://github.com/gwbfbn385/djy/blob/master/gb/20/8/4/n12306667.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒吹三峡大坝削峰能力 专家揭背后猫腻   >-009fcc?logoWidth=1" title="党媒吹三峡大坝削峰能力 专家揭背后猫腻  " alt="党媒吹三峡大坝削峰能力 专家揭背后猫腻  "></a></p>
 <p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/04/a102910565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/索马利兰拟与台湾建交 中共大使求见总统被拒 >-009fcc?logoWidth=1" title="索马利兰拟与台湾建交 中共大使求见总统被拒  " alt="索马利兰拟与台湾建交 中共大使求见总统被拒  "></a></p>
 <p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/04/a102909843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官媒曝习近平扭脸斜视李克强 画面又秒删(视频>-009fcc?logoWidth=1" title="官媒曝习近平扭脸斜视李克强 画面又秒删(视频)  " alt="官媒曝习近平扭脸斜视李克强 画面又秒删(视频)  "></a></p>
 <p><a href="https://github.com/gwbfbn385/djy/blob/master/gb/20/8/4/n12307254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：再煽迫害法轮功 中共的末日疯狂   >-009fcc?logoWidth=1" title="王友群：再煽迫害法轮功 中共的末日疯狂  " alt="王友群：再煽迫害法轮功 中共的末日疯狂  "></a></p>
@@ -484,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gwbfbn385/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gwbfbn385/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gwbfbn385/www/blob/master/README.md?r#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/gwbfbn385/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gwbfbn385/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gwbfbn385/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gwbfbn385/www/blob/master/README.md?j#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/gwbfbn385/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/smmmm">git.io/smmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/rmmmm">git.io/rmmmm</a></div>
 
