@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gwbfbn385/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gwbfbn385/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kjjjj">git.io/kjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppu">x.co/ppu</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/maaaa">git.io/maaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/sdd">x.co/sdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910926.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共军车造假上阵就被打穿 军工厂2虎落马 >-009fcc?logoWidth=1" title="传中共军车造假上阵就被打穿 军工厂2虎落马  " alt="传中共军车造假上阵就被打穿 军工厂2虎落马  "></a></p>
 <p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910789.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抖音姓党 内部名单曝光           >-009fcc?logoWidth=1" title="抖音姓党 内部名单曝光  " alt="抖音姓党 内部名单曝光  "></a></p>
 <p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贝鲁特“灾难性”爆炸画面爆光 至少78死近4>-009fcc?logoWidth=1" title="贝鲁特“灾难性”爆炸画面爆光 至少78死近4千人伤  " alt="贝鲁特“灾难性”爆炸画面爆光 至少78死近4千人伤  "></a></p>
 <p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连市突然封区 民众买不到菜维权被抓(视频)>-009fcc?logoWidth=1" title="大连市突然封区 民众买不到菜维权被抓(视频)  " alt="大连市突然封区 民众买不到菜维权被抓(视频)  "></a></p>
+<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910761.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港民调：习近平输给李克强险垫底      >-009fcc?logoWidth=1" title="香港民调：习近平输给李克强险垫底  " alt="香港民调：习近平输给李克强险垫底  "></a></p>
 <p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/04/a102910054.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习要拿马云、马化腾开刀？/北戴河秘会内幕  >-009fcc?logoWidth=1" title="习要拿马云、马化腾开刀？/北戴河秘会内幕  " alt="习要拿马云、马化腾开刀？/北戴河秘会内幕  "></a></p>
-<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/04/a102910117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/发源地疫情再起 武汉再爆确诊        >-009fcc?logoWidth=1" title="发源地疫情再起 武汉再爆确诊  " alt="发源地疫情再起 武汉再爆确诊  "></a></p>
-<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/04/a102910062.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/释何信号？美驻华大使馆清仓拍卖引猜测    >-009fcc?logoWidth=1" title="释何信号？美驻华大使馆清仓拍卖引猜测  " alt="释何信号？美驻华大使馆清仓拍卖引猜测  "></a></p>
 <p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910896.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/女大生独游西双版纳后失踪 竟是男友将其杀害 >-009fcc?logoWidth=1" title="女大生独游西双版纳后失踪 竟是男友将其杀害  " alt="女大生独游西双版纳后失踪 竟是男友将其杀害  "></a></p>
 <p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910758.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/潘东凯：大陆医护 测病毒DNA还是人体DNA>-009fcc?logoWidth=1" title="潘东凯：大陆医护 测病毒DNA还是人体DNA？  " alt="潘东凯：大陆医护 测病毒DNA还是人体DNA？  "></a></p>
 <p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910888.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴西总统府沦疫情重灾区 178公务人员染疫 >-009fcc?logoWidth=1" title="巴西总统府沦疫情重灾区 178公务人员染疫  " alt="巴西总统府沦疫情重灾区 178公务人员染疫  "></a></p>
 <p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910858.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：纽时、CNN等替中共宣传马克思主义  >-009fcc?logoWidth=1" title="美媒：纽时、CNN等替中共宣传马克思主义  " alt="美媒：纽时、CNN等替中共宣传马克思主义  "></a></p>
-<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910761.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港民调：习近平输给李克强险垫底      >-009fcc?logoWidth=1" title="香港民调：习近平输给李克强险垫底  " alt="香港民调：习近平输给李克强险垫底  "></a></p>
+<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910753.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《华邮》肉麻吹捧中共 被批替北京发新闻稿  >-009fcc?logoWidth=1" title="《华邮》肉麻吹捧中共 被批替北京发新闻稿  " alt="《华邮》肉麻吹捧中共 被批替北京发新闻稿  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gwbfbn385/djy/blob/master/gb/20/8/4/n12306881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党支部名单曝光 抖音何去何从        >-009fcc?logoWidth=1" title="党支部名单曝光 抖音何去何从  " alt="党支部名单曝光 抖音何去何从  "></a></p>
 <p><a href="https://github.com/gwbfbn385/djy/blob/master/gb/20/8/4/n12305959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美欲黄岩岛开战？闫丽梦再揭内幕       >-009fcc?logoWidth=1" title="美欲黄岩岛开战？闫丽梦再揭内幕  " alt="美欲黄岩岛开战？闫丽梦再揭内幕  "></a></p>
@@ -39,16 +39,16 @@
 <p><a href="https://github.com/gwbfbn385/djy/blob/master/gb/20/8/4/n12306667.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝削峰能力被高调宣传 专家指混淆视听 >-009fcc?logoWidth=1" title="三峡大坝削峰能力被高调宣传 专家指混淆视听  " alt="三峡大坝削峰能力被高调宣传 专家指混淆视听  "></a></p>
 <p><a href="https://github.com/gwbfbn385/djy/blob/master/gb/20/8/4/n12305963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/萧美琴：战狼外交让世界领悟中共本质     >-009fcc?logoWidth=1" title="萧美琴：战狼外交让世界领悟中共本质  " alt="萧美琴：战狼外交让世界领悟中共本质  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/04/a102909898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反习派进攻讯号？ 中共党媒罕见批军演“浪费”>-009fcc?logoWidth=1" title="反习派进攻讯号？ 中共党媒罕见批军演“浪费”  " alt="反习派进攻讯号？ 中共党媒罕见批军演“浪费”  "></a></p>
-<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/04/a102910565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/索马利兰拟与台湾建交 中共大使求见总统被拒 >-009fcc?logoWidth=1" title="索马利兰拟与台湾建交 中共大使求见总统被拒  " alt="索马利兰拟与台湾建交 中共大使求见总统被拒  "></a></p>
-<p><a href="https://github.com/gwbfbn385/djy/blob/master/gb/20/8/4/n12306667.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒吹三峡大坝削峰能力 专家揭背后猫腻   >-009fcc?logoWidth=1" title="党媒吹三峡大坝削峰能力 专家揭背后猫腻  " alt="党媒吹三峡大坝削峰能力 专家揭背后猫腻  "></a></p>
-<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910905.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/签证到期 美将驱逐中共记者 胡锡进称报复驻香>-009fcc?logoWidth=1" title="签证到期 美将驱逐中共记者 胡锡进称报复驻香港的美国记者  " alt="签证到期 美将驱逐中共记者 胡锡进称报复驻香港的美国记者  "></a></p>
-<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/04/a102909843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官媒曝习近平扭脸斜视李克强 画面又秒删(视频>-009fcc?logoWidth=1" title="官媒曝习近平扭脸斜视李克强 画面又秒删(视频)  " alt="官媒曝习近平扭脸斜视李克强 画面又秒删(视频)  "></a></p>
+<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/04/a102910241.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/3男受困无人岛与世隔绝3天 海滩上写SOS获>-009fcc?logoWidth=1" title="3男受困无人岛与世隔绝3天 海滩上写SOS获救  " alt="3男受困无人岛与世隔绝3天 海滩上写SOS获救  "></a></p>
+<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910893.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一篇文章 民众狂赞 当局秒删 他都说了什么？>-009fcc?logoWidth=1" title="一篇文章 民众狂赞 当局秒删 他都说了什么？  " alt="一篇文章 民众狂赞 当局秒删 他都说了什么？  "></a></p>
+<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进连闯两祸 核弹论涉嫌逼宫及窥探国家核机>-009fcc?logoWidth=1" title="胡锡进连闯两祸 核弹论涉嫌逼宫及窥探国家核机密！  " alt="胡锡进连闯两祸 核弹论涉嫌逼宫及窥探国家核机密！  "></a></p>
 <p><a href="https://github.com/gwbfbn385/djy/blob/master/gb/20/8/4/n12307254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：再煽迫害法轮功 中共的末日疯狂   >-009fcc?logoWidth=1" title="王友群：再煽迫害法轮功 中共的末日疯狂  " alt="王友群：再煽迫害法轮功 中共的末日疯狂  "></a></p>
 <p><a href="https://github.com/gwbfbn385/djy/blob/master/gb/20/8/4/n12306347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆企业家发文吁开放网络 被全网删除    >-009fcc?logoWidth=1" title="大陆企业家发文吁开放网络 被全网删除  " alt="大陆企业家发文吁开放网络 被全网删除  "></a></p>
-<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/04/a102909901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河秘会内幕：中共高层集体看禁片     >-009fcc?logoWidth=1" title="北戴河秘会内幕：中共高层集体看禁片  " alt="北戴河秘会内幕：中共高层集体看禁片  "></a></p>
+<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910905.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/签证到期 美将驱逐中共记者 胡锡进称报复驻香>-009fcc?logoWidth=1" title="签证到期 美将驱逐中共记者 胡锡进称报复驻香港的美国记者  " alt="签证到期 美将驱逐中共记者 胡锡进称报复驻香港的美国记者  "></a></p>
 <p><a href="https://github.com/gwbfbn385/djy/blob/master/gb/20/8/4/n12306339.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平旧部蔡奇干又强拆北京四合院 引民怨  >-009fcc?logoWidth=1" title="习近平旧部蔡奇干又强拆北京四合院 引民怨  " alt="习近平旧部蔡奇干又强拆北京四合院 引民怨  "></a></p>
 <p><a href="https://github.com/gwbfbn385/djy/blob/master/gb/20/8/5/n12307491.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美卫生部长将访台 1979年以来最高阁员  >-009fcc?logoWidth=1" title="美卫生部长将访台 1979年以来最高阁员  " alt="美卫生部长将访台 1979年以来最高阁员  "></a></p>
+<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/04/a102909843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官媒曝习近平扭脸斜视李克强 画面又秒删(视频>-009fcc?logoWidth=1" title="官媒曝习近平扭脸斜视李克强 画面又秒删(视频)  " alt="官媒曝习近平扭脸斜视李克强 画面又秒删(视频)  "></a></p>
+<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/04/a102909901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河秘会内幕：中共高层集体看禁片     >-009fcc?logoWidth=1" title="北戴河秘会内幕：中共高层集体看禁片  " alt="北戴河秘会内幕：中共高层集体看禁片  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gwbfbn385/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gwbfbn385/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gwbfbn385/www/blob/master/README.md?a#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/gwbfbn385/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gwbfbn385/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gwbfbn385/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gwbfbn385/www/blob/master/README.md?p#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/gwbfbn385/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kjjjj">git.io/kjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/maaaa">git.io/maaaa</a></div>
 
