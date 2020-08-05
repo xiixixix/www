@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gwbfbn385/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gwbfbn385/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mmmmmmm">git.io/mmmmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/dpp">x.co/dpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/t3333">git.io/t3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9933">x.co/9933</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贝鲁特“灾难性”爆炸画面爆光 至少78死逾4>-009fcc?logoWidth=1" title="贝鲁特“灾难性”爆炸画面爆光 至少78死逾4千人伤  " alt="贝鲁特“灾难性”爆炸画面爆光 至少78死逾4千人伤  "></a></p>
 <p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连市突然封区 民众买不到菜维权被抓(视频)>-009fcc?logoWidth=1" title="大连市突然封区 民众买不到菜维权被抓(视频)  " alt="大连市突然封区 民众买不到菜维权被抓(视频)  "></a></p>
 <p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910761.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港民调：习近平输给李克强险垫底      >-009fcc?logoWidth=1" title="香港民调：习近平输给李克强险垫底  " alt="香港民调：习近平输给李克强险垫底  "></a></p>
+<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台风刮走18层楼外墙 浙江女被风拉出坠亡  >-009fcc?logoWidth=1" title="台风刮走18层楼外墙 浙江女被风拉出坠亡  " alt="台风刮走18层楼外墙 浙江女被风拉出坠亡  "></a></p>
+<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/没钱了！中共南海练兵因5发炮弹挨批     >-009fcc?logoWidth=1" title="没钱了！中共南海练兵因5发炮弹挨批  " alt="没钱了！中共南海练兵因5发炮弹挨批  "></a></p>
+<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与鲸鱼同游遭尾鳍重击 澳洲女子肋骨断多根  >-009fcc?logoWidth=1" title="与鲸鱼同游遭尾鳍重击 澳洲女子肋骨断多根  " alt="与鲸鱼同游遭尾鳍重击 澳洲女子肋骨断多根  "></a></p>
 <p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美警告：中共利用恶意软体Taidoor窃取情>-009fcc?logoWidth=1" title="美警告：中共利用恶意软体Taidoor窃取情报  " alt="美警告：中共利用恶意软体Taidoor窃取情报  "></a></p>
 <p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910957.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/代表川普访台！美国卫生部长为断交后访台最高层>-009fcc?logoWidth=1" title="代表川普访台！美国卫生部长为断交后访台最高层级  " alt="代表川普访台！美国卫生部长为断交后访台最高层级  "></a></p>
-<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910896.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/独游西双版纳 女大生被杀埋尸山林 男友竟是凶>-009fcc?logoWidth=1" title="独游西双版纳 女大生被杀埋尸山林 男友竟是凶手  " alt="独游西双版纳 女大生被杀埋尸山林 男友竟是凶手  "></a></p>
-<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910758.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/潘东凯：大陆医护 测病毒DNA还是人体DNA>-009fcc?logoWidth=1" title="潘东凯：大陆医护 测病毒DNA还是人体DNA？  " alt="潘东凯：大陆医护 测病毒DNA还是人体DNA？  "></a></p>
-<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910888.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴西总统府沦疫情重灾区 178公务人员染疫 >-009fcc?logoWidth=1" title="巴西总统府沦疫情重灾区 178公务人员染疫  " alt="巴西总统府沦疫情重灾区 178公务人员染疫  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gwbfbn385/djy/blob/master/gb/20/8/4/n12306881.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党支部名单曝光 抖音何去何从        >-009fcc?logoWidth=1" title="党支部名单曝光 抖音何去何从  " alt="党支部名单曝光 抖音何去何从  "></a></p>
 <p><a href="https://github.com/gwbfbn385/djy/blob/master/gb/20/8/4/n12305959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美欲黄岩岛开战？闫丽梦再揭内幕       >-009fcc?logoWidth=1" title="美欲黄岩岛开战？闫丽梦再揭内幕  " alt="美欲黄岩岛开战？闫丽梦再揭内幕  "></a></p>
@@ -40,15 +40,15 @@
 <p><a href="https://github.com/gwbfbn385/djy/blob/master/gb/20/8/4/n12305963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/萧美琴：战狼外交让世界领悟中共本质     >-009fcc?logoWidth=1" title="萧美琴：战狼外交让世界领悟中共本质  " alt="萧美琴：战狼外交让世界领悟中共本质  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910893.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一篇文章 民众狂赞 当局秒删 他都说了什么？>-009fcc?logoWidth=1" title="一篇文章 民众狂赞 当局秒删 他都说了什么？  " alt="一篇文章 民众狂赞 当局秒删 他都说了什么？  "></a></p>
+<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910983.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强受辱 习近平的北戴河危机       >-009fcc?logoWidth=1" title="李克强受辱 习近平的北戴河危机  " alt="李克强受辱 习近平的北戴河危机  "></a></p>
+<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910960.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共借俄日窃国 胡耀邦一句话泄密      >-009fcc?logoWidth=1" title="中共借俄日窃国 胡耀邦一句话泄密  " alt="中共借俄日窃国 胡耀邦一句话泄密  "></a></p>
 <p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/04/a102910579.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党官妻揭丈夫出轨证据 7小时后身亡  警称“>-009fcc?logoWidth=1" title="党官妻揭丈夫出轨证据 7小时后身亡  警称“病死”  " alt="党官妻揭丈夫出轨证据 7小时后身亡  警称“病死”  "></a></p>
-<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/04/a102910241.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/3男受困无人岛与世隔绝3天 海滩上写SOS获>-009fcc?logoWidth=1" title="3男受困无人岛与世隔绝3天 海滩上写SOS获救  " alt="3男受困无人岛与世隔绝3天 海滩上写SOS获救  "></a></p>
 <p><a href="https://github.com/gwbfbn385/djy/blob/master/gb/20/8/4/n12307254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：再煽迫害法轮功 中共的末日疯狂   >-009fcc?logoWidth=1" title="王友群：再煽迫害法轮功 中共的末日疯狂  " alt="王友群：再煽迫害法轮功 中共的末日疯狂  "></a></p>
 <p><a href="https://github.com/gwbfbn385/djy/blob/master/gb/20/8/4/n12306347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆企业家发文吁开放网络 被全网删除    >-009fcc?logoWidth=1" title="大陆企业家发文吁开放网络 被全网删除  " alt="大陆企业家发文吁开放网络 被全网删除  "></a></p>
-<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进连闯两祸 核弹论涉嫌逼宫及窥探国家核机>-009fcc?logoWidth=1" title="胡锡进连闯两祸 核弹论涉嫌逼宫及窥探国家核机密！  " alt="胡锡进连闯两祸 核弹论涉嫌逼宫及窥探国家核机密！  "></a></p>
+<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/04/a102910241.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/3男受困无人岛与世隔绝3天 海滩上写SOS获>-009fcc?logoWidth=1" title="3男受困无人岛与世隔绝3天 海滩上写SOS获救  " alt="3男受困无人岛与世隔绝3天 海滩上写SOS获救  "></a></p>
 <p><a href="https://github.com/gwbfbn385/djy/blob/master/gb/20/8/4/n12306339.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平旧部蔡奇干又强拆北京四合院 引民怨  >-009fcc?logoWidth=1" title="习近平旧部蔡奇干又强拆北京四合院 引民怨  " alt="习近平旧部蔡奇干又强拆北京四合院 引民怨  "></a></p>
 <p><a href="https://github.com/gwbfbn385/djy/blob/master/gb/20/8/5/n12307491.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美卫生部长将访台 1979年以来最高阁员  >-009fcc?logoWidth=1" title="美卫生部长将访台 1979年以来最高阁员  " alt="美卫生部长将访台 1979年以来最高阁员  "></a></p>
-<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/04/a102909901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河秘会内幕：中共高层集体看禁片     >-009fcc?logoWidth=1" title="北戴河秘会内幕：中共高层集体看禁片  " alt="北戴河秘会内幕：中共高层集体看禁片  "></a></p>
-<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/04/a102909843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官媒曝习近平扭脸斜视李克强 画面又秒删(视频>-009fcc?logoWidth=1" title="官媒曝习近平扭脸斜视李克强 画面又秒删(视频)  " alt="官媒曝习近平扭脸斜视李克强 画面又秒删(视频)  "></a></p>
+<p><a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/2020/08/05/a102910842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进连闯两祸 核弹论涉嫌逼宫及窥探国家核机>-009fcc?logoWidth=1" title="胡锡进连闯两祸 核弹论涉嫌逼宫及窥探国家核机密！  " alt="胡锡进连闯两祸 核弹论涉嫌逼宫及窥探国家核机密！  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/gwbfbn385/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gwbfbn385/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gwbfbn385/www/blob/master/README.md?a#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/gwbfbn385/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/gwbfbn385/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gwbfbn385/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gwbfbn385/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gwbfbn385/www/blob/master/README.md?t#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/gwbfbn385/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mmmmmmm">git.io/mmmmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/t3333">git.io/t3333</a></div>
 
