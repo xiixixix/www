@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bxhnqj353/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bxhnqj353/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/m7777">git.io/m7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppq">x.co/ppq</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tqqqq">git.io/tqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/344">x.co/344</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -35,10 +35,11 @@
 <p><a href="https://github.com/bxhnqj353/djy/blob/master/gb/20/8/5/n12309638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：蓬佩奥的演讲与习近平的关系     >-009fcc?logoWidth=1" title="王友群：蓬佩奥的演讲与习近平的关系  " alt="王友群：蓬佩奥的演讲与习近平的关系  "></a></p>
 <p><a href="https://github.com/bxhnqj353/djy/blob/master/gb/20/8/4/n12306396.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/恐惧真相插播 中共设10万奖金“举报”   >-009fcc?logoWidth=1" title="恐惧真相插播 中共设10万奖金“举报”  " alt="恐惧真相插播 中共设10万奖金“举报”  "></a></p>
 <p><a href="https://github.com/bxhnqj353/djy/blob/master/gb/20/8/4/n12305587.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共秘而不宣的大连疫情分布图        >-009fcc?logoWidth=1" title="中共秘而不宣的大连疫情分布图  " alt="中共秘而不宣的大连疫情分布图  "></a></p>
-<p><a href="https://github.com/bxhnqj353/djy/blob/master/gb/20/8/5/n12309715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美维州48议员致信蓬佩奥：制止中共迫害法轮功>-009fcc?logoWidth=1" title="美维州48议员致信蓬佩奥：制止中共迫害法轮功  " alt="美维州48议员致信蓬佩奥：制止中共迫害法轮功  "></a></p>
+<p><a href="https://github.com/bxhnqj353/djy/blob/master/gb/20/8/5/n12309715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美维州49议员致信蓬佩奥：制止中共迫害法轮功>-009fcc?logoWidth=1" title="美维州49议员致信蓬佩奥：制止中共迫害法轮功  " alt="美维州49议员致信蓬佩奥：制止中共迫害法轮功  "></a></p>
 <p><a href="https://github.com/bxhnqj353/djy/blob/master/gb/20/8/6/n12310334.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高层悄悄服用羟氯喹           >-009fcc?logoWidth=1" title="中共高层悄悄服用羟氯喹  " alt="中共高层悄悄服用羟氯喹  "></a></p>
 <p><a href="https://github.com/bxhnqj353/djy/blob/master/gb/20/8/4/n12307317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：大陆灾害实情惊人 高层作秀无用    >-009fcc?logoWidth=1" title="钟原：大陆灾害实情惊人 高层作秀无用  " alt="钟原：大陆灾害实情惊人 高层作秀无用  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/bxhnqj353/djy/blob/master/gb/20/8/5/n12309715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美维州48议员致信蓬佩奥：制止中共迫害法轮功>-009fcc?logoWidth=1" title="美维州48议员致信蓬佩奥：制止中共迫害法轮功  " alt="美维州48议员致信蓬佩奥：制止中共迫害法轮功  "></a></p>
 <p><a href="https://github.com/bxhnqj353/ntdtv/blob/master/gb/2020/08/06/a102911642.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：美卫生部长历史性访台！中美三个月内在南>-009fcc?logoWidth=1" title="文昭：美卫生部长历史性访台！中美三个月内在南海必有一战？  " alt="文昭：美卫生部长历史性访台！中美三个月内在南海必有一战？  "></a></p>
 <p><a href="https://github.com/bxhnqj353/djy/blob/master/gb/20/8/6/n12310574.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆罕见病救命药一支70万 令普通家庭绝望 >-009fcc?logoWidth=1" title="大陆罕见病救命药一支70万 令普通家庭绝望  " alt="大陆罕见病救命药一支70万 令普通家庭绝望  "></a></p>
 <p><a href="https://github.com/bxhnqj353/ntdtv/blob/master/gb/2020/08/06/a102912153.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普的媒体反击战 中共DCEP挑战美元   >-009fcc?logoWidth=1" title="川普的媒体反击战 中共DCEP挑战美元  " alt="川普的媒体反击战 中共DCEP挑战美元  "></a></p>
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bxhnqj353/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bxhnqj353/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bxhnqj353/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bxhnqj353/www/blob/master/README.md?m#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/bxhnqj353/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bxhnqj353/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bxhnqj353/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bxhnqj353/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bxhnqj353/www/blob/master/README.md?n#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/bxhnqj353/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/m7777">git.io/m7777</a></div>
+<div align="center">短网址: <a href="https://git.io/tqqqq">git.io/tqqqq</a></div>
 
