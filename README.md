@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jvvlwt3997/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jvvlwt3997/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k5555">git.io/k5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/afa">x.co/afa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fbbbb">git.io/fbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/caa">x.co/caa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,10 +20,10 @@
 <p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/06/a102911730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军震慑加码！E--8C侦察机“夜探”广东  >-009fcc?logoWidth=1" title="美军震慑加码！E-8C侦察机“夜探”广东  " alt="美军震慑加码！E-8C侦察机“夜探”广东  "></a></p>
 <p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/05/a102911517.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军公布超高音速导弹试射画面 速度是东风导弹>-009fcc?logoWidth=1" title="美军公布超高音速导弹试射画面 速度是东风导弹2倍  " alt="美军公布超高音速导弹试射画面 速度是东风导弹2倍  "></a></p>
 <p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/05/a102911463.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军方学者放风8月东沙夺岛演习 转头又不承>-009fcc?logoWidth=1" title="中共军方学者放风8月东沙夺岛演习 转头又不承认  " alt="中共军方学者放风8月东沙夺岛演习 转头又不承认  "></a></p>
+<p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/06/a102911911.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江满分作文“不说人话” 网路炸锅     >-009fcc?logoWidth=1" title="浙江满分作文“不说人话” 网路炸锅  " alt="浙江满分作文“不说人话” 网路炸锅  "></a></p>
 <p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/06/a102911903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美布“全球干净网路” 台厂翻转抢千亿美元商机>-009fcc?logoWidth=1" title="美布“全球干净网路” 台厂翻转抢千亿美元商机  " alt="美布“全球干净网路” 台厂翻转抢千亿美元商机  "></a></p>
 <p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/06/a102911878.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/呼吁全球追责 阎丽梦：中共不会只制造1个病毒>-009fcc?logoWidth=1" title="呼吁全球追责 阎丽梦：中共不会只制造1个病毒  " alt="呼吁全球追责 阎丽梦：中共不会只制造1个病毒  "></a></p>
 <p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/06/a102911791.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贝鲁特大爆炸 增至135死约5000人伤  >-009fcc?logoWidth=1" title="贝鲁特大爆炸 增至135死约5000人伤  " alt="贝鲁特大爆炸 增至135死约5000人伤  "></a></p>
-<p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/06/a102911727.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海关6度要求转运硝酸铵 黎巴嫩司法部门都均无>-009fcc?logoWidth=1" title="海关6度要求转运硝酸铵 黎巴嫩司法部门都均无回复  " alt="海关6度要求转运硝酸铵 黎巴嫩司法部门都均无回复  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jvvlwt3997/djy/blob/master/gb/20/8/5/n12307338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前中共高干病房医生曝光高层“特供”待遇   >-009fcc?logoWidth=1" title="前中共高干病房医生曝光高层“特供”待遇  " alt="前中共高干病房医生曝光高层“特供”待遇  "></a></p>
 <p><a href="https://github.com/jvvlwt3997/djy/blob/master/gb/20/8/4/n12307317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：大陆灾害实情惊人 高层作秀无用    >-009fcc?logoWidth=1" title="钟原：大陆灾害实情惊人 高层作秀无用  " alt="钟原：大陆灾害实情惊人 高层作秀无用  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/jvvlwt3997/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jvvlwt3997/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jvvlwt3997/www/blob/master/README.md?p#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/jvvlwt3997/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/jvvlwt3997/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jvvlwt3997/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jvvlwt3997/www/blob/master/README.md?q#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/jvvlwt3997/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/k5555">git.io/k5555</a></div>
+<div align="center">短网址: <a href="https://git.io/fbbbb">git.io/fbbbb</a></div>
 
