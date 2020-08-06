@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jvvlwt3997/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jvvlwt3997/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fbbbb">git.io/fbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/caa">x.co/caa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/icccc">git.io/icccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3337">x.co/3337</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,10 +20,10 @@
 <p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/06/a102911730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军震慑加码！E--8C侦察机“夜探”广东  >-009fcc?logoWidth=1" title="美军震慑加码！E-8C侦察机“夜探”广东  " alt="美军震慑加码！E-8C侦察机“夜探”广东  "></a></p>
 <p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/05/a102911517.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军公布超高音速导弹试射画面 速度是东风导弹>-009fcc?logoWidth=1" title="美军公布超高音速导弹试射画面 速度是东风导弹2倍  " alt="美军公布超高音速导弹试射画面 速度是东风导弹2倍  "></a></p>
 <p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/05/a102911463.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军方学者放风8月东沙夺岛演习 转头又不承>-009fcc?logoWidth=1" title="中共军方学者放风8月东沙夺岛演习 转头又不承认  " alt="中共军方学者放风8月东沙夺岛演习 转头又不承认  "></a></p>
+<p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/06/a102911938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英文大纪元专访闫丽梦 揭中共掩盖疫情内幕  >-009fcc?logoWidth=1" title="英文大纪元专访闫丽梦 揭中共掩盖疫情内幕  " alt="英文大纪元专访闫丽梦 揭中共掩盖疫情内幕  "></a></p>
+<p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/06/a102911918.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贝鲁特大爆炸 逾10名消防员失踪 邮轮被震至>-009fcc?logoWidth=1" title="贝鲁特大爆炸 逾10名消防员失踪 邮轮被震至翻沉  " alt="贝鲁特大爆炸 逾10名消防员失踪 邮轮被震至翻沉  "></a></p>
 <p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/06/a102911911.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江满分作文“不说人话” 网路炸锅     >-009fcc?logoWidth=1" title="浙江满分作文“不说人话” 网路炸锅  " alt="浙江满分作文“不说人话” 网路炸锅  "></a></p>
 <p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/06/a102911903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美布“全球干净网路” 台厂翻转抢千亿美元商机>-009fcc?logoWidth=1" title="美布“全球干净网路” 台厂翻转抢千亿美元商机  " alt="美布“全球干净网路” 台厂翻转抢千亿美元商机  "></a></p>
-<p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/06/a102911878.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/呼吁全球追责 阎丽梦：中共不会只制造1个病毒>-009fcc?logoWidth=1" title="呼吁全球追责 阎丽梦：中共不会只制造1个病毒  " alt="呼吁全球追责 阎丽梦：中共不会只制造1个病毒  "></a></p>
-<p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/06/a102911791.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贝鲁特大爆炸 增至135死约5000人伤  >-009fcc?logoWidth=1" title="贝鲁特大爆炸 增至135死约5000人伤  " alt="贝鲁特大爆炸 增至135死约5000人伤  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jvvlwt3997/djy/blob/master/gb/20/8/5/n12307338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前中共高干病房医生曝光高层“特供”待遇   >-009fcc?logoWidth=1" title="前中共高干病房医生曝光高层“特供”待遇  " alt="前中共高干病房医生曝光高层“特供”待遇  "></a></p>
 <p><a href="https://github.com/jvvlwt3997/djy/blob/master/gb/20/8/4/n12307317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：大陆灾害实情惊人 高层作秀无用    >-009fcc?logoWidth=1" title="钟原：大陆灾害实情惊人 高层作秀无用  " alt="钟原：大陆灾害实情惊人 高层作秀无用  "></a></p>
@@ -38,17 +38,17 @@
 <p><a href="https://github.com/jvvlwt3997/djy/blob/master/gb/20/8/5/n12309653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两位总统与《九评共产党》          >-009fcc?logoWidth=1" title="两位总统与《九评共产党》  " alt="两位总统与《九评共产党》  "></a></p>
 <p><a href="https://github.com/jvvlwt3997/djy/blob/master/gb/20/8/5/n12309720.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习打压香港 促蓬佩奥组灭共联盟       >-009fcc?logoWidth=1" title="习打压香港 促蓬佩奥组灭共联盟  " alt="习打压香港 促蓬佩奥组灭共联盟  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/06/a102911642.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：美卫生部长历史性访台！中美三个月内在南>-009fcc?logoWidth=1" title="文昭：美卫生部长历史性访台！中美三个月内在南海必有一战？  " alt="文昭：美卫生部长历史性访台！中美三个月内在南海必有一战？  "></a></p>
-<p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/06/a102911673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞士怒了 战狼怂了/总加速师激怒世界 蓬佩奥>-009fcc?logoWidth=1" title="瑞士怒了 战狼怂了/总加速师激怒世界 蓬佩奥穿针引线  " alt="瑞士怒了 战狼怂了/总加速师激怒世界 蓬佩奥穿针引线  "></a></p>
 <p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/06/a102911852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议是否会成为习近平的一个坎儿    >-009fcc?logoWidth=1" title="北戴河会议是否会成为习近平的一个坎儿  " alt="北戴河会议是否会成为习近平的一个坎儿  "></a></p>
-<p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/05/a102911495.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/环时央视内遍地美国人家属 美中交恶打乱其移民>-009fcc?logoWidth=1" title="环时央视内遍地美国人家属 美中交恶打乱其移民梦  " alt="环时央视内遍地美国人家属 美中交恶打乱其移民梦  "></a></p>
+<p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/06/a102911861.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会推中共追责法案 范士丹为何高调反对？ >-009fcc?logoWidth=1" title="美国会推中共追责法案 范士丹为何高调反对？  " alt="美国会推中共追责法案 范士丹为何高调反对？  "></a></p>
+<p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/05/a102911445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/否定中共第一步 美卫生部长将出访中华民国  >-009fcc?logoWidth=1" title="否定中共第一步 美卫生部长将出访中华民国  " alt="否定中共第一步 美卫生部长将出访中华民国  "></a></p>
 <p><a href="https://github.com/jvvlwt3997/djy/blob/master/gb/20/8/5/n12309159.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平六四期间 曾阻止学生跨省到福建串联  >-009fcc?logoWidth=1" title="习近平六四期间 曾阻止学生跨省到福建串联  " alt="习近平六四期间 曾阻止学生跨省到福建串联  "></a></p>
 <p><a href="https://github.com/jvvlwt3997/djy/blob/master/gb/20/7/17/n12262328.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/布莱克伯恩：让美国人告中共         >-009fcc?logoWidth=1" title="布莱克伯恩：让美国人告中共  " alt="布莱克伯恩：让美国人告中共  "></a></p>
-<p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/03/a102908866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国爆出新布尼亚病毒 人传人已致10死   >-009fcc?logoWidth=1" title="中国爆出新布尼亚病毒 人传人已致10死  " alt="中国爆出新布尼亚病毒 人传人已致10死  "></a></p>
+<p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/06/a102911642.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：美卫生部长历史性访台！中美三个月内在南>-009fcc?logoWidth=1" title="文昭：美卫生部长历史性访台！中美三个月内在南海必有一战？  " alt="文昭：美卫生部长历史性访台！中美三个月内在南海必有一战？  "></a></p>
+<p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/06/a102911796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谈古论今话中医：夏日养生六大法宝(下)   >-009fcc?logoWidth=1" title="谈古论今话中医：夏日养生六大法宝(下)  " alt="谈古论今话中医：夏日养生六大法宝(下)  "></a></p>
 <p><a href="https://github.com/jvvlwt3997/djy/blob/master/gb/20/8/6/n12310199.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：王毅对美中关系再次喊话的无奈     >-009fcc?logoWidth=1" title="沈舟：王毅对美中关系再次喊话的无奈  " alt="沈舟：王毅对美中关系再次喊话的无奈  "></a></p>
 <p><a href="https://github.com/jvvlwt3997/djy/blob/master/gb/20/8/5/n12309437.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜接壤中国边境大爆炸 传最少15死    >-009fcc?logoWidth=1" title="朝鲜接壤中国边境大爆炸 传最少15死  " alt="朝鲜接壤中国边境大爆炸 传最少15死  "></a></p>
-<p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/05/a102911507.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》阎丽梦对话班农：中共不会只制造1>-009fcc?logoWidth=1" title="《石涛聚焦》阎丽梦对话班农：中共不会只制造1个病毒  " alt="《石涛聚焦》阎丽梦对话班农：中共不会只制造1个病毒  "></a></p>
-<p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/05/a102910983.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强受辱 习近平的北戴河危机       >-009fcc?logoWidth=1" title="李克强受辱 习近平的北戴河危机  " alt="李克强受辱 习近平的北戴河危机  "></a></p>
+<p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/06/a102911673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞士怒了 战狼怂了/总加速师激怒世界 蓬佩奥>-009fcc?logoWidth=1" title="瑞士怒了 战狼怂了/总加速师激怒世界 蓬佩奥穿针引线  " alt="瑞士怒了 战狼怂了/总加速师激怒世界 蓬佩奥穿针引线  "></a></p>
+<p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/05/a102911495.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/环时央视内遍地美国人家属 美中交恶打乱其移民>-009fcc?logoWidth=1" title="环时央视内遍地美国人家属 美中交恶打乱其移民梦  " alt="环时央视内遍地美国人家属 美中交恶打乱其移民梦  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/jvvlwt3997/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jvvlwt3997/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jvvlwt3997/www/blob/master/README.md?q#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/jvvlwt3997/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/jvvlwt3997/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jvvlwt3997/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jvvlwt3997/www/blob/master/README.md?t#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/jvvlwt3997/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fbbbb">git.io/fbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/icccc">git.io/icccc</a></div>
 
