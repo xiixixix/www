@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jvvlwt3997/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jvvlwt3997/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ixxxx">git.io/ixxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ndd">x.co/ndd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/q9999">git.io/q9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u77">x.co/u77</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -37,18 +37,18 @@
 <p><a href="https://github.com/jvvlwt3997/djy/blob/master/gb/20/8/4/n12305587.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共秘而不宣的大连疫情分布图        >-009fcc?logoWidth=1" title="中共秘而不宣的大连疫情分布图  " alt="中共秘而不宣的大连疫情分布图  "></a></p>
 <p><a href="https://github.com/jvvlwt3997/djy/blob/master/gb/20/8/6/n12310334.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高层悄悄服用羟氯喹           >-009fcc?logoWidth=1" title="中共高层悄悄服用羟氯喹  " alt="中共高层悄悄服用羟氯喹  "></a></p>
 <p><a href="https://github.com/jvvlwt3997/djy/blob/master/gb/20/8/5/n12309437.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜接壤中国边境大爆炸 传最少15死    >-009fcc?logoWidth=1" title="朝鲜接壤中国边境大爆炸 传最少15死  " alt="朝鲜接壤中国边境大爆炸 传最少15死  "></a></p>
-<p><a href="https://github.com/jvvlwt3997/djy/blob/master/gb/20/8/5/n12307605.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：刘鹤出李克强洋相与毛泽东羞辱刘少奇  >-009fcc?logoWidth=1" title="袁斌：刘鹤出李克强洋相与毛泽东羞辱刘少奇  " alt="袁斌：刘鹤出李克强洋相与毛泽东羞辱刘少奇  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/06/a102911673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞士怒了 战狼怂了/总加速师激怒世界 蓬佩奥>-009fcc?logoWidth=1" title="瑞士怒了 战狼怂了/总加速师激怒世界 蓬佩奥穿针引线  " alt="瑞士怒了 战狼怂了/总加速师激怒世界 蓬佩奥穿针引线  "></a></p>
-<p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/06/a102911642.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：美卫生部长历史性访台！中美三个月内在南>-009fcc?logoWidth=1" title="文昭：美卫生部长历史性访台！中美三个月内在南海必有一战？  " alt="文昭：美卫生部长历史性访台！中美三个月内在南海必有一战？  "></a></p>
-<p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/06/a102912031.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/照吃照喝不上健身房 美国胖妞年减逾50公斤（>-009fcc?logoWidth=1" title="照吃照喝不上健身房 美国胖妞年减逾50公斤（组图）  " alt="照吃照喝不上健身房 美国胖妞年减逾50公斤（组图）  "></a></p>
 <p><a href="https://github.com/jvvlwt3997/djy/blob/master/gb/20/8/6/n12310574.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆罕见病救命药一支70万 令普通家庭绝望 >-009fcc?logoWidth=1" title="大陆罕见病救命药一支70万 令普通家庭绝望  " alt="大陆罕见病救命药一支70万 令普通家庭绝望  "></a></p>
-<p><a href="https://github.com/jvvlwt3997/djy/blob/master/gb/20/8/6/n12310305.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江满分作文晦涩难懂引争议         >-009fcc?logoWidth=1" title="浙江满分作文晦涩难懂引争议  " alt="浙江满分作文晦涩难懂引争议  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/06/a102911642.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：美卫生部长历史性访台！中美三个月内在南>-009fcc?logoWidth=1" title="文昭：美卫生部长历史性访台！中美三个月内在南海必有一战？  " alt="文昭：美卫生部长历史性访台！中美三个月内在南海必有一战？  "></a></p>
+<p><a href="https://github.com/jvvlwt3997/djy/blob/master/gb/20/8/5/n12307605.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：刘鹤出李克强洋相与毛泽东羞辱刘少奇  >-009fcc?logoWidth=1" title="袁斌：刘鹤出李克强洋相与毛泽东羞辱刘少奇  " alt="袁斌：刘鹤出李克强洋相与毛泽东羞辱刘少奇  "></a></p>
+<p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/06/a102912031.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/照吃照喝不上健身房 美国胖妞年减逾50公斤（>-009fcc?logoWidth=1" title="照吃照喝不上健身房 美国胖妞年减逾50公斤（组图）  " alt="照吃照喝不上健身房 美国胖妞年减逾50公斤（组图）  "></a></p>
 <p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/06/a102911796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谈古论今话中医：夏日养生六大法宝(下)   >-009fcc?logoWidth=1" title="谈古论今话中医：夏日养生六大法宝(下)  " alt="谈古论今话中医：夏日养生六大法宝(下)  "></a></p>
+<p><a href="https://github.com/jvvlwt3997/djy/blob/master/gb/20/8/6/n12310305.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江满分作文晦涩难懂引争议         >-009fcc?logoWidth=1" title="浙江满分作文晦涩难懂引争议  " alt="浙江满分作文晦涩难懂引争议  "></a></p>
 <p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/06/a102911984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张林：瑞士威胁制裁 吓晕中共高层      >-009fcc?logoWidth=1" title="张林：瑞士威胁制裁 吓晕中共高层  " alt="张林：瑞士威胁制裁 吓晕中共高层  "></a></p>
+<p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/06/a102911963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：脸书CEO扎克伯格说句实话 中共翻脸 >-009fcc?logoWidth=1" title="杨威：脸书CEO扎克伯格说句实话 中共翻脸  " alt="杨威：脸书CEO扎克伯格说句实话 中共翻脸  "></a></p>
 <p><a href="https://github.com/jvvlwt3997/djy/blob/master/gb/20/8/6/n12309942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共打压宗教 美料对其制定全面行动计划   >-009fcc?logoWidth=1" title="中共打压宗教 美料对其制定全面行动计划  " alt="中共打压宗教 美料对其制定全面行动计划  "></a></p>
 <p><a href="https://github.com/jvvlwt3997/djy/blob/master/gb/20/7/17/n12262328.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/布莱克伯恩：让美国人告中共         >-009fcc?logoWidth=1" title="布莱克伯恩：让美国人告中共  " alt="布莱克伯恩：让美国人告中共  "></a></p>
-<p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/06/a102911963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：脸书CEO扎克伯格说句实话 中共翻脸 >-009fcc?logoWidth=1" title="杨威：脸书CEO扎克伯格说句实话 中共翻脸  " alt="杨威：脸书CEO扎克伯格说句实话 中共翻脸  "></a></p>
+<p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/06/a102911673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞士怒了 战狼怂了/总加速师激怒世界 蓬佩奥>-009fcc?logoWidth=1" title="瑞士怒了 战狼怂了/总加速师激怒世界 蓬佩奥穿针引线  " alt="瑞士怒了 战狼怂了/总加速师激怒世界 蓬佩奥穿针引线  "></a></p>
 <p><a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/2020/08/05/a102911495.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/环时央视内遍地美国人家属 美中交恶打乱其移民>-009fcc?logoWidth=1" title="环时央视内遍地美国人家属 美中交恶打乱其移民梦  " alt="环时央视内遍地美国人家属 美中交恶打乱其移民梦  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/jvvlwt3997/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jvvlwt3997/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jvvlwt3997/www/blob/master/README.md?d#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/jvvlwt3997/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/jvvlwt3997/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jvvlwt3997/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jvvlwt3997/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jvvlwt3997/www/blob/master/README.md?j#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/jvvlwt3997/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ixxxx">git.io/ixxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/q9999">git.io/q9999</a></div>
 
