@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ryqken3354/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ryqken3354/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hhhhh">git.io/hhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a7a">x.co/a7a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c6666">git.io/c6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aaj">x.co/aaj</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ryqken3354/ntdtv/blob/master/gb/2020/08/05/a102911101.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国产悍马被击穿 牵出特大腐败案       >-009fcc?logoWidth=1" title="国产悍马被击穿 牵出特大腐败案  " alt="国产悍马被击穿 牵出特大腐败案  "></a></p>
 <p><a href="https://github.com/ryqken3354/ntdtv/blob/master/gb/2020/08/05/a102911064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜边境大爆炸30余死伤 指挥所连爆10次(>-009fcc?logoWidth=1" title="朝鲜边境大爆炸30余死伤 指挥所连爆10次(视频)  " alt="朝鲜边境大爆炸30余死伤 指挥所连爆10次(视频)  "></a></p>
 <p><a href="https://github.com/ryqken3354/ntdtv/blob/master/gb/2020/08/05/a102910968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑格比刮走18层楼外墙 浙江女被风拉出坠亡 >-009fcc?logoWidth=1" title="黑格比刮走18层楼外墙 浙江女被风拉出坠亡  " alt="黑格比刮走18层楼外墙 浙江女被风拉出坠亡  "></a></p>
+<p><a href="https://github.com/ryqken3354/ntdtv/blob/master/gb/2020/08/06/a102911730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军震慑加码！E--8C侦察机“夜探”广东  >-009fcc?logoWidth=1" title="美军震慑加码！E-8C侦察机“夜探”广东  " alt="美军震慑加码！E-8C侦察机“夜探”广东  "></a></p>
 <p><a href="https://github.com/ryqken3354/ntdtv/blob/master/gb/2020/08/06/a102911654.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/收到免费包裹 美商业局：恐有个资隐患    >-009fcc?logoWidth=1" title="收到免费包裹 美商业局：恐有个资隐患  " alt="收到免费包裹 美商业局：恐有个资隐患  "></a></p>
 <p><a href="https://github.com/ryqken3354/ntdtv/blob/master/gb/2020/08/03/a102908866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国爆出新布尼亚病毒 人传人已致10死   >-009fcc?logoWidth=1" title="中国爆出新布尼亚病毒 人传人已致10死  " alt="中国爆出新布尼亚病毒 人传人已致10死  "></a></p>
 <p><a href="https://github.com/ryqken3354/ntdtv/blob/master/gb/2020/08/05/a102911598.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗：收购TikTok 微软应减在华资产 >-009fcc?logoWidth=1" title="纳瓦罗：收购TikTok 微软应减在华资产  " alt="纳瓦罗：收购TikTok 微软应减在华资产  "></a></p>
 <p><a href="https://github.com/ryqken3354/ntdtv/blob/master/gb/2020/08/05/a102911549.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普总统白宫新闻发布会（中文同声翻译）   >-009fcc?logoWidth=1" title="川普总统白宫新闻发布会（中文同声翻译）  " alt="川普总统白宫新闻发布会（中文同声翻译）  "></a></p>
-<p><a href="https://github.com/ryqken3354/ntdtv/blob/master/gb/2020/08/05/a102911530.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热贴：不是支持川普 是等他这样一个人等了很久>-009fcc?logoWidth=1" title="热贴：不是支持川普 是等他这样一个人等了很久  " alt="热贴：不是支持川普 是等他这样一个人等了很久  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ryqken3354/djy/blob/master/gb/20/8/5/n12307338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前中共高干病房医生曝光高层“特供”待遇   >-009fcc?logoWidth=1" title="前中共高干病房医生曝光高层“特供”待遇  " alt="前中共高干病房医生曝光高层“特供”待遇  "></a></p>
 <p><a href="https://github.com/ryqken3354/djy/blob/master/gb/20/8/5/n12307605.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：刘鹤出李克强洋相与毛泽东羞辱刘少奇  >-009fcc?logoWidth=1" title="袁斌：刘鹤出李克强洋相与毛泽东羞辱刘少奇  " alt="袁斌：刘鹤出李克强洋相与毛泽东羞辱刘少奇  "></a></p>
@@ -40,16 +40,15 @@
 <p><a href="https://github.com/ryqken3354/djy/blob/master/gb/20/8/5/n12309159.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六四期间 习近平曾阻止学生跨省串联     >-009fcc?logoWidth=1" title="六四期间 习近平曾阻止学生跨省串联  " alt="六四期间 习近平曾阻止学生跨省串联  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ryqken3354/ntdtv/blob/master/gb/2020/08/05/a102910862.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贝鲁特核弹级大爆炸 中共军备黑幕      >-009fcc?logoWidth=1" title="贝鲁特核弹级大爆炸 中共军备黑幕  " alt="贝鲁特核弹级大爆炸 中共军备黑幕  "></a></p>
-<p><a href="https://github.com/ryqken3354/djy/blob/master/gb/20/8/5/n12308849.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/继美国民调后 习近平在香港民调连创新低   >-009fcc?logoWidth=1" title="继美国民调后 习近平在香港民调连创新低  " alt="继美国民调后 习近平在香港民调连创新低  "></a></p>
-<p><a href="https://github.com/ryqken3354/djy/blob/master/gb/20/8/5/n12308805.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎死者家属 第四起状告武汉隐瞒疫情  >-009fcc?logoWidth=1" title="中共肺炎死者家属 第四起状告武汉隐瞒疫情  " alt="中共肺炎死者家属 第四起状告武汉隐瞒疫情  "></a></p>
+<p><a href="https://github.com/ryqken3354/djy/blob/master/gb/20/8/5/n12309159.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平六四期间 曾阻止学生跨省到福建串联  >-009fcc?logoWidth=1" title="习近平六四期间 曾阻止学生跨省到福建串联  " alt="习近平六四期间 曾阻止学生跨省到福建串联  "></a></p>
 <p><a href="https://github.com/ryqken3354/ntdtv/blob/master/gb/2020/08/05/a102911306.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共以疫谋霸风险大 习近平军权不稳     >-009fcc?logoWidth=1" title="中共以疫谋霸风险大 习近平军权不稳  " alt="中共以疫谋霸风险大 习近平军权不稳  "></a></p>
 <p><a href="https://github.com/ryqken3354/ntdtv/blob/master/gb/2020/08/05/a102910983.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强受辱 习近平的北戴河危机       >-009fcc?logoWidth=1" title="李克强受辱 习近平的北戴河危机  " alt="李克强受辱 习近平的北戴河危机  "></a></p>
-<p><a href="https://github.com/ryqken3354/djy/blob/master/gb/20/8/5/n12307716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贝鲁特大爆炸如核弹 中共军备黑幕      >-009fcc?logoWidth=1" title="贝鲁特大爆炸如核弹 中共军备黑幕  " alt="贝鲁特大爆炸如核弹 中共军备黑幕  "></a></p>
-<p><a href="https://github.com/ryqken3354/djy/blob/master/gb/20/8/4/n12307254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：悬赏10万 中共灭亡前的最后疯狂  >-009fcc?logoWidth=1" title="王友群：悬赏10万 中共灭亡前的最后疯狂  " alt="王友群：悬赏10万 中共灭亡前的最后疯狂  "></a></p>
+<p><a href="https://github.com/ryqken3354/djy/blob/master/gb/20/8/5/n12309720.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习打压香港 促蓬佩奥组灭共联盟       >-009fcc?logoWidth=1" title="习打压香港 促蓬佩奥组灭共联盟  " alt="习打压香港 促蓬佩奥组灭共联盟  "></a></p>
+<p><a href="https://github.com/ryqken3354/djy/blob/master/gb/20/8/4/n12307317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：大陆灾害实情惊人 高层作秀无用    >-009fcc?logoWidth=1" title="钟原：大陆灾害实情惊人 高层作秀无用  " alt="钟原：大陆灾害实情惊人 高层作秀无用  "></a></p>
 <p><a href="https://github.com/ryqken3354/ntdtv/blob/master/gb/2020/08/05/a102910931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷揭江绵恒换肾黑幕：孙力军操作 多人丧命>-009fcc?logoWidth=1" title="袁弓夷揭江绵恒换肾黑幕：孙力军操作 多人丧命  " alt="袁弓夷揭江绵恒换肾黑幕：孙力军操作 多人丧命  "></a></p>
 <p><a href="https://github.com/ryqken3354/ntdtv/blob/master/gb/2020/08/05/a102910926.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共军车造假上阵就被打穿 军工厂2虎落马 >-009fcc?logoWidth=1" title="传中共军车造假上阵就被打穿 军工厂2虎落马  " alt="传中共军车造假上阵就被打穿 军工厂2虎落马  "></a></p>
-<p><a href="https://github.com/ryqken3354/djy/blob/master/gb/20/8/4/n12306603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普为何打击TikTok 专家披露深层原因 >-009fcc?logoWidth=1" title="川普为何打击TikTok 专家披露深层原因  " alt="川普为何打击TikTok 专家披露深层原因  "></a></p>
-<p><a href="https://github.com/ryqken3354/djy/blob/master/gb/20/8/4/n12306667.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝削峰能力被高调宣传 专家指混淆视听 >-009fcc?logoWidth=1" title="三峡大坝削峰能力被高调宣传 专家指混淆视听  " alt="三峡大坝削峰能力被高调宣传 专家指混淆视听  "></a></p>
+<p><a href="https://github.com/ryqken3354/djy/blob/master/gb/20/8/5/n12309653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两位总统与《九评共产党》          >-009fcc?logoWidth=1" title="两位总统与《九评共产党》  " alt="两位总统与《九评共产党》  "></a></p>
+<p><a href="https://github.com/ryqken3354/djy/blob/master/gb/20/8/5/n12309292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：脸书CEO扎克伯格说句实话 中共翻脸 >-009fcc?logoWidth=1" title="杨威：脸书CEO扎克伯格说句实话 中共翻脸  " alt="杨威：脸书CEO扎克伯格说句实话 中共翻脸  "></a></p>
 <p><a href="https://github.com/ryqken3354/ntdtv/blob/master/gb/2020/08/05/a102911177.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：重操旧业浮出水 赵乐际前景不妙   >-009fcc?logoWidth=1" title="李正宽：重操旧业浮出水 赵乐际前景不妙  " alt="李正宽：重操旧业浮出水 赵乐际前景不妙  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -488,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ryqken3354/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ryqken3354/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ryqken3354/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ryqken3354/www/blob/master/README.md?c#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ryqken3354/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ryqken3354/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ryqken3354/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ryqken3354/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ryqken3354/www/blob/master/README.md?s#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ryqken3354/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hhhhh">git.io/hhhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/c6666">git.io/c6666</a></div>
 
