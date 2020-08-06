@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bxhnqj353/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bxhnqj353/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ihhhh">git.io/ihhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/xaa">x.co/xaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/grrrr">git.io/grrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aaq">x.co/aaq</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,7 +26,7 @@
 <p><a href="https://github.com/bxhnqj353/ntdtv/blob/master/gb/2020/08/06/a102912223.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日外相访问英国 声明并肩支持香港自由    >-009fcc?logoWidth=1" title="日外相访问英国 声明并肩支持香港自由  " alt="日外相访问英国 声明并肩支持香港自由  "></a></p>
 <p><a href="https://github.com/bxhnqj353/ntdtv/blob/master/gb/2020/08/06/a102912218.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贝鲁特爆炸 137死5000伤 估损失150>-009fcc?logoWidth=1" title="贝鲁特爆炸 137死5000伤 估损失150亿  " alt="贝鲁特爆炸 137死5000伤 估损失150亿  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/bxhnqj353/djy/blob/master/gb/20/8/6/n12310980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎巴嫩中国和朝鲜 24小时内三地发生大爆炸 >-009fcc?logoWidth=1" title="黎巴嫩中国和朝鲜 24小时内三地发生大爆炸  " alt="黎巴嫩中国和朝鲜 24小时内三地发生大爆炸  "></a></p>
+<p><a href="https://github.com/bxhnqj353/djy/blob/master/gb/20/8/6/n12310980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎巴嫩中国和朝鲜 24小时内三地大爆炸   >-009fcc?logoWidth=1" title="黎巴嫩中国和朝鲜 24小时内三地大爆炸  " alt="黎巴嫩中国和朝鲜 24小时内三地大爆炸  "></a></p>
 <p><a href="https://github.com/bxhnqj353/djy/blob/master/gb/20/8/5/n12307338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前中共高干病房医生曝光高层“特供”待遇   >-009fcc?logoWidth=1" title="前中共高干病房医生曝光高层“特供”待遇  " alt="前中共高干病房医生曝光高层“特供”待遇  "></a></p>
 <p><a href="https://github.com/bxhnqj353/djy/blob/master/gb/20/8/6/n12310885.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贝鲁特大爆炸 反恐专家从视频中得出5结论  >-009fcc?logoWidth=1" title="贝鲁特大爆炸 反恐专家从视频中得出5结论  " alt="贝鲁特大爆炸 反恐专家从视频中得出5结论  "></a></p>
 <p><a href="https://github.com/bxhnqj353/djy/blob/master/gb/20/8/6/n12310199.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：王毅对美中关系再次喊话的无奈     >-009fcc?logoWidth=1" title="沈舟：王毅对美中关系再次喊话的无奈  " alt="沈舟：王毅对美中关系再次喊话的无奈  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bxhnqj353/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bxhnqj353/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bxhnqj353/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bxhnqj353/www/blob/master/README.md?j#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/bxhnqj353/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bxhnqj353/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bxhnqj353/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bxhnqj353/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bxhnqj353/www/blob/master/README.md?v#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/bxhnqj353/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ihhhh">git.io/ihhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/grrrr">git.io/grrrr</a></div>
 
