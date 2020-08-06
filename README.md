@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bxhnqj353/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bxhnqj353/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/buuuu">git.io/buuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aza">x.co/aza</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ihhhh">git.io/ihhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/fpp">x.co/fpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/bxhnqj353/ntdtv/blob/master/gb/2020/08/06/a102911748.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美首度公布试射洲际导弹 美防长：要打就要赢 >-009fcc?logoWidth=1" title="美首度公布试射洲际导弹 美防长：要打就要赢  " alt="美首度公布试射洲际导弹 美防长：要打就要赢  "></a></p>
 <p><a href="https://github.com/bxhnqj353/ntdtv/blob/master/gb/2020/08/06/a102911730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军震慑加码！E--8C侦察机“夜探”广东  >-009fcc?logoWidth=1" title="美军震慑加码！E-8C侦察机“夜探”广东  " alt="美军震慑加码！E-8C侦察机“夜探”广东  "></a></p>
 <p><a href="https://github.com/bxhnqj353/ntdtv/blob/master/gb/2020/08/06/a102912469.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会报告：应对中共网络攻击要“转守为攻” >-009fcc?logoWidth=1" title="美国会报告：应对中共网络攻击要“转守为攻”  " alt="美国会报告：应对中共网络攻击要“转守为攻”  "></a></p>
+<p><a href="https://github.com/bxhnqj353/ntdtv/blob/master/gb/2020/08/06/a102912463.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/近40驻美中国记者签证到期 面临离境    >-009fcc?logoWidth=1" title="近40驻美中国记者签证到期 面临离境  " alt="近40驻美中国记者签证到期 面临离境  "></a></p>
 <p><a href="https://github.com/bxhnqj353/ntdtv/blob/master/gb/2020/08/06/a102912417.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒：房价若不降 “内循环”将成空谈    >-009fcc?logoWidth=1" title="陆媒：房价若不降 “内循环”将成空谈  " alt="陆媒：房价若不降 “内循环”将成空谈  "></a></p>
 <p><a href="https://github.com/bxhnqj353/ntdtv/blob/master/gb/2020/08/06/a102912430.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美五大领域净网 剔除中国电信和科技公司   >-009fcc?logoWidth=1" title="美五大领域净网 剔除中国电信和科技公司  " alt="美五大领域净网 剔除中国电信和科技公司  "></a></p>
 <p><a href="https://github.com/bxhnqj353/ntdtv/blob/master/gb/2020/08/06/a102912399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥称将移除不可信中国应用 并点名微信  >-009fcc?logoWidth=1" title="蓬佩奥称将移除不可信中国应用 并点名微信  " alt="蓬佩奥称将移除不可信中国应用 并点名微信  "></a></p>
-<p><a href="https://github.com/bxhnqj353/ntdtv/blob/master/gb/2020/08/06/a102912421.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：悬赏千万美元阻外国干预大选     >-009fcc?logoWidth=1" title="蓬佩奥：悬赏千万美元阻外国干预大选  " alt="蓬佩奥：悬赏千万美元阻外国干预大选  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bxhnqj353/djy/blob/master/gb/20/8/6/n12310980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎巴嫩中国和朝鲜 24小时内三地大爆炸   >-009fcc?logoWidth=1" title="黎巴嫩中国和朝鲜 24小时内三地大爆炸  " alt="黎巴嫩中国和朝鲜 24小时内三地大爆炸  "></a></p>
 <p><a href="https://github.com/bxhnqj353/djy/blob/master/gb/20/8/5/n12307338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前中共高干病房医生曝光高层“特供”待遇   >-009fcc?logoWidth=1" title="前中共高干病房医生曝光高层“特供”待遇  " alt="前中共高干病房医生曝光高层“特供”待遇  "></a></p>
@@ -484,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bxhnqj353/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bxhnqj353/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bxhnqj353/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bxhnqj353/www/blob/master/README.md?q#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/bxhnqj353/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bxhnqj353/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bxhnqj353/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bxhnqj353/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bxhnqj353/www/blob/master/README.md?y#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/bxhnqj353/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/buuuu">git.io/buuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/ihhhh">git.io/ihhhh</a></div>
 
