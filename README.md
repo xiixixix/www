@@ -10,12 +10,12 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bxhnqj353/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bxhnqj353/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eeeeeeee">git.io/eeeeeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/mdd">x.co/mdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/x8888">git.io/x8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2333">x.co/2333</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/bxhnqj353/ntdtv/blob/master/gb/2020/08/06/a102912094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美卫生部长将访台 胡锡进一句话笑翻网友   >-009fcc?logoWidth=1" title="美卫生部长将访台 胡锡进一句话笑翻网友  " alt="美卫生部长将访台 胡锡进一句话笑翻网友  "></a></p>
-<p><a href="https://github.com/bxhnqj353/ntdtv/blob/master/gb/2020/08/06/a102912074.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军侦察机“夜探”广东/浙江满分作文网路炸锅>-009fcc?logoWidth=1" title="美军侦察机“夜探”广东/浙江满分作文网路炸锅  " alt="美军侦察机“夜探”广东/浙江满分作文网路炸锅  "></a></p>
+<p><a href="https://github.com/bxhnqj353/ntdtv/blob/master/gb/2020/08/06/a102912074.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞士罕见谴责 吓晕中共高层 /浙江满分作文网>-009fcc?logoWidth=1" title="瑞士罕见谴责 吓晕中共高层 /浙江满分作文网路炸锅  " alt="瑞士罕见谴责 吓晕中共高层 /浙江满分作文网路炸锅  "></a></p>
 <p><a href="https://github.com/bxhnqj353/ntdtv/blob/master/gb/2020/08/06/a102911811.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/向美英法联军致敬？“建军节”海报惊现美航母英>-009fcc?logoWidth=1" title="向美英法联军致敬？“建军节”海报惊现美航母英军舰  " alt="向美英法联军致敬？“建军节”海报惊现美航母英军舰  "></a></p>
 <p><a href="https://github.com/bxhnqj353/ntdtv/blob/master/gb/2020/08/06/a102911809.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒推兵役法全民备战 多地列应急物资清单  >-009fcc?logoWidth=1" title="陆媒推兵役法全民备战 多地列应急物资清单  " alt="陆媒推兵役法全民备战 多地列应急物资清单  "></a></p>
 <p><a href="https://github.com/bxhnqj353/ntdtv/blob/master/gb/2020/08/06/a102911748.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美首度公布试射洲际导弹 美防长：要打就要赢 >-009fcc?logoWidth=1" title="美首度公布试射洲际导弹 美防长：要打就要赢  " alt="美首度公布试射洲际导弹 美防长：要打就要赢  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bxhnqj353/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bxhnqj353/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bxhnqj353/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bxhnqj353/www/blob/master/README.md?f#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/bxhnqj353/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bxhnqj353/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bxhnqj353/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bxhnqj353/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bxhnqj353/www/blob/master/README.md?b#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/bxhnqj353/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/eeeeeeee">git.io/eeeeeeee</a></div>
+<div align="center">短网址: <a href="https://git.io/x8888">git.io/x8888</a></div>
 
