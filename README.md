@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bxhnqj353/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bxhnqj353/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ypppp">git.io/ypppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pcp">x.co/pcp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mffff">git.io/mffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u55">x.co/u55</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bxhnqj353/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bxhnqj353/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bxhnqj353/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bxhnqj353/www/blob/master/README.md?g#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/bxhnqj353/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bxhnqj353/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bxhnqj353/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bxhnqj353/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bxhnqj353/www/blob/master/README.md?g#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/bxhnqj353/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ypppp">git.io/ypppp</a></div>
+<div align="center">短网址: <a href="https://git.io/mffff">git.io/mffff</a></div>
 
