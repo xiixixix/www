@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/uadryd377/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/uadryd377/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dhhhh">git.io/dhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u22">x.co/u22</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jiiii">git.io/jiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/377">x.co/377</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/uadryd377/ntdtv/blob/master/gb/2020/08/07/a102912682.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/七常委隐身7天 北戴河吹响反习号？     >-009fcc?logoWidth=1" title="七常委隐身7天 北戴河吹响反习号？  " alt="七常委隐身7天 北戴河吹响反习号？  "></a></p>
 <p><a href="https://github.com/uadryd377/ntdtv/blob/master/gb/2020/08/07/a102912638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高官防疫有秘术 却向百姓隐瞒？闫丽梦揭内幕 >-009fcc?logoWidth=1" title="高官防疫有秘术 却向百姓隐瞒？闫丽梦揭内幕  " alt="高官防疫有秘术 却向百姓隐瞒？闫丽梦揭内幕  "></a></p>
 <p><a href="https://github.com/uadryd377/ntdtv/blob/master/gb/2020/08/07/a102912612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/学者：习近平遭党内严批 军方没准备好与美对抗>-009fcc?logoWidth=1" title="学者：习近平遭党内严批 军方没准备好与美对抗  " alt="学者：习近平遭党内严批 军方没准备好与美对抗  "></a></p>
+<p><a href="https://github.com/uadryd377/ntdtv/blob/master/gb/2020/08/07/a102913010.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普封杀令腾讯市值蒸发3200亿 港股陆股大>-009fcc?logoWidth=1" title="川普封杀令腾讯市值蒸发3200亿 港股陆股大跳水  " alt="川普封杀令腾讯市值蒸发3200亿 港股陆股大跳水  "></a></p>
 <p><a href="https://github.com/uadryd377/ntdtv/blob/master/gb/2020/08/03/a102908866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹获抗疫表彰 网友嘲讽：甩锅有功    >-009fcc?logoWidth=1" title="华春莹获抗疫表彰 网友嘲讽：甩锅有功  " alt="华春莹获抗疫表彰 网友嘲讽：甩锅有功  "></a></p>
 <p><a href="https://github.com/uadryd377/ntdtv/blob/master/gb/2020/08/07/a102912854.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆委会民调：超过9成台湾民众不满中共武吓  >-009fcc?logoWidth=1" title="陆委会民调：超过9成台湾民众不满中共武吓  " alt="陆委会民调：超过9成台湾民众不满中共武吓  "></a></p>
 <p><a href="https://github.com/uadryd377/ntdtv/blob/master/gb/2020/08/07/a102912825.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥力推“清洁网路” 阿里、百度、腾讯麻烦>-009fcc?logoWidth=1" title="蓬佩奥力推“清洁网路” 阿里、百度、腾讯麻烦了  " alt="蓬佩奥力推“清洁网路” 阿里、百度、腾讯麻烦了  "></a></p>
 <p><a href="https://github.com/uadryd377/ntdtv/blob/master/gb/2020/08/07/a102912784.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/奇迹！黎巴嫩男被炸飞 全身是血漂流30小时获>-009fcc?logoWidth=1" title="奇迹！黎巴嫩男被炸飞 全身是血漂流30小时获救  " alt="奇迹！黎巴嫩男被炸飞 全身是血漂流30小时获救  "></a></p>
-<p><a href="https://github.com/uadryd377/ntdtv/blob/master/gb/2020/08/07/a102912774.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹获抗疫表彰 网友嘲讽：甩锅有功    >-009fcc?logoWidth=1" title="华春莹获抗疫表彰 网友嘲讽：甩锅有功  " alt="华春莹获抗疫表彰 网友嘲讽：甩锅有功  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/uadryd377/djy/blob/master/gb/20/8/7/n12313591.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美封杀TikTok微信 中共外交部跳脚引嘲讽>-009fcc?logoWidth=1" title="美封杀TikTok微信 中共外交部跳脚引嘲讽  " alt="美封杀TikTok微信 中共外交部跳脚引嘲讽  "></a></p>
 <p><a href="https://github.com/uadryd377/djy/blob/master/gb/20/8/7/n12312940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：美中国防部长通话不同调的背后     >-009fcc?logoWidth=1" title="杨威：美中国防部长通话不同调的背后  " alt="杨威：美中国防部长通话不同调的背后  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/uadryd377/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uadryd377/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/uadryd377/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uadryd377/www/blob/master/README.md?c#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/uadryd377/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/uadryd377/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uadryd377/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/uadryd377/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uadryd377/www/blob/master/README.md?u#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/uadryd377/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dhhhh">git.io/dhhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/jiiii">git.io/jiiii</a></div>
 
