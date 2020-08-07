@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mbnamc353/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mbnamc353/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ctttt">git.io/ctttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppd">x.co/ppd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/stttt">git.io/stttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pkp">x.co/pkp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/07/a102912638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高官防疫有秘术 却向百姓隐瞒？闫丽梦揭内幕 >-009fcc?logoWidth=1" title="高官防疫有秘术 却向百姓隐瞒？闫丽梦揭内幕  " alt="高官防疫有秘术 却向百姓隐瞒？闫丽梦揭内幕  "></a></p>
 <p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/07/a102912612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/学者：习近平遭党内严批 军方没准备好与美对抗>-009fcc?logoWidth=1" title="学者：习近平遭党内严批 军方没准备好与美对抗  " alt="学者：习近平遭党内严批 军方没准备好与美对抗  "></a></p>
 <p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/07/a102912611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约中领馆不寻常 突然大规模销毁文件(视频)>-009fcc?logoWidth=1" title="纽约中领馆不寻常 突然大规模销毁文件(视频)  " alt="纽约中领馆不寻常 突然大规模销毁文件(视频)  "></a></p>
 <p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/06/a102912399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥称将移除不可信中国应用 并点名微信  >-009fcc?logoWidth=1" title="蓬佩奥称将移除不可信中国应用 并点名微信  " alt="蓬佩奥称将移除不可信中国应用 并点名微信  "></a></p>
 <p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/06/a102912365.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共财政部发通知 下令金融机构全面减薪   >-009fcc?logoWidth=1" title="中共财政部发通知 下令金融机构全面减薪  " alt="中共财政部发通知 下令金融机构全面减薪  "></a></p>
 <p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/06/a102912382.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅讲话被指分裂：一边奉陪到底 一边避免对抗>-009fcc?logoWidth=1" title="王毅讲话被指分裂：一边奉陪到底 一边避免对抗  " alt="王毅讲话被指分裂：一边奉陪到底 一边避免对抗  "></a></p>
-<p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/06/a102912326.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国专家批当局甩锅：甩给猪牛羊都行 唯独鱼清>-009fcc?logoWidth=1" title="中国专家批当局甩锅：甩给猪牛羊都行 唯独鱼清白  " alt="中国专家批当局甩锅：甩给猪牛羊都行 唯独鱼清白  "></a></p>
+<p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/07/a102912616.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郑文杰：破坏香港 中共自掘坟墓       >-009fcc?logoWidth=1" title="郑文杰：破坏香港 中共自掘坟墓  " alt="郑文杰：破坏香港 中共自掘坟墓  "></a></p>
+<p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/07/a102912603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国新病毒由蜱虫引发 江泽民曾被咬中毒   >-009fcc?logoWidth=1" title="中国新病毒由蜱虫引发 江泽民曾被咬中毒  " alt="中国新病毒由蜱虫引发 江泽民曾被咬中毒  "></a></p>
 <p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/07/a102912591.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/桑普：美封TikTok 或掀全面脱钩战   >-009fcc?logoWidth=1" title="桑普：美封TikTok 或掀全面脱钩战  " alt="桑普：美封TikTok 或掀全面脱钩战  "></a></p>
 <p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/07/a102912578.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共建水下监控系统 企图增加南海雷达覆盖  >-009fcc?logoWidth=1" title="中共建水下监控系统 企图增加南海雷达覆盖  " alt="中共建水下监控系统 企图增加南海雷达覆盖  "></a></p>
 <p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/03/a102908866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阿富汗政府：估计全国1000万人染疫    >-009fcc?logoWidth=1" title="阿富汗政府：估计全国1000万人染疫  " alt="阿富汗政府：估计全国1000万人染疫  "></a></p>
-<p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/06/a102912465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆男模传视频 揭被监禁内幕        >-009fcc?logoWidth=1" title="新疆男模传视频 揭被监禁内幕  " alt="新疆男模传视频 揭被监禁内幕  "></a></p>
-<p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/06/a102912469.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会报告：应对中共网络攻击要“转守为攻” >-009fcc?logoWidth=1" title="美国会报告：应对中共网络攻击要“转守为攻”  " alt="美国会报告：应对中共网络攻击要“转守为攻”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/mbnamc353/djy/blob/master/gb/20/8/6/n12311799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共七常委“隐身”6天 北戴河会议召开？  >-009fcc?logoWidth=1" title="中共七常委“隐身”6天 北戴河会议召开？  " alt="中共七常委“隐身”6天 北戴河会议召开？  "></a></p>
 <p><a href="https://github.com/mbnamc353/djy/blob/master/gb/20/8/6/n12311206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：美中南海一战 非空穴来风       >-009fcc?logoWidth=1" title="分析：美中南海一战 非空穴来风  " alt="分析：美中南海一战 非空穴来风  "></a></p>
@@ -39,17 +39,17 @@
 <p><a href="https://github.com/mbnamc353/djy/blob/master/gb/20/8/6/n12312325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被囚26年张玉环案：6天6夜刑讯逼供 狼狗咬>-009fcc?logoWidth=1" title="被囚26年张玉环案：6天6夜刑讯逼供 狼狗咬  " alt="被囚26年张玉环案：6天6夜刑讯逼供 狼狗咬  "></a></p>
 <p><a href="https://github.com/mbnamc353/djy/blob/master/gb/20/8/6/n12311999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中媒体大战：签证恐慌 掀起一波巨浪    >-009fcc?logoWidth=1" title="美中媒体大战：签证恐慌 掀起一波巨浪  " alt="美中媒体大战：签证恐慌 掀起一波巨浪  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/06/a102912345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美卫生部长访台日期确定 将代表川普会晤蔡英文>-009fcc?logoWidth=1" title="美卫生部长访台日期确定 将代表川普会晤蔡英文  " alt="美卫生部长访台日期确定 将代表川普会晤蔡英文  "></a></p>
+<p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/07/a102912584.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美净网行动，五大战线全面脱勾/崔天凯强调合作>-009fcc?logoWidth=1" title="美净网行动，五大战线全面脱勾/崔天凯强调合作，王毅服软喊话？  " alt="美净网行动，五大战线全面脱勾/崔天凯强调合作，王毅服软喊话？  "></a></p>
+<p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/06/a102912519.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/力争胜选连任 川普向美国人许下六大承诺   >-009fcc?logoWidth=1" title="力争胜选连任 川普向美国人许下六大承诺  " alt="力争胜选连任 川普向美国人许下六大承诺  "></a></p>
 <p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/06/a102911984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张林：瑞士威胁制裁 吓晕中共高层      >-009fcc?logoWidth=1" title="张林：瑞士威胁制裁 吓晕中共高层  " alt="张林：瑞士威胁制裁 吓晕中共高层  "></a></p>
-<p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/06/a102912228.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥宣布“清洁网络”5大举措 推美中数字脱>-009fcc?logoWidth=1" title="蓬佩奥宣布“清洁网络”5大举措 推美中数字脱钩  " alt="蓬佩奥宣布“清洁网络”5大举措 推美中数字脱钩  "></a></p>
+<p><a href="https://github.com/mbnamc353/djy/blob/master/gb/20/8/6/n12312058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/泄洪致巢湖被淹半月 政府推责        >-009fcc?logoWidth=1" title="泄洪致巢湖被淹半月 政府推责  " alt="泄洪致巢湖被淹半月 政府推责  "></a></p>
+<p><a href="https://github.com/mbnamc353/djy/blob/master/gb/20/8/6/n12312332.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/方天亮：药效与选战 羟氯喹引发的争议    >-009fcc?logoWidth=1" title="方天亮：药效与选战 羟氯喹引发的争议  " alt="方天亮：药效与选战 羟氯喹引发的争议  "></a></p>
 <p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/06/a102912328.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吃对早餐 醒脑又不发胖           >-009fcc?logoWidth=1" title="吃对早餐 醒脑又不发胖  " alt="吃对早餐 醒脑又不发胖  "></a></p>
-<p><a href="https://github.com/mbnamc353/djy/blob/master/gb/20/8/6/n12312058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巢湖水淹半月 民知泄洪政府称天灾      >-009fcc?logoWidth=1" title="巢湖水淹半月 民知泄洪政府称天灾  " alt="巢湖水淹半月 民知泄洪政府称天灾  "></a></p>
 <p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/05/a102910916.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/您被中共监控了吗%3F对着手机喊几声您喜欢的商品>-009fcc?logoWidth=1" title="您被中共监控了吗?对着手机喊几声您喜欢的商品试一试  " alt="您被中共监控了吗?对着手机喊几声您喜欢的商品试一试  "></a></p>
-<p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/06/a102911852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议是否会成为习近平的一个坎儿    >-009fcc?logoWidth=1" title="北戴河会议是否会成为习近平的一个坎儿  " alt="北戴河会议是否会成为习近平的一个坎儿  "></a></p>
-<p><a href="https://github.com/mbnamc353/djy/blob/master/gb/20/8/6/n12312116.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：中共对病毒的处理 对全球来说很可怕  >-009fcc?logoWidth=1" title="川普：中共对病毒的处理 对全球来说很可怕  " alt="川普：中共对病毒的处理 对全球来说很可怕  "></a></p>
 <p><a href="https://github.com/mbnamc353/djy/blob/master/gb/20/8/6/n12310360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽时撤中共广告 其它媒体效仿吗？      >-009fcc?logoWidth=1" title="纽时撤中共广告 其它媒体效仿吗？  " alt="纽时撤中共广告 其它媒体效仿吗？  "></a></p>
+<p><a href="https://github.com/mbnamc353/djy/blob/master/gb/20/8/6/n12311258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美官员访台北京跳脚 台：中共是麻烦制造者  >-009fcc?logoWidth=1" title="美官员访台北京跳脚 台：中共是麻烦制造者  " alt="美官员访台北京跳脚 台：中共是麻烦制造者  "></a></p>
+<p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/06/a102911852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议是否会成为习近平的一个坎儿    >-009fcc?logoWidth=1" title="北戴河会议是否会成为习近平的一个坎儿  " alt="北戴河会议是否会成为习近平的一个坎儿  "></a></p>
 <p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/06/a102912074.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞士罕见谴责 吓晕中共高层 /浙江满分作文网>-009fcc?logoWidth=1" title="瑞士罕见谴责 吓晕中共高层 /浙江满分作文网路炸锅  " alt="瑞士罕见谴责 吓晕中共高层 /浙江满分作文网路炸锅  "></a></p>
-<p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/05/a102910983.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强受辱 习近平的北戴河危机       >-009fcc?logoWidth=1" title="李克强受辱 习近平的北戴河危机  " alt="李克强受辱 习近平的北戴河危机  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/mbnamc353/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mbnamc353/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mbnamc353/www/blob/master/README.md?r#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/mbnamc353/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/mbnamc353/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mbnamc353/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mbnamc353/www/blob/master/README.md?t#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/mbnamc353/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ctttt">git.io/ctttt</a></div>
+<div align="center">短网址: <a href="https://git.io/stttt">git.io/stttt</a></div>
 
