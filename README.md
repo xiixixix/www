@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mbnamc353/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mbnamc353/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b3333">git.io/b3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u33">x.co/u33</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yffff">git.io/yffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppv">x.co/ppv</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -35,10 +35,11 @@
 <p><a href="https://github.com/mbnamc353/djy/blob/master/gb/20/8/6/n12310885.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贝鲁特大爆炸 反恐专家从视频中得出5结论  >-009fcc?logoWidth=1" title="贝鲁特大爆炸 反恐专家从视频中得出5结论  " alt="贝鲁特大爆炸 反恐专家从视频中得出5结论  "></a></p>
 <p><a href="https://github.com/mbnamc353/djy/blob/master/gb/20/8/4/n12305587.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共秘而不宣的大连疫情分布图        >-009fcc?logoWidth=1" title="中共秘而不宣的大连疫情分布图  " alt="中共秘而不宣的大连疫情分布图  "></a></p>
 <p><a href="https://github.com/mbnamc353/djy/blob/master/gb/20/8/6/n12312235.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法轮功“避疫良方” 惊现中共南方日报    >-009fcc?logoWidth=1" title="法轮功“避疫良方” 惊现中共南方日报  " alt="法轮功“避疫良方” 惊现中共南方日报  "></a></p>
-<p><a href="https://github.com/mbnamc353/djy/blob/master/gb/20/8/6/n12312058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巢湖水淹半月 民知泄洪政府称天灾      >-009fcc?logoWidth=1" title="巢湖水淹半月 民知泄洪政府称天灾  " alt="巢湖水淹半月 民知泄洪政府称天灾  "></a></p>
-<p><a href="https://github.com/mbnamc353/djy/blob/master/gb/20/8/6/n12312325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被囚26年张玉环案：6天6夜刑讯逼供 狼狗咬>-009fcc?logoWidth=1" title="被囚26年张玉环案：6天6夜刑讯逼供 狼狗咬  " alt="被囚26年张玉环案：6天6夜刑讯逼供 狼狗咬  "></a></p>
 <p><a href="https://github.com/mbnamc353/djy/blob/master/gb/20/8/6/n12311435.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京上百小区遭大规模强拆          >-009fcc?logoWidth=1" title="北京上百小区遭大规模强拆  " alt="北京上百小区遭大规模强拆  "></a></p>
+<p><a href="https://github.com/mbnamc353/djy/blob/master/gb/20/8/6/n12312325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被囚26年张玉环案：6天6夜刑讯逼供 狼狗咬>-009fcc?logoWidth=1" title="被囚26年张玉环案：6天6夜刑讯逼供 狼狗咬  " alt="被囚26年张玉环案：6天6夜刑讯逼供 狼狗咬  "></a></p>
+<p><a href="https://github.com/mbnamc353/djy/blob/master/gb/20/8/6/n12311999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中媒体大战：签证恐慌 掀起一波巨浪    >-009fcc?logoWidth=1" title="美中媒体大战：签证恐慌 掀起一波巨浪  " alt="美中媒体大战：签证恐慌 掀起一波巨浪  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/mbnamc353/djy/blob/master/gb/20/8/6/n12312058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巢湖水淹半月 民知泄洪政府称天灾      >-009fcc?logoWidth=1" title="巢湖水淹半月 民知泄洪政府称天灾  " alt="巢湖水淹半月 民知泄洪政府称天灾  "></a></p>
 <p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/06/a102911984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张林：瑞士威胁制裁 吓晕中共高层      >-009fcc?logoWidth=1" title="张林：瑞士威胁制裁 吓晕中共高层  " alt="张林：瑞士威胁制裁 吓晕中共高层  "></a></p>
 <p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/06/a102912228.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥宣布“清洁网络”5大举措 推美中数字脱>-009fcc?logoWidth=1" title="蓬佩奥宣布“清洁网络”5大举措 推美中数字脱钩  " alt="蓬佩奥宣布“清洁网络”5大举措 推美中数字脱钩  "></a></p>
 <p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/06/a102912328.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吃对早餐 醒脑又不发胖           >-009fcc?logoWidth=1" title="吃对早餐 醒脑又不发胖  " alt="吃对早餐 醒脑又不发胖  "></a></p>
@@ -487,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/mbnamc353/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mbnamc353/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mbnamc353/www/blob/master/README.md?c#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/mbnamc353/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/mbnamc353/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mbnamc353/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mbnamc353/www/blob/master/README.md?l#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/mbnamc353/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/b3333">git.io/b3333</a></div>
+<div align="center">短网址: <a href="https://git.io/yffff">git.io/yffff</a></div>
 
