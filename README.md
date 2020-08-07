@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/pxexow3039/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/pxexow3039/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/btttt">git.io/btttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aax">x.co/aax</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mjjjj">git.io/mjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppe">x.co/ppe</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,13 +40,13 @@
 <p><a href="https://github.com/pxexow3039/djy/blob/master/gb/20/8/6/n12312325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被囚26年张玉环案：6天6夜刑讯逼供 狼狗咬>-009fcc?logoWidth=1" title="被囚26年张玉环案：6天6夜刑讯逼供 狼狗咬  " alt="被囚26年张玉环案：6天6夜刑讯逼供 狼狗咬  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/pxexow3039/ntdtv/blob/master/gb/2020/08/07/a102912726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：美国“净网”五路总攻/瑞士冻结中共权贵>-009fcc?logoWidth=1" title="文昭：美国“净网”五路总攻/瑞士冻结中共权贵财产？  " alt="文昭：美国“净网”五路总攻/瑞士冻结中共权贵财产？  "></a></p>
-<p><a href="https://github.com/pxexow3039/ntdtv/blob/master/gb/2020/08/07/a102912603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国新病毒由蜱虫引发 江泽民曾被咬中毒   >-009fcc?logoWidth=1" title="中国新病毒由蜱虫引发 江泽民曾被咬中毒  " alt="中国新病毒由蜱虫引发 江泽民曾被咬中毒  "></a></p>
 <p><a href="https://github.com/pxexow3039/djy/blob/master/gb/20/8/7/n12312770.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/青年失业问题冲击政权？中共扩大实习规模   >-009fcc?logoWidth=1" title="青年失业问题冲击政权？中共扩大实习规模  " alt="青年失业问题冲击政权？中共扩大实习规模  "></a></p>
 <p><a href="https://github.com/pxexow3039/djy/blob/master/gb/20/8/7/n12313366.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：美国重拳出击 北京再施拖延伎俩   >-009fcc?logoWidth=1" title="周晓辉：美国重拳出击 北京再施拖延伎俩  " alt="周晓辉：美国重拳出击 北京再施拖延伎俩  "></a></p>
+<p><a href="https://github.com/pxexow3039/ntdtv/blob/master/gb/2020/08/07/a102912603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国新病毒由蜱虫引发 江泽民曾被咬中毒   >-009fcc?logoWidth=1" title="中国新病毒由蜱虫引发 江泽民曾被咬中毒  " alt="中国新病毒由蜱虫引发 江泽民曾被咬中毒  "></a></p>
 <p><a href="https://github.com/pxexow3039/ntdtv/blob/master/gb/2020/08/07/a102912728.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美“净网”全面清共 拜登要停贸易战     >-009fcc?logoWidth=1" title="美“净网”全面清共 拜登要停贸易战  " alt="美“净网”全面清共 拜登要停贸易战  "></a></p>
-<p><a href="https://github.com/pxexow3039/ntdtv/blob/master/gb/2020/08/07/a102912766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美断交前奏？台湾是美国盟友还是棋子？蓬佩奥>-009fcc?logoWidth=1" title="中美断交前奏？台湾是美国盟友还是棋子？蓬佩奥无视中共反对！  " alt="中美断交前奏？台湾是美国盟友还是棋子？蓬佩奥无视中共反对！  "></a></p>
 <p><a href="https://github.com/pxexow3039/djy/blob/master/gb/20/8/6/n12311999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中媒体大战：签证恐慌 掀起一波巨浪    >-009fcc?logoWidth=1" title="美中媒体大战：签证恐慌 掀起一波巨浪  " alt="美中媒体大战：签证恐慌 掀起一波巨浪  "></a></p>
 <p><a href="https://github.com/pxexow3039/djy/blob/master/gb/20/8/7/n12312787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陷入绝境 华为推“南泥湾”项目自救     >-009fcc?logoWidth=1" title="陷入绝境 华为推“南泥湾”项目自救  " alt="陷入绝境 华为推“南泥湾”项目自救  "></a></p>
+<p><a href="https://github.com/pxexow3039/ntdtv/blob/master/gb/2020/08/07/a102912766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美断交前奏？台湾是美国盟友还是棋子？蓬佩奥>-009fcc?logoWidth=1" title="中美断交前奏？台湾是美国盟友还是棋子？蓬佩奥无视中共反对！  " alt="中美断交前奏？台湾是美国盟友还是棋子？蓬佩奥无视中共反对！  "></a></p>
 <p><a href="https://github.com/pxexow3039/ntdtv/blob/master/gb/2020/08/07/a102912782.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北斗三号开通 中美军事仍差一代       >-009fcc?logoWidth=1" title="北斗三号开通 中美军事仍差一代  " alt="北斗三号开通 中美军事仍差一代  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/pxexow3039/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pxexow3039/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pxexow3039/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pxexow3039/www/blob/master/README.md?c#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/pxexow3039/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/pxexow3039/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pxexow3039/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pxexow3039/www/master/index.html?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pxexow3039/www/blob/master/README.md?d#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/pxexow3039/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/btttt">git.io/btttt</a></div>
+<div align="center">短网址: <a href="https://git.io/mjjjj">git.io/mjjjj</a></div>
 
