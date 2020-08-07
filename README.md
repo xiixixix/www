@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/uadryd377/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/uadryd377/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hyyyy">git.io/hyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/apa">x.co/apa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mmmmmmm">git.io/mmmmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/vaa">x.co/vaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -37,9 +37,10 @@
 <p><a href="https://github.com/uadryd377/djy/blob/master/gb/20/8/6/n12312235.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法轮功“避疫良方” 惊现中共南方日报    >-009fcc?logoWidth=1" title="法轮功“避疫良方” 惊现中共南方日报  " alt="法轮功“避疫良方” 惊现中共南方日报  "></a></p>
 <p><a href="https://github.com/uadryd377/djy/blob/master/gb/20/8/6/n12312451.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共国务院推个体经营 分析：地摊经济换名  >-009fcc?logoWidth=1" title="中共国务院推个体经营 分析：地摊经济换名  " alt="中共国务院推个体经营 分析：地摊经济换名  "></a></p>
 <p><a href="https://github.com/uadryd377/djy/blob/master/gb/20/8/7/n12312756.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河密会召开的信号显现          >-009fcc?logoWidth=1" title="北戴河密会召开的信号显现  " alt="北戴河密会召开的信号显现  "></a></p>
-<p><a href="https://github.com/uadryd377/djy/blob/master/gb/20/8/7/n12313366.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：美国重拳出击 北京再施拖延伎俩   >-009fcc?logoWidth=1" title="周晓辉：美国重拳出击 北京再施拖延伎俩  " alt="周晓辉：美国重拳出击 北京再施拖延伎俩  "></a></p>
+<p><a href="https://github.com/uadryd377/djy/blob/master/gb/20/8/7/n12312849.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉疫情惊人 战狼放软6大因素       >-009fcc?logoWidth=1" title="武汉疫情惊人 战狼放软6大因素  " alt="武汉疫情惊人 战狼放软6大因素  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/uadryd377/ntdtv/blob/master/gb/2020/08/07/a102912775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：从蓬佩奥演讲看美台关系走向     >-009fcc?logoWidth=1" title="王友群：从蓬佩奥演讲看美台关系走向  " alt="王友群：从蓬佩奥演讲看美台关系走向  "></a></p>
+<p><a href="https://github.com/uadryd377/djy/blob/master/gb/20/8/7/n12313366.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：美国重拳出击 北京再施拖延伎俩   >-009fcc?logoWidth=1" title="周晓辉：美国重拳出击 北京再施拖延伎俩  " alt="周晓辉：美国重拳出击 北京再施拖延伎俩  "></a></p>
 <p><a href="https://github.com/uadryd377/ntdtv/blob/master/gb/2020/08/07/a102912860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/你永远不该吃的九种食品！天然保健专家详解  >-009fcc?logoWidth=1" title="你永远不该吃的九种食品！天然保健专家详解  " alt="你永远不该吃的九种食品！天然保健专家详解  "></a></p>
 <p><a href="https://github.com/uadryd377/ntdtv/blob/master/gb/2020/08/07/a102912925.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/方天亮：药效与选战 羟氯喹引发的争议    >-009fcc?logoWidth=1" title="方天亮：药效与选战 羟氯喹引发的争议  " alt="方天亮：药效与选战 羟氯喹引发的争议  "></a></p>
 <p><a href="https://github.com/uadryd377/djy/blob/master/gb/20/8/7/n12312787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陷入绝境 华为推“南泥湾”项目自救     >-009fcc?logoWidth=1" title="陷入绝境 华为推“南泥湾”项目自救  " alt="陷入绝境 华为推“南泥湾”项目自救  "></a></p>
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/uadryd377/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uadryd377/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/uadryd377/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uadryd377/www/blob/master/README.md?i#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/uadryd377/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/uadryd377/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uadryd377/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/uadryd377/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uadryd377/www/blob/master/README.md?y#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/uadryd377/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hyyyy">git.io/hyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/mmmmmmm">git.io/mmmmmmm</a></div>
 
