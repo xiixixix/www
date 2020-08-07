@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/uadryd377/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/uadryd377/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/syyyy">git.io/syyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3388">x.co/3388</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ezzzz">git.io/ezzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u22">x.co/u22</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -24,7 +24,7 @@
 <p><a href="https://github.com/uadryd377/ntdtv/blob/master/gb/2020/08/07/a102913197.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中防长通话 火药味很浓但都称“管控风险” >-009fcc?logoWidth=1" title="美中防长通话 火药味很浓但都称“管控风险”  " alt="美中防长通话 火药味很浓但都称“管控风险”  "></a></p>
 <p><a href="https://github.com/uadryd377/ntdtv/blob/master/gb/2020/08/07/a102913144.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美财政部建议川普：不合规中企明年全部摘牌  >-009fcc?logoWidth=1" title="美财政部建议川普：不合规中企明年全部摘牌  " alt="美财政部建议川普：不合规中企明年全部摘牌  "></a></p>
 <p><a href="https://github.com/uadryd377/ntdtv/blob/master/gb/2020/08/07/a102913168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪“坚定维护”中美关系 王毅“拒绝脱钩”>-009fcc?logoWidth=1" title="杨洁篪“坚定维护”中美关系 王毅“拒绝脱钩”  " alt="杨洁篪“坚定维护”中美关系 王毅“拒绝脱钩”  "></a></p>
-<p><a href="https://github.com/uadryd377/ntdtv/blob/master/gb/2020/08/07/a102913172.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国禁TikTok和微信交易 华人：重建电信>-009fcc?logoWidth=1" title="美国禁TikTok和微信交易 华人：重建电信产业  " alt="美国禁TikTok和微信交易 华人：重建电信产业  "></a></p>
+<p><a href="https://github.com/uadryd377/ntdtv/blob/master/gb/2020/08/07/a102913181.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/清理渗透 美国会要六名校交出外国捐赠记录  >-009fcc?logoWidth=1" title="清理渗透 美国会要六名校交出外国捐赠记录  " alt="清理渗透 美国会要六名校交出外国捐赠记录  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/uadryd377/djy/blob/master/gb/20/8/7/n12314337.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中港11高官犯何罪 美制裁公布护照住址   >-009fcc?logoWidth=1" title="中港11高官犯何罪 美制裁公布护照住址  " alt="中港11高官犯何罪 美制裁公布护照住址  "></a></p>
 <p><a href="https://github.com/uadryd377/djy/blob/master/gb/20/8/7/n12314100.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普致信国会 列举微信对美国和华人威胁   >-009fcc?logoWidth=1" title="川普致信国会 列举微信对美国和华人威胁  " alt="川普致信国会 列举微信对美国和华人威胁  "></a></p>
@@ -489,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/uadryd377/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uadryd377/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/uadryd377/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uadryd377/www/blob/master/README.md?u#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/uadryd377/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/uadryd377/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uadryd377/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/uadryd377/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uadryd377/www/blob/master/README.md?s#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/uadryd377/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/syyyy">git.io/syyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/ezzzz">git.io/ezzzz</a></div>
 
