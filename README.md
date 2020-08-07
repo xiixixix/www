@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/pxexow3039/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/pxexow3039/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e5555">git.io/e5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p9p">x.co/p9p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/niiii">git.io/niiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa6">x.co/aa6</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,14 @@
 <p><a href="https://github.com/pxexow3039/djy/blob/master/gb/20/8/7/n12312756.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河密会召开的信号显现          >-009fcc?logoWidth=1" title="北戴河密会召开的信号显现  " alt="北戴河密会召开的信号显现  "></a></p>
 <p><a href="https://github.com/pxexow3039/djy/blob/master/gb/20/8/6/n12312325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被囚26年张玉环案：6天6夜刑讯逼供 狼狗咬>-009fcc?logoWidth=1" title="被囚26年张玉环案：6天6夜刑讯逼供 狼狗咬  " alt="被囚26年张玉环案：6天6夜刑讯逼供 狼狗咬  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/pxexow3039/ntdtv/blob/master/gb/2020/08/03/a102908866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阿富汗政府：估计全国1000万人染疫    >-009fcc?logoWidth=1" title="阿富汗政府：估计全国1000万人染疫  " alt="阿富汗政府：估计全国1000万人染疫  "></a></p>
-<p><a href="https://github.com/pxexow3039/ntdtv/blob/master/gb/2020/08/06/a102912094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美卫生部长将访台 胡锡进一句话笑翻网友   >-009fcc?logoWidth=1" title="美卫生部长将访台 胡锡进一句话笑翻网友  " alt="美卫生部长将访台 胡锡进一句话笑翻网友  "></a></p>
+<p><a href="https://github.com/pxexow3039/ntdtv/blob/master/gb/2020/08/06/a102911911.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江满分作文被批“不说人话” 网路炸锅   >-009fcc?logoWidth=1" title="浙江满分作文被批“不说人话” 网路炸锅  " alt="浙江满分作文被批“不说人话” 网路炸锅  "></a></p>
 <p><a href="https://github.com/pxexow3039/djy/blob/master/gb/20/8/6/n12311999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中媒体大战：签证恐慌 掀起一波巨浪    >-009fcc?logoWidth=1" title="美中媒体大战：签证恐慌 掀起一波巨浪  " alt="美中媒体大战：签证恐慌 掀起一波巨浪  "></a></p>
 <p><a href="https://github.com/pxexow3039/djy/blob/master/gb/20/8/7/n12312787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陷入绝境 华为推“南泥湾”项目自救     >-009fcc?logoWidth=1" title="陷入绝境 华为推“南泥湾”项目自救  " alt="陷入绝境 华为推“南泥湾”项目自救  "></a></p>
 <p><a href="https://github.com/pxexow3039/ntdtv/blob/master/gb/2020/08/07/a102912676.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部发言人罕见道出实情【嫖娼与爱国！下】｜>-009fcc?logoWidth=1" title="外交部发言人罕见道出实情【嫖娼与爱国！下】｜  " alt="外交部发言人罕见道出实情【嫖娼与爱国！下】｜  "></a></p>
-<p><a href="https://github.com/pxexow3039/ntdtv/blob/master/gb/2020/08/06/a102911984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张林：瑞士威胁制裁 吓晕中共高层      >-009fcc?logoWidth=1" title="张林：瑞士威胁制裁 吓晕中共高层  " alt="张林：瑞士威胁制裁 吓晕中共高层  "></a></p>
+<p><a href="https://github.com/pxexow3039/ntdtv/blob/master/gb/2020/08/06/a102912094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美卫生部长将访台 胡锡进一句话笑翻网友   >-009fcc?logoWidth=1" title="美卫生部长将访台 胡锡进一句话笑翻网友  " alt="美卫生部长将访台 胡锡进一句话笑翻网友  "></a></p>
 <p><a href="https://github.com/pxexow3039/djy/blob/master/gb/20/8/7/n12312908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美净网全面清共 美军机夜临广东       >-009fcc?logoWidth=1" title="美净网全面清共 美军机夜临广东  " alt="美净网全面清共 美军机夜临广东  "></a></p>
 <p><a href="https://github.com/pxexow3039/djy/blob/master/gb/20/8/7/n12312940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：美中国防部长通话不同调的背后     >-009fcc?logoWidth=1" title="杨威：美中国防部长通话不同调的背后  " alt="杨威：美中国防部长通话不同调的背后  "></a></p>
-<p><a href="https://github.com/pxexow3039/ntdtv/blob/master/gb/2020/08/07/a102912584.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美净网行动，五大战线全面脱勾/崔天凯强调合作>-009fcc?logoWidth=1" title="美净网行动，五大战线全面脱勾/崔天凯强调合作，王毅服软喊话？  " alt="美净网行动，五大战线全面脱勾/崔天凯强调合作，王毅服软喊话？  "></a></p>
-<p><a href="https://github.com/pxexow3039/ntdtv/blob/master/gb/2020/08/06/a102912328.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吃对早餐 醒脑又不发胖           >-009fcc?logoWidth=1" title="吃对早餐 醒脑又不发胖  " alt="吃对早餐 醒脑又不发胖  "></a></p>
+<p><a href="https://github.com/pxexow3039/ntdtv/blob/master/gb/2020/08/03/a102908866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阿富汗政府：估计全国1000万人染疫    >-009fcc?logoWidth=1" title="阿富汗政府：估计全国1000万人染疫  " alt="阿富汗政府：估计全国1000万人染疫  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/pxexow3039/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pxexow3039/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pxexow3039/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pxexow3039/www/blob/master/README.md?j#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/pxexow3039/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/pxexow3039/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pxexow3039/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pxexow3039/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pxexow3039/www/blob/master/README.md?w#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/pxexow3039/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/e5555">git.io/e5555</a></div>
+<div align="center">短网址: <a href="https://git.io/niiii">git.io/niiii</a></div>
 
