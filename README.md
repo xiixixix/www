@@ -10,11 +10,11 @@
 <div align="center">
 <a target="_blank" href="https://github.com/uadryd377/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/uadryd377/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/auuuu">git.io/auuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/vaa">x.co/vaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tssss">git.io/tssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppd">x.co/ppd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/uadryd377/ntdtv/blob/master/gb/2020/08/07/a102912863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共越作恶 世界更坚定灭共决心       >-009fcc?logoWidth=1" title="中共越作恶 世界更坚定灭共决心  " alt="中共越作恶 世界更坚定灭共决心  "></a></p>
+<p><a href="https://github.com/uadryd377/ntdtv/blob/master/gb/2020/08/07/a102912863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅对美喊话突变调 /世界更坚定灭共决心  >-009fcc?logoWidth=1" title="王毅对美喊话突变调 /世界更坚定灭共决心  " alt="王毅对美喊话突变调 /世界更坚定灭共决心  "></a></p>
 <p><a href="https://github.com/uadryd377/ntdtv/blob/master/gb/2020/08/07/a102912821.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅对美喊话突变调 网民：战狼呢？别服软啊！>-009fcc?logoWidth=1" title="王毅对美喊话突变调 网民：战狼呢？别服软啊！  " alt="王毅对美喊话突变调 网民：战狼呢？别服软啊！  "></a></p>
 <p><a href="https://github.com/uadryd377/ntdtv/blob/master/gb/2020/08/07/a102912753.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟售台4架先进无人机 堪比“死神” 北京敏>-009fcc?logoWidth=1" title="美拟售台4架先进无人机 堪比“死神” 北京敏感  " alt="美拟售台4架先进无人机 堪比“死神” 北京敏感  "></a></p>
 <p><a href="https://github.com/uadryd377/ntdtv/blob/master/gb/2020/08/07/a102912682.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/七常委隐身7天 北戴河吹响反习号？     >-009fcc?logoWidth=1" title="七常委隐身7天 北戴河吹响反习号？  " alt="七常委隐身7天 北戴河吹响反习号？  "></a></p>
@@ -39,15 +39,15 @@
 <p><a href="https://github.com/uadryd377/djy/blob/master/gb/20/8/7/n12312756.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河密会召开的信号显现          >-009fcc?logoWidth=1" title="北戴河密会召开的信号显现  " alt="北戴河密会召开的信号显现  "></a></p>
 <p><a href="https://github.com/uadryd377/djy/blob/master/gb/20/8/7/n12313366.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：美国重拳出击 北京再施拖延伎俩   >-009fcc?logoWidth=1" title="周晓辉：美国重拳出击 北京再施拖延伎俩  " alt="周晓辉：美国重拳出击 北京再施拖延伎俩  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/uadryd377/djy/blob/master/gb/20/8/7/n12312855.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普颁令 TikTok和微信45天未售将封禁>-009fcc?logoWidth=1" title="川普颁令 TikTok和微信45天未售将封禁  " alt="川普颁令 TikTok和微信45天未售将封禁  "></a></p>
 <p><a href="https://github.com/uadryd377/ntdtv/blob/master/gb/2020/08/07/a102912766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美断交前奏？台湾是美国盟友还是棋子？蓬佩奥>-009fcc?logoWidth=1" title="中美断交前奏？台湾是美国盟友还是棋子？蓬佩奥无视中共反对！  " alt="中美断交前奏？台湾是美国盟友还是棋子？蓬佩奥无视中共反对！  "></a></p>
-<p><a href="https://github.com/uadryd377/djy/blob/master/gb/20/8/6/n12312325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被囚26年张玉环案：6天6夜刑讯逼供 狼狗咬>-009fcc?logoWidth=1" title="被囚26年张玉环案：6天6夜刑讯逼供 狼狗咬  " alt="被囚26年张玉环案：6天6夜刑讯逼供 狼狗咬  "></a></p>
 <p><a href="https://github.com/uadryd377/ntdtv/blob/master/gb/2020/08/07/a102912860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/你永远不该吃的九种食品！天然保健专家详解  >-009fcc?logoWidth=1" title="你永远不该吃的九种食品！天然保健专家详解  " alt="你永远不该吃的九种食品！天然保健专家详解  "></a></p>
 <p><a href="https://github.com/uadryd377/ntdtv/blob/master/gb/2020/08/07/a102912799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢田：九项要素具备 美国才可收购抖音    >-009fcc?logoWidth=1" title="谢田：九项要素具备 美国才可收购抖音  " alt="谢田：九项要素具备 美国才可收购抖音  "></a></p>
+<p><a href="https://github.com/uadryd377/djy/blob/master/gb/20/8/7/n12312787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陷入绝境 华为推“南泥湾”项目自救     >-009fcc?logoWidth=1" title="陷入绝境 华为推“南泥湾”项目自救  " alt="陷入绝境 华为推“南泥湾”项目自救  "></a></p>
+<p><a href="https://github.com/uadryd377/djy/blob/master/gb/20/8/6/n12312325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被囚26年张玉环案：6天6夜刑讯逼供 狼狗咬>-009fcc?logoWidth=1" title="被囚26年张玉环案：6天6夜刑讯逼供 狼狗咬  " alt="被囚26年张玉环案：6天6夜刑讯逼供 狼狗咬  "></a></p>
 <p><a href="https://github.com/uadryd377/ntdtv/blob/master/gb/2020/08/07/a102912726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：美国“净网”五路总攻/瑞士冻结中共权贵>-009fcc?logoWidth=1" title="文昭：美国“净网”五路总攻/瑞士冻结中共权贵财产？  " alt="文昭：美国“净网”五路总攻/瑞士冻结中共权贵财产？  "></a></p>
 <p><a href="https://github.com/uadryd377/ntdtv/blob/master/gb/2020/08/07/a102912603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国新病毒由蜱虫引发 江泽民曾被咬中毒   >-009fcc?logoWidth=1" title="中国新病毒由蜱虫引发 江泽民曾被咬中毒  " alt="中国新病毒由蜱虫引发 江泽民曾被咬中毒  "></a></p>
+<p><a href="https://github.com/uadryd377/djy/blob/master/gb/20/8/6/n12312162.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/请来碎纸卡车 纽约中领馆大规模销毁文件   >-009fcc?logoWidth=1" title="请来碎纸卡车 纽约中领馆大规模销毁文件  " alt="请来碎纸卡车 纽约中领馆大规模销毁文件  "></a></p>
 <p><a href="https://github.com/uadryd377/djy/blob/master/gb/20/8/6/n12311999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中媒体大战：签证恐慌 掀起一波巨浪    >-009fcc?logoWidth=1" title="美中媒体大战：签证恐慌 掀起一波巨浪  " alt="美中媒体大战：签证恐慌 掀起一波巨浪  "></a></p>
-<p><a href="https://github.com/uadryd377/djy/blob/master/gb/20/8/7/n12312787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陷入绝境 华为推“南泥湾”项目自救     >-009fcc?logoWidth=1" title="陷入绝境 华为推“南泥湾”项目自救  " alt="陷入绝境 华为推“南泥湾”项目自救  "></a></p>
 <p><a href="https://github.com/uadryd377/ntdtv/blob/master/gb/2020/08/07/a102912611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约中领馆不寻常 突然大规模销毁文件(视频)>-009fcc?logoWidth=1" title="纽约中领馆不寻常 突然大规模销毁文件(视频)  " alt="纽约中领馆不寻常 突然大规模销毁文件(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/uadryd377/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uadryd377/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/uadryd377/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uadryd377/www/blob/master/README.md?n#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/uadryd377/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/uadryd377/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uadryd377/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/uadryd377/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uadryd377/www/blob/master/README.md?j#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/uadryd377/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/auuuu">git.io/auuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/tssss">git.io/tssss</a></div>
 
