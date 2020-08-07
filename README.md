@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mbnamc353/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mbnamc353/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yffff">git.io/yffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppv">x.co/ppv</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/brrrr">git.io/brrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aya">x.co/aya</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/06/a102912326.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国专家批当局甩锅：甩给猪牛羊都行 唯独鱼清>-009fcc?logoWidth=1" title="中国专家批当局甩锅：甩给猪牛羊都行 唯独鱼清白  " alt="中国专家批当局甩锅：甩给猪牛羊都行 唯独鱼清白  "></a></p>
 <p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/06/a102912094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美卫生部长将访台 胡锡进一句话笑翻网友   >-009fcc?logoWidth=1" title="美卫生部长将访台 胡锡进一句话笑翻网友  " alt="美卫生部长将访台 胡锡进一句话笑翻网友  "></a></p>
 <p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/06/a102912074.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞士罕见谴责 吓晕中共高层 /浙江满分作文网>-009fcc?logoWidth=1" title="瑞士罕见谴责 吓晕中共高层 /浙江满分作文网路炸锅  " alt="瑞士罕见谴责 吓晕中共高层 /浙江满分作文网路炸锅  "></a></p>
+<p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/07/a102912591.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/桑普：美封TikTok 或掀全面脱钩战   >-009fcc?logoWidth=1" title="桑普：美封TikTok 或掀全面脱钩战  " alt="桑普：美封TikTok 或掀全面脱钩战  "></a></p>
+<p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/07/a102912578.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共建水下监控系统 企图增加南海雷达覆盖  >-009fcc?logoWidth=1" title="中共建水下监控系统 企图增加南海雷达覆盖  " alt="中共建水下监控系统 企图增加南海雷达覆盖  "></a></p>
 <p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/03/a102908866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阿富汗政府：估计全国1000万人染疫    >-009fcc?logoWidth=1" title="阿富汗政府：估计全国1000万人染疫  " alt="阿富汗政府：估计全国1000万人染疫  "></a></p>
 <p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/06/a102912465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆男模传视频 揭被监禁内幕        >-009fcc?logoWidth=1" title="新疆男模传视频 揭被监禁内幕  " alt="新疆男模传视频 揭被监禁内幕  "></a></p>
 <p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/06/a102912469.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会报告：应对中共网络攻击要“转守为攻” >-009fcc?logoWidth=1" title="美国会报告：应对中共网络攻击要“转守为攻”  " alt="美国会报告：应对中共网络攻击要“转守为攻”  "></a></p>
-<p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/06/a102912463.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/近40驻美中国记者签证到期 面临离境    >-009fcc?logoWidth=1" title="近40驻美中国记者签证到期 面临离境  " alt="近40驻美中国记者签证到期 面临离境  "></a></p>
-<p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/06/a102912417.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒：房价若不降 “内循环”将成空谈    >-009fcc?logoWidth=1" title="陆媒：房价若不降 “内循环”将成空谈  " alt="陆媒：房价若不降 “内循环”将成空谈  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/mbnamc353/djy/blob/master/gb/20/8/6/n12311799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共七常委“隐身”6天 北戴河会议召开？  >-009fcc?logoWidth=1" title="中共七常委“隐身”6天 北戴河会议召开？  " alt="中共七常委“隐身”6天 北戴河会议召开？  "></a></p>
 <p><a href="https://github.com/mbnamc353/djy/blob/master/gb/20/8/6/n12310980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎巴嫩中国和朝鲜 24小时内三地大爆炸   >-009fcc?logoWidth=1" title="黎巴嫩中国和朝鲜 24小时内三地大爆炸  " alt="黎巴嫩中国和朝鲜 24小时内三地大爆炸  "></a></p>
@@ -40,17 +40,17 @@
 <p><a href="https://github.com/mbnamc353/djy/blob/master/gb/20/8/6/n12311999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中媒体大战：签证恐慌 掀起一波巨浪    >-009fcc?logoWidth=1" title="美中媒体大战：签证恐慌 掀起一波巨浪  " alt="美中媒体大战：签证恐慌 掀起一波巨浪  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/mbnamc353/djy/blob/master/gb/20/8/6/n12312058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巢湖水淹半月 民知泄洪政府称天灾      >-009fcc?logoWidth=1" title="巢湖水淹半月 民知泄洪政府称天灾  " alt="巢湖水淹半月 民知泄洪政府称天灾  "></a></p>
+<p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/06/a102912519.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/力争胜选连任 川普向美国人许下六大承诺   >-009fcc?logoWidth=1" title="力争胜选连任 川普向美国人许下六大承诺  " alt="力争胜选连任 川普向美国人许下六大承诺  "></a></p>
 <p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/06/a102911984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张林：瑞士威胁制裁 吓晕中共高层      >-009fcc?logoWidth=1" title="张林：瑞士威胁制裁 吓晕中共高层  " alt="张林：瑞士威胁制裁 吓晕中共高层  "></a></p>
 <p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/06/a102912228.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥宣布“清洁网络”5大举措 推美中数字脱>-009fcc?logoWidth=1" title="蓬佩奥宣布“清洁网络”5大举措 推美中数字脱钩  " alt="蓬佩奥宣布“清洁网络”5大举措 推美中数字脱钩  "></a></p>
 <p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/06/a102912328.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吃对早餐 醒脑又不发胖           >-009fcc?logoWidth=1" title="吃对早餐 醒脑又不发胖  " alt="吃对早餐 醒脑又不发胖  "></a></p>
-<p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/05/a102910916.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/您被中共监控了吗%3F对着手机喊几声您喜欢的商品>-009fcc?logoWidth=1" title="您被中共监控了吗?对着手机喊几声您喜欢的商品试一试  " alt="您被中共监控了吗?对着手机喊几声您喜欢的商品试一试  "></a></p>
 <p><a href="https://github.com/mbnamc353/djy/blob/master/gb/20/8/6/n12312451.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共国务院推个体经营 分析：地摊经济换名  >-009fcc?logoWidth=1" title="中共国务院推个体经营 分析：地摊经济换名  " alt="中共国务院推个体经营 分析：地摊经济换名  "></a></p>
 <p><a href="https://github.com/mbnamc353/djy/blob/master/gb/20/8/6/n12310360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽时撤中共广告 其它媒体效仿吗？      >-009fcc?logoWidth=1" title="纽时撤中共广告 其它媒体效仿吗？  " alt="纽时撤中共广告 其它媒体效仿吗？  "></a></p>
+<p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/05/a102910916.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/您被中共监控了吗%3F对着手机喊几声您喜欢的商品>-009fcc?logoWidth=1" title="您被中共监控了吗?对着手机喊几声您喜欢的商品试一试  " alt="您被中共监控了吗?对着手机喊几声您喜欢的商品试一试  "></a></p>
 <p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/06/a102911852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议是否会成为习近平的一个坎儿    >-009fcc?logoWidth=1" title="北戴河会议是否会成为习近平的一个坎儿  " alt="北戴河会议是否会成为习近平的一个坎儿  "></a></p>
 <p><a href="https://github.com/mbnamc353/djy/blob/master/gb/20/8/6/n12312458.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/继7月67次飞近中国沿海 美军机密集抵近广东>-009fcc?logoWidth=1" title="继7月67次飞近中国沿海 美军机密集抵近广东  " alt="继7月67次飞近中国沿海 美军机密集抵近广东  "></a></p>
 <p><a href="https://github.com/mbnamc353/djy/blob/master/gb/20/8/6/n12312497.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/15学者参与中共千人计划 加拿大情报局示警 >-009fcc?logoWidth=1" title="15学者参与中共千人计划 加拿大情报局示警  " alt="15学者参与中共千人计划 加拿大情报局示警  "></a></p>
 <p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/05/a102910983.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强受辱 习近平的北戴河危机       >-009fcc?logoWidth=1" title="李克强受辱 习近平的北戴河危机  " alt="李克强受辱 习近平的北戴河危机  "></a></p>
-<p><a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/2020/08/06/a102912221.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎巴嫩爆炸内幕深？共军缺钱4原因      >-009fcc?logoWidth=1" title="黎巴嫩爆炸内幕深？共军缺钱4原因  " alt="黎巴嫩爆炸内幕深？共军缺钱4原因  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -419,12 +419,12 @@
 <p><strong>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年的腥风血雨，二十多年的凌辱折磨，岁月飞逝，历史见证，迫害善良原本就是违背道义不得民心的...</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;99年中共因法轮功修炼人数超过党员而疯狂镇压，不惜制造一个个谎言，导演天安门自焚案栽赃法轮功，对坚持信仰的学员绑架抄家，用尽酷刑，导致数以百万计的家破人亡、妻离子散！然而中共高估了自己的造假宣传。各国政府纷纷谴责中共暴行，高度肯定法轮功提升道德、净化心灵、强身健体的卓越成效。在国内，声援法轮功的事件此起彼伏。成千上万人为被非法抓捕的学员请愿，演绎了不畏强权反迫害的一幕又一幕。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年过去了。如今法轮功“真善忍”普世价值观，超越民族文化，洪传世界一百多个国家，仅台湾就有八十万人修炼，其主要著作被译成四十多种文字，举世赞誉！而中共江泽民却因罪恶迫害，在海内外被数百万人联署举报，被二十多万人实名起诉。在这场对善良打压中，中共把法制、道德伦理都推向崩溃边缘。民心丧尽、天怒人怨!人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/2fRdXM" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/l6ngRE" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
 </details>
 
 <div align="center">
 <img src="https://raw.githubusercontent.com/mbnamc353/www/master/t/01.jpg">
-<h1><strong><a href="https://is.gd/2fRdXM" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
+<h1><strong><a href="https://is.gd/l6ngRE" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/mbnamc353/www/master/t/03.jpg"><br>
@@ -484,12 +484,12 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;于中共无所不在的欺骗洗脑与暴力胁迫下，有多少人放弃了诚实宽厚、仁爱谦和的道德底线，变得见风使舵、落井下石，甚至为一己之私而无恶不作。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;稍微盘点中共的罪恶，让人感到心情无比的沉重。了解了中共，才明白什么叫做罪恶滔天，罄竹难书。</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/2fRdXM" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/l6ngRE" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/mbnamc353/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mbnamc353/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mbnamc353/www/blob/master/README.md?l#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/mbnamc353/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/mbnamc353/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mbnamc353/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mbnamc353/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mbnamc353/www/blob/master/README.md?v#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/mbnamc353/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/yffff">git.io/yffff</a></div>
+<div align="center">短网址: <a href="https://git.io/brrrr">git.io/brrrr</a></div>
 
