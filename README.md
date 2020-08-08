@@ -10,11 +10,11 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ictloe3543/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ictloe3543/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fkkkk">git.io/fkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppg">x.co/ppg</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/xgggg">git.io/xgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3332">x.co/3332</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/ictloe3543/ntdtv/blob/master/gb/2020/08/08/a102913486.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乌鲁木齐疫情升温   全面“封村”     >-009fcc?logoWidth=1" title="乌鲁木齐疫情升温   全面“封村”  " alt="乌鲁木齐疫情升温   全面“封村”  "></a></p>
+<p><a href="https://github.com/ictloe3543/ntdtv/blob/master/gb/2020/08/08/a102913486.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乌鲁木齐疫情升温 全面“封村”       >-009fcc?logoWidth=1" title="乌鲁木齐疫情升温 全面“封村”  " alt="乌鲁木齐疫情升温 全面“封村”  "></a></p>
 <p><a href="https://github.com/ictloe3543/ntdtv/blob/master/gb/2020/08/08/a102913426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议敏感时期 李克强硬推“地摊经济” >-009fcc?logoWidth=1" title="北戴河会议敏感时期 李克强硬推“地摊经济”  " alt="北戴河会议敏感时期 李克强硬推“地摊经济”  "></a></p>
 <p><a href="https://github.com/ictloe3543/ntdtv/blob/master/gb/2020/08/08/a102913393.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河暗潮汹涌 中共元老联手对付习近平？  >-009fcc?logoWidth=1" title="北戴河暗潮汹涌 中共元老联手对付习近平？  " alt="北戴河暗潮汹涌 中共元老联手对付习近平？  "></a></p>
 <p><a href="https://github.com/ictloe3543/ntdtv/blob/master/gb/2020/08/07/a102913205.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两天判死两名加拿大公民 人质外交变死亡恐>-009fcc?logoWidth=1" title="中共两天判死两名加拿大公民 人质外交变死亡恐吓  " alt="中共两天判死两名加拿大公民 人质外交变死亡恐吓  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ictloe3543/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ictloe3543/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ictloe3543/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ictloe3543/www/blob/master/README.md?i#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ictloe3543/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ictloe3543/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ictloe3543/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ictloe3543/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ictloe3543/www/blob/master/README.md?g#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ictloe3543/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fkkkk">git.io/fkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/xgggg">git.io/xgggg</a></div>
 
