@@ -10,46 +10,43 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cfwmql339/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cfwmql339/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rrrrrrr">git.io/rrrrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a6a">x.co/a6a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/s6666">git.io/s6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppr">x.co/ppr</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913684.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共渗透严重 美国会提案“改造联合国”   >-009fcc?logoWidth=1" title="中共渗透严重 美国会提案“改造联合国”  " alt="中共渗透严重 美国会提案“改造联合国”  "></a></p>
+<p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913683.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：军队不贴心 习近平恐“枪杆子”里失政权>-009fcc?logoWidth=1" title="分析：军队不贴心 习近平恐“枪杆子”里失政权  " alt="分析：军队不贴心 习近平恐“枪杆子”里失政权  "></a></p>
+<p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913678.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒暗示习掌权到2035年/微信被禁中共会缺>-009fcc?logoWidth=1" title="党媒暗示习掌权到2035年/微信被禁中共会缺氧而亡  " alt="党媒暗示习掌权到2035年/微信被禁中共会缺氧而亡  "></a></p>
 <p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913617.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁11名中港高官 护照住址及罪行全曝光 >-009fcc?logoWidth=1" title="美制裁11名中港高官 护照住址及罪行全曝光  " alt="美制裁11名中港高官 护照住址及罪行全曝光  "></a></p>
 <p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913575.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美千万悬赏 纽约中领馆急毁文件       >-009fcc?logoWidth=1" title="美千万悬赏 纽约中领馆急毁文件  " alt="美千万悬赏 纽约中领馆急毁文件  "></a></p>
-<p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913499.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：美中剑拔弩张 不及北戴河刀光剑影   >-009fcc?logoWidth=1" title="港媒：美中剑拔弩张 不及北戴河刀光剑影  " alt="港媒：美中剑拔弩张 不及北戴河刀光剑影  "></a></p>
-<p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913486.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乌鲁木齐疫情升温 全面“封村”       >-009fcc?logoWidth=1" title="乌鲁木齐疫情升温 全面“封村”  " alt="乌鲁木齐疫情升温 全面“封村”  "></a></p>
-<p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议敏感时期 李克强硬推“地摊经济” >-009fcc?logoWidth=1" title="北戴河会议敏感时期 李克强硬推“地摊经济”  " alt="北戴河会议敏感时期 李克强硬推“地摊经济”  "></a></p>
-<p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913393.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河暗潮汹涌 中共元老联手对付习近平？  >-009fcc?logoWidth=1" title="北戴河暗潮汹涌 中共元老联手对付习近平？  " alt="北戴河暗潮汹涌 中共元老联手对付习近平？  "></a></p>
+<p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913499.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：南海剑拔弩张 不及北戴河刀光剑影   >-009fcc?logoWidth=1" title="港媒：南海剑拔弩张 不及北戴河刀光剑影  " alt="港媒：南海剑拔弩张 不及北戴河刀光剑影  "></a></p>
+<p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/03/a102908866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乌鲁木齐疫情升温 全面“封村”       >-009fcc?logoWidth=1" title="乌鲁木齐疫情升温 全面“封村”  " alt="乌鲁木齐疫情升温 全面“封村”  "></a></p>
+<p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5天2人染鼠疫死亡 内蒙启动三级预警    >-009fcc?logoWidth=1" title="5天2人染鼠疫死亡 内蒙启动三级预警  " alt="5天2人染鼠疫死亡 内蒙启动三级预警  "></a></p>
+<p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913584.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒暗示习近平掌权到2035年 比肩毛泽东引>-009fcc?logoWidth=1" title="党媒暗示习近平掌权到2035年 比肩毛泽东引议  " alt="党媒暗示习近平掌权到2035年 比肩毛泽东引议  "></a></p>
 <p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913599.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁中港高官 胡锡进“早有准备”引嘲笑  >-009fcc?logoWidth=1" title="美制裁中港高官 胡锡进“早有准备”引嘲笑  " alt="美制裁中港高官 胡锡进“早有准备”引嘲笑  "></a></p>
 <p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩国暴雨成灾至少21死11失踪 土石流警报升>-009fcc?logoWidth=1" title="韩国暴雨成灾至少21死11失踪 土石流警报升至最高等级  " alt="韩国暴雨成灾至少21死11失踪 土石流警报升至最高等级  "></a></p>
-<p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913485.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惊艳！日本推出可翻译8种语言的智慧口罩(视频>-009fcc?logoWidth=1" title="惊艳！日本推出可翻译8种语言的智慧口罩(视频)  " alt="惊艳！日本推出可翻译8种语言的智慧口罩(视频)  "></a></p>
-<p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913430.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁锁定中港11人 包括习近平当年副手  >-009fcc?logoWidth=1" title="美制裁锁定中港11人 包括习近平当年副手  " alt="美制裁锁定中港11人 包括习近平当年副手  "></a></p>
-<p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913425.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美情报机构：中共盼川普败选 试图影响选举  >-009fcc?logoWidth=1" title="美情报机构：中共盼川普败选 试图影响选举  " alt="美情报机构：中共盼川普败选 试图影响选举  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/7/n12314337.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中港11高官犯何罪 美制裁公布护照住址   >-009fcc?logoWidth=1" title="中港11高官犯何罪 美制裁公布护照住址  " alt="中港11高官犯何罪 美制裁公布护照住址  "></a></p>
-<p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/7/n12315119.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普45天后禁微信 你需要了解什么     >-009fcc?logoWidth=1" title="川普45天后禁微信 你需要了解什么  " alt="川普45天后禁微信 你需要了解什么  "></a></p>
-<p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/7/n12314824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中关系恶化 裴敏欣：习近平始料未及    >-009fcc?logoWidth=1" title="美中关系恶化 裴敏欣：习近平始料未及  " alt="美中关系恶化 裴敏欣：习近平始料未及  "></a></p>
-<p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/7/n12314576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国制裁11名中港官员 林郑和夏宝龙上榜  >-009fcc?logoWidth=1" title="美国制裁11名中港官员 林郑和夏宝龙上榜  " alt="美国制裁11名中港官员 林郑和夏宝龙上榜  "></a></p>
-<p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/8/n12315236.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：美国“清网”，胡锡进急了，中共怕了  >-009fcc?logoWidth=1" title="袁斌：美国“清网”，胡锡进急了，中共怕了  " alt="袁斌：美国“清网”，胡锡进急了，中共怕了  "></a></p>
 <p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/7/n12314680.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美大动作踩红线 北戴河要翻腾了       >-009fcc?logoWidth=1" title="美大动作踩红线 北戴河要翻腾了  " alt="美大动作踩红线 北戴河要翻腾了  "></a></p>
 <p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/7/n12314929.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普禁微信 首次触动中共防火墙内的心脏   >-009fcc?logoWidth=1" title="川普禁微信 首次触动中共防火墙内的心脏  " alt="川普禁微信 首次触动中共防火墙内的心脏  "></a></p>
+<p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/8/n12315236.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：美国“清网”，胡锡进急了，中共怕了  >-009fcc?logoWidth=1" title="袁斌：美国“清网”，胡锡进急了，中共怕了  " alt="袁斌：美国“清网”，胡锡进急了，中共怕了  "></a></p>
+<p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/7/n12314576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国制裁11名中港官员 林郑和夏宝龙上榜  >-009fcc?logoWidth=1" title="美国制裁11名中港官员 林郑和夏宝龙上榜  " alt="美国制裁11名中港官员 林郑和夏宝龙上榜  "></a></p>
+<p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/8/n12315278.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共前外交官：美国不能再给中共机会     >-009fcc?logoWidth=1" title="中共前外交官：美国不能再给中共机会  " alt="中共前外交官：美国不能再给中共机会  "></a></p>
+<p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/7/n12315119.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普45天后禁微信 你需要了解什么     >-009fcc?logoWidth=1" title="川普45天后禁微信 你需要了解什么  " alt="川普45天后禁微信 你需要了解什么  "></a></p>
+<p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/7/n12314824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中关系恶化 裴敏欣：习近平始料未及    >-009fcc?logoWidth=1" title="美中关系恶化 裴敏欣：习近平始料未及  " alt="美中关系恶化 裴敏欣：习近平始料未及  "></a></p>
 <p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/4/n12305587.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共秘而不宣的大连疫情分布图        >-009fcc?logoWidth=1" title="中共秘而不宣的大连疫情分布图  " alt="中共秘而不宣的大连疫情分布图  "></a></p>
 <p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/7/n12314650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邵阳禁电动车上路 数千市民抗议追打交警   >-009fcc?logoWidth=1" title="邵阳禁电动车上路 数千市民抗议追打交警  " alt="邵阳禁电动车上路 数千市民抗议追打交警  "></a></p>
-<p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/8/n12315278.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共前外交官：美国不能再给中共机会     >-009fcc?logoWidth=1" title="中共前外交官：美国不能再给中共机会  " alt="中共前外交官：美国不能再给中共机会  "></a></p>
-<p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/7/n12314351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国接连出重拳打击中共           >-009fcc?logoWidth=1" title="美国接连出重拳打击中共  " alt="美国接连出重拳打击中共  "></a></p>
-<p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/7/n12314739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为高管承认：麒麟芯片9月15日后停产   >-009fcc?logoWidth=1" title="华为高管承认：麒麟芯片9月15日后停产  " alt="华为高管承认：麒麟芯片9月15日后停产  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/8/n12315278.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共前外交官：美国再给中共20年就晚了   >-009fcc?logoWidth=1" title="中共前外交官：美国再给中共20年就晚了  " alt="中共前外交官：美国再给中共20年就晚了  "></a></p>
-<p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/05/a102911381.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微电影《路遇》               >-009fcc?logoWidth=1" title="微电影《路遇》  " alt="微电影《路遇》  "></a></p>
-<p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913615.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军工舞弊，习近平为何经常玩失踪？胡锡进叼>-009fcc?logoWidth=1" title="中共军工舞弊，习近平为何经常玩失踪？胡锡进叼盘改扔盘玩大的，王毅却认耸！  " alt="中共军工舞弊，习近平为何经常玩失踪？胡锡进叼盘改扔盘玩大的，王毅却认耸！  "></a></p>
-<p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/8/n12315314.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：中共苏--30 战机南海演习泄机密   >-009fcc?logoWidth=1" title="沈舟：中共苏-30 战机南海演习泄机密  " alt="沈舟：中共苏-30 战机南海演习泄机密  "></a></p>
 <p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/8/n12315270.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一天四重拳 美中防长通话透火药味      >-009fcc?logoWidth=1" title="一天四重拳 美中防长通话透火药味  " alt="一天四重拳 美中防长通话透火药味  "></a></p>
-<p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913539.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习能安渡北戴河？美对中共四连击       >-009fcc?logoWidth=1" title="习能安渡北戴河？美对中共四连击  " alt="习能安渡北戴河？美对中共四连击  "></a></p>
+<p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/7/n12314351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国接连出招反击中共            >-009fcc?logoWidth=1" title="美国接连出招反击中共  " alt="美国接连出招反击中共  "></a></p>
+<p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/8/n12315734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/觅真：中共正在死亡列车上加速奔跑      >-009fcc?logoWidth=1" title="觅真：中共正在死亡列车上加速奔跑  " alt="觅真：中共正在死亡列车上加速奔跑  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/05/a102911381.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微电影《路遇》               >-009fcc?logoWidth=1" title="微电影《路遇》  " alt="微电影《路遇》  "></a></p>
+<p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/7/n12314739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为高管承认：麒麟芯片9月15日后停产   >-009fcc?logoWidth=1" title="华为高管承认：麒麟芯片9月15日后停产  " alt="华为高管承认：麒麟芯片9月15日后停产  "></a></p>
 <p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913383.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程翔：跳过北戴河 习避问责图连任      >-009fcc?logoWidth=1" title="程翔：跳过北戴河 习避问责图连任  " alt="程翔：跳过北戴河 习避问责图连任  "></a></p>
+<p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/8/n12315314.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：中共苏--30 战机南海演习泄机密   >-009fcc?logoWidth=1" title="沈舟：中共苏-30 战机南海演习泄机密  " alt="沈舟：中共苏-30 战机南海演习泄机密  "></a></p>
+<p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：蓬佩奥的演讲与“中国共产党亡”   >-009fcc?logoWidth=1" title="王友群：蓬佩奥的演讲与“中国共产党亡”  " alt="王友群：蓬佩奥的演讲与“中国共产党亡”  "></a></p>
+<p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913630.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普禁微信 美部长访台 中共抓狂      >-009fcc?logoWidth=1" title="川普禁微信 美部长访台 中共抓狂  " alt="川普禁微信 美部长访台 中共抓狂  "></a></p>
 <p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/8/n12315211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：蓬佩奥的演讲与“中国共产党亡”   >-009fcc?logoWidth=1" title="王友群：蓬佩奥的演讲与“中国共产党亡”  " alt="王友群：蓬佩奥的演讲与“中国共产党亡”  "></a></p>
-<p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/7/n12314769.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南女子举报乱倒垃圾 一家四口被砍(慎入) >-009fcc?logoWidth=1" title="湖南女子举报乱倒垃圾 一家四口被砍(慎入)  " alt="湖南女子举报乱倒垃圾 一家四口被砍(慎入)  "></a></p>
-<p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/07/a102913205.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两天判死两名加拿大公民 人质外交变死亡恐>-009fcc?logoWidth=1" title="中共两天判死两名加拿大公民 人质外交变死亡恐吓  " alt="中共两天判死两名加拿大公民 人质外交变死亡恐吓  "></a></p>
-<p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/07/a102912860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/你永远不该吃的九种食品！天然保健专家详解  >-009fcc?logoWidth=1" title="你永远不该吃的九种食品！天然保健专家详解  " alt="你永远不该吃的九种食品！天然保健专家详解  "></a></p>
+<p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913504.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美加速脱钩 胡锡进忙得喘不过气/失言又失智？>-009fcc?logoWidth=1" title="美加速脱钩 胡锡进忙得喘不过气/失言又失智？拜登竞选就怕讲错话  " alt="美加速脱钩 胡锡进忙得喘不过气/失言又失智？拜登竞选就怕讲错话  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -418,12 +415,12 @@
 <p><strong>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年的腥风血雨，二十多年的凌辱折磨，岁月飞逝，历史见证，迫害善良原本就是违背道义不得民心的...</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;99年中共因法轮功修炼人数超过党员而疯狂镇压，不惜制造一个个谎言，导演天安门自焚案栽赃法轮功，对坚持信仰的学员绑架抄家，用尽酷刑，导致数以百万计的家破人亡、妻离子散！然而中共高估了自己的造假宣传。各国政府纷纷谴责中共暴行，高度肯定法轮功提升道德、净化心灵、强身健体的卓越成效。在国内，声援法轮功的事件此起彼伏。成千上万人为被非法抓捕的学员请愿，演绎了不畏强权反迫害的一幕又一幕。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年过去了。如今法轮功“真善忍”普世价值观，超越民族文化，洪传世界一百多个国家，仅台湾就有八十万人修炼，其主要著作被译成四十多种文字，举世赞誉！而中共江泽民却因罪恶迫害，在海内外被数百万人联署举报，被二十多万人实名起诉。在这场对善良打压中，中共把法制、道德伦理都推向崩溃边缘。民心丧尽、天怒人怨!人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/4efAU1" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/xyoKoD" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
 </details>
 
 <div align="center">
 <img src="https://raw.githubusercontent.com/cfwmql339/www/master/t/01.jpg">
-<h1><strong><a href="https://is.gd/4efAU1" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
+<h1><strong><a href="https://is.gd/xyoKoD" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/cfwmql339/www/master/t/03.jpg"><br>
@@ -483,12 +480,12 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;于中共无所不在的欺骗洗脑与暴力胁迫下，有多少人放弃了诚实宽厚、仁爱谦和的道德底线，变得见风使舵、落井下石，甚至为一己之私而无恶不作。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;稍微盘点中共的罪恶，让人感到心情无比的沉重。了解了中共，才明白什么叫做罪恶滔天，罄竹难书。</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/4efAU1" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/xyoKoD" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cfwmql339/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cfwmql339/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cfwmql339/www/blob/master/README.md?e#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cfwmql339/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cfwmql339/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cfwmql339/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cfwmql339/www/blob/master/README.md?i#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cfwmql339/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rrrrrrr">git.io/rrrrrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/s6666">git.io/s6666</a></div>
 
