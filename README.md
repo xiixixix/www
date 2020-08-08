@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/eyhtzi3796/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/eyhtzi3796/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dgggg">git.io/dgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pzp">x.co/pzp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cuuuu">git.io/cuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/kaa">x.co/kaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/07/a102913010.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普封杀令腾讯市值蒸发3200亿 港股陆股大>-009fcc?logoWidth=1" title="川普封杀令腾讯市值蒸发3200亿 港股陆股大跳水  " alt="川普封杀令腾讯市值蒸发3200亿 港股陆股大跳水  "></a></p>
 <p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/07/a102912863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅对美喊话突变调 /世界更坚定灭共决心  >-009fcc?logoWidth=1" title="王毅对美喊话突变调 /世界更坚定灭共决心  " alt="王毅对美喊话突变调 /世界更坚定灭共决心  "></a></p>
 <p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/08/a102913383.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程翔：跳过北戴河 习避问责图连任      >-009fcc?logoWidth=1" title="程翔：跳过北戴河 习避问责图连任  " alt="程翔：跳过北戴河 习避问责图连任  "></a></p>
+<p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/08/a102913360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁11中港官员 胡锡进“祝”美台建交  >-009fcc?logoWidth=1" title="美制裁11中港官员 胡锡进“祝”美台建交  " alt="美制裁11中港官员 胡锡进“祝”美台建交  "></a></p>
 <p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/03/a102908866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙现鼠疫死亡病例 35人被隔离      >-009fcc?logoWidth=1" title="内蒙现鼠疫死亡病例 35人被隔离  " alt="内蒙现鼠疫死亡病例 35人被隔离  "></a></p>
 <p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/07/a102912912.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎巴嫩大爆炸 女佣飞身急抱屋主女儿避难获赞 >-009fcc?logoWidth=1" title="黎巴嫩大爆炸 女佣飞身急抱屋主女儿避难获赞  " alt="黎巴嫩大爆炸 女佣飞身急抱屋主女儿避难获赞  "></a></p>
 <p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/07/a102913294.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普总统召开新闻发布会（同声翻译）     >-009fcc?logoWidth=1" title="川普总统召开新闻发布会（同声翻译）  " alt="川普总统召开新闻发布会（同声翻译）  "></a></p>
-<p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/07/a102913257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/詹乐霞要解散全国步枪协会 遭反诉      >-009fcc?logoWidth=1" title="詹乐霞要解散全国步枪协会 遭反诉  " alt="詹乐霞要解散全国步枪协会 遭反诉  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/eyhtzi3796/djy/blob/master/gb/20/8/7/n12314337.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中港11高官犯何罪 美制裁公布护照住址   >-009fcc?logoWidth=1" title="中港11高官犯何罪 美制裁公布护照住址  " alt="中港11高官犯何罪 美制裁公布护照住址  "></a></p>
 <p><a href="https://github.com/eyhtzi3796/djy/blob/master/gb/20/8/7/n12314680.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美大动作踩红线 北戴河要翻腾了       >-009fcc?logoWidth=1" title="美大动作踩红线 北戴河要翻腾了  " alt="美大动作踩红线 北戴河要翻腾了  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/eyhtzi3796/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/eyhtzi3796/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eyhtzi3796/www/blob/master/README.md?p#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/eyhtzi3796/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/eyhtzi3796/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/eyhtzi3796/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eyhtzi3796/www/blob/master/README.md?g#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/eyhtzi3796/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dgggg">git.io/dgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/cuuuu">git.io/cuuuu</a></div>
 
