@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cfwmql339/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cfwmql339/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bzzzz">git.io/bzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppy">x.co/ppy</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cnnnn">git.io/cnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pgp">x.co/pgp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,13 +40,13 @@
 <p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/8/n12315587.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/麻烦接踵而至 TikTok在美面临集体诉讼 >-009fcc?logoWidth=1" title="麻烦接踵而至 TikTok在美面临集体诉讼  " alt="麻烦接踵而至 TikTok在美面临集体诉讼  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/05/a102911381.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微电影《路遇》               >-009fcc?logoWidth=1" title="微电影《路遇》  " alt="微电影《路遇》  "></a></p>
-<p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/7/n12315002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约中领馆连续两天用碎纸卡车销毁文件    >-009fcc?logoWidth=1" title="纽约中领馆连续两天用碎纸卡车销毁文件  " alt="纽约中领馆连续两天用碎纸卡车销毁文件  "></a></p>
 <p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913383.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程翔：跳过北戴河 习避问责图连任      >-009fcc?logoWidth=1" title="程翔：跳过北戴河 习避问责图连任  " alt="程翔：跳过北戴河 习避问责图连任  "></a></p>
-<p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/7/n12314337.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中港11高官犯何罪 美制裁公布护照住址   >-009fcc?logoWidth=1" title="中港11高官犯何罪 美制裁公布护照住址  " alt="中港11高官犯何罪 美制裁公布护照住址  "></a></p>
-<p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/8/n12315270.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一天四重拳 美中防长通话透火药味      >-009fcc?logoWidth=1" title="一天四重拳 美中防长通话透火药味  " alt="一天四重拳 美中防长通话透火药味  "></a></p>
+<p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/8/n12315252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/：美制裁林郑 北京求和 五毛噤声      >-009fcc?logoWidth=1" title="：美制裁林郑 北京求和 五毛噤声  " alt="：美制裁林郑 北京求和 五毛噤声  "></a></p>
+<p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/7/n12314351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国接连出招反击中共            >-009fcc?logoWidth=1" title="美国接连出招反击中共  " alt="美国接连出招反击中共  "></a></p>
 <p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：蓬佩奥的演讲与“中国共产党亡”   >-009fcc?logoWidth=1" title="王友群：蓬佩奥的演讲与“中国共产党亡”  " alt="王友群：蓬佩奥的演讲与“中国共产党亡”  "></a></p>
 <p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913630.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普禁微信 美部长访台 中共抓狂      >-009fcc?logoWidth=1" title="川普禁微信 美部长访台 中共抓狂  " alt="川普禁微信 美部长访台 中共抓狂  "></a></p>
-<p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/7/n12314351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国接连出招反击中共            >-009fcc?logoWidth=1" title="美国接连出招反击中共  " alt="美国接连出招反击中共  "></a></p>
+<p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/8/n12315734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/觅真：中共正在死亡列车上加速奔跑      >-009fcc?logoWidth=1" title="觅真：中共正在死亡列车上加速奔跑  " alt="觅真：中共正在死亡列车上加速奔跑  "></a></p>
+<p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/8/n12315270.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一天四重拳 美中防长通话透火药味      >-009fcc?logoWidth=1" title="一天四重拳 美中防长通话透火药味  " alt="一天四重拳 美中防长通话透火药味  "></a></p>
 <p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913504.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美加速脱钩 胡锡进忙得喘不过气/失言又失智？>-009fcc?logoWidth=1" title="美加速脱钩 胡锡进忙得喘不过气/失言又失智？拜登竞选就怕讲错话  " alt="美加速脱钩 胡锡进忙得喘不过气/失言又失智？拜登竞选就怕讲错话  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cfwmql339/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cfwmql339/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cfwmql339/www/blob/master/README.md?u#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cfwmql339/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cfwmql339/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cfwmql339/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cfwmql339/www/blob/master/README.md?p#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cfwmql339/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bzzzz">git.io/bzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/cnnnn">git.io/cnnnn</a></div>
 
