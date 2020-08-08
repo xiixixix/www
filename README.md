@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ictloe3543/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ictloe3543/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hhhhh">git.io/hhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aua">x.co/aua</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jdddd">git.io/jdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aae">x.co/aae</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,16 +41,15 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ictloe3543/djy/blob/master/gb/20/8/8/n12315278.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共前外交官：美国再给中共20年就晚了   >-009fcc?logoWidth=1" title="中共前外交官：美国再给中共20年就晚了  " alt="中共前外交官：美国再给中共20年就晚了  "></a></p>
 <p><a href="https://github.com/ictloe3543/ntdtv/blob/master/gb/2020/08/05/a102911381.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微电影《路遇》               >-009fcc?logoWidth=1" title="微电影《路遇》  " alt="微电影《路遇》  "></a></p>
-<p><a href="https://github.com/ictloe3543/ntdtv/blob/master/gb/2020/08/08/a102913504.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美加速脱钩 胡锡进忙得喘不过气/失言又失智？>-009fcc?logoWidth=1" title="美加速脱钩 胡锡进忙得喘不过气/失言又失智？拜登竞选就怕讲错话  " alt="美加速脱钩 胡锡进忙得喘不过气/失言又失智？拜登竞选就怕讲错话  "></a></p>
 <p><a href="https://github.com/ictloe3543/djy/blob/master/gb/20/8/7/n12314351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏宝龙等11名高官被美制裁         >-009fcc?logoWidth=1" title="夏宝龙等11名高官被美制裁  " alt="夏宝龙等11名高官被美制裁  "></a></p>
 <p><a href="https://github.com/ictloe3543/ntdtv/blob/master/gb/2020/08/08/a102913383.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程翔：跳过北戴河 习避问责图连任      >-009fcc?logoWidth=1" title="程翔：跳过北戴河 习避问责图连任  " alt="程翔：跳过北戴河 习避问责图连任  "></a></p>
 <p><a href="https://github.com/ictloe3543/djy/blob/master/gb/20/8/8/n12315211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：蓬佩奥的演讲与“中国共产党亡”   >-009fcc?logoWidth=1" title="王友群：蓬佩奥的演讲与“中国共产党亡”  " alt="王友群：蓬佩奥的演讲与“中国共产党亡”  "></a></p>
 <p><a href="https://github.com/ictloe3543/djy/blob/master/gb/20/8/7/n12314769.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南女子举报乱倒垃圾 一家四口被砍(慎入) >-009fcc?logoWidth=1" title="湖南女子举报乱倒垃圾 一家四口被砍(慎入)  " alt="湖南女子举报乱倒垃圾 一家四口被砍(慎入)  "></a></p>
-<p><a href="https://github.com/ictloe3543/ntdtv/blob/master/gb/2020/08/08/a102913563.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港制裁名单出台！抖音、微信禁用      >-009fcc?logoWidth=1" title="香港制裁名单出台！抖音、微信禁用  " alt="香港制裁名单出台！抖音、微信禁用  "></a></p>
+<p><a href="https://github.com/ictloe3543/ntdtv/blob/master/gb/2020/08/07/a102912860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/你永远不该吃的九种食品！天然保健专家详解  >-009fcc?logoWidth=1" title="你永远不该吃的九种食品！天然保健专家详解  " alt="你永远不该吃的九种食品！天然保健专家详解  "></a></p>
 <p><a href="https://github.com/ictloe3543/djy/blob/master/gb/20/8/8/n12315314.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：中共苏--30 战机南海演习泄机密   >-009fcc?logoWidth=1" title="沈舟：中共苏-30 战机南海演习泄机密  " alt="沈舟：中共苏-30 战机南海演习泄机密  "></a></p>
 <p><a href="https://github.com/ictloe3543/djy/blob/master/gb/20/8/7/n12314458.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共四大国有银行内部测试“数字人民币”   >-009fcc?logoWidth=1" title="中共四大国有银行内部测试“数字人民币”  " alt="中共四大国有银行内部测试“数字人民币”  "></a></p>
+<p><a href="https://github.com/ictloe3543/ntdtv/blob/master/gb/2020/08/08/a102913563.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港制裁名单出台！抖音、微信禁用      >-009fcc?logoWidth=1" title="香港制裁名单出台！抖音、微信禁用  " alt="香港制裁名单出台！抖音、微信禁用  "></a></p>
 <p><a href="https://github.com/ictloe3543/ntdtv/blob/master/gb/2020/08/07/a102913122.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/气疯中共？美卫生部长将代表川普会晤蔡总统  >-009fcc?logoWidth=1" title="气疯中共？美卫生部长将代表川普会晤蔡总统  " alt="气疯中共？美卫生部长将代表川普会晤蔡总统  "></a></p>
-<p><a href="https://github.com/ictloe3543/ntdtv/blob/master/gb/2020/08/07/a102912860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/你永远不该吃的九种食品！天然保健专家详解  >-009fcc?logoWidth=1" title="你永远不该吃的九种食品！天然保健专家详解  " alt="你永远不该吃的九种食品！天然保健专家详解  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -488,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ictloe3543/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ictloe3543/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ictloe3543/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ictloe3543/www/blob/master/README.md?a#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ictloe3543/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ictloe3543/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ictloe3543/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ictloe3543/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ictloe3543/www/blob/master/README.md?i#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ictloe3543/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hhhhh">git.io/hhhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/jdddd">git.io/jdddd</a></div>
 
