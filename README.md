@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cfwmql339/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cfwmql339/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/buuuu">git.io/buuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppd">x.co/ppd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pdddd">git.io/pdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a4a">x.co/a4a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913617.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁11名中港高官 护照住址及罪行全曝光 >-009fcc?logoWidth=1" title="美制裁11名中港高官 护照住址及罪行全曝光  " alt="美制裁11名中港高官 护照住址及罪行全曝光  "></a></p>
 <p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913575.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美千万悬赏 纽约中领馆急毁文件       >-009fcc?logoWidth=1" title="美千万悬赏 纽约中领馆急毁文件  " alt="美千万悬赏 纽约中领馆急毁文件  "></a></p>
 <p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913499.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：南海剑拔弩张 不及北戴河刀光剑影   >-009fcc?logoWidth=1" title="港媒：南海剑拔弩张 不及北戴河刀光剑影  " alt="港媒：南海剑拔弩张 不及北戴河刀光剑影  "></a></p>
+<p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913841.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁中港11名官员  港银行业谨慎应对  >-009fcc?logoWidth=1" title="美制裁中港11名官员  港银行业谨慎应对  " alt="美制裁中港11名官员  港银行业谨慎应对  "></a></p>
 <p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普拟以行政命令 解决纾困谈判僵局     >-009fcc?logoWidth=1" title="川普拟以行政命令 解决纾困谈判僵局  " alt="川普拟以行政命令 解决纾困谈判僵局  "></a></p>
 <p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913809.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美卫长再赞台防疫 陈时中：免隔离有事“我负责>-009fcc?logoWidth=1" title="美卫长再赞台防疫 陈时中：免隔离有事“我负责”  " alt="美卫长再赞台防疫 陈时中：免隔离有事“我负责”  "></a></p>
 <p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913788.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南邵阳禁电动车上路 引发数千人抗议    >-009fcc?logoWidth=1" title="湖南邵阳禁电动车上路 引发数千人抗议  " alt="湖南邵阳禁电动车上路 引发数千人抗议  "></a></p>
 <p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/03/a102908866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乌鲁木齐疫情升温 全面“封村”       >-009fcc?logoWidth=1" title="乌鲁木齐疫情升温 全面“封村”  " alt="乌鲁木齐疫情升温 全面“封村”  "></a></p>
-<p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5天2人染鼠疫死亡 内蒙启动三级预警    >-009fcc?logoWidth=1" title="5天2人染鼠疫死亡 内蒙启动三级预警  " alt="5天2人染鼠疫死亡 内蒙启动三级预警  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/7/n12314680.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美大动作踩红线 北戴河要翻腾了       >-009fcc?logoWidth=1" title="美大动作踩红线 北戴河要翻腾了  " alt="美大动作踩红线 北戴河要翻腾了  "></a></p>
 <p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/7/n12314929.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普禁微信 首次触动中共防火墙内的心脏   >-009fcc?logoWidth=1" title="川普禁微信 首次触动中共防火墙内的心脏  " alt="川普禁微信 首次触动中共防火墙内的心脏  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cfwmql339/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cfwmql339/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cfwmql339/www/blob/master/README.md?p#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cfwmql339/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cfwmql339/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cfwmql339/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cfwmql339/www/blob/master/README.md?r#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cfwmql339/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/buuuu">git.io/buuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/pdddd">git.io/pdddd</a></div>
 
