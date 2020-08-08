@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cfwmql339/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cfwmql339/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mjjjj">git.io/mjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j33">x.co/j33</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bssss">git.io/bssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a6a">x.co/a6a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,7 +41,7 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/05/a102911381.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微电影《路遇》               >-009fcc?logoWidth=1" title="微电影《路遇》  " alt="微电影《路遇》  "></a></p>
 <p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913383.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程翔：跳过北戴河 习避问责图连任      >-009fcc?logoWidth=1" title="程翔：跳过北戴河 习避问责图连任  " alt="程翔：跳过北戴河 习避问责图连任  "></a></p>
-<p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/8/n12315252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/：美制裁林郑 北京求和 五毛噤声      >-009fcc?logoWidth=1" title="：美制裁林郑 北京求和 五毛噤声  " alt="：美制裁林郑 北京求和 五毛噤声  "></a></p>
+<p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/8/n12315252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁林郑 北京求和 五毛噤声       >-009fcc?logoWidth=1" title="美制裁林郑 北京求和 五毛噤声  " alt="美制裁林郑 北京求和 五毛噤声  "></a></p>
 <p><a href="https://github.com/cfwmql339/djy/blob/master/gb/20/8/7/n12314351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国接连出招反击中共            >-009fcc?logoWidth=1" title="美国接连出招反击中共  " alt="美国接连出招反击中共  "></a></p>
 <p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：蓬佩奥的演讲与“中国共产党亡”   >-009fcc?logoWidth=1" title="王友群：蓬佩奥的演讲与“中国共产党亡”  " alt="王友群：蓬佩奥的演讲与“中国共产党亡”  "></a></p>
 <p><a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/2020/08/08/a102913630.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普禁微信 美部长访台 中共抓狂      >-009fcc?logoWidth=1" title="川普禁微信 美部长访台 中共抓狂  " alt="川普禁微信 美部长访台 中共抓狂  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cfwmql339/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cfwmql339/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cfwmql339/www/blob/master/README.md?y#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cfwmql339/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cfwmql339/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cfwmql339/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cfwmql339/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cfwmql339/www/blob/master/README.md?x#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cfwmql339/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mjjjj">git.io/mjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/bssss">git.io/bssss</a></div>
 
