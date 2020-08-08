@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/eyhtzi3796/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/eyhtzi3796/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/giiii">git.io/giiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9aa">x.co/9aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ciiii">git.io/ciiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pmp">x.co/pmp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/08/a102913486.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乌鲁木齐疫情升温   全面“封村”     >-009fcc?logoWidth=1" title="乌鲁木齐疫情升温   全面“封村”  " alt="乌鲁木齐疫情升温   全面“封村”  "></a></p>
 <p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/08/a102913426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议敏感时期 李克强硬推“地摊经济” >-009fcc?logoWidth=1" title="北戴河会议敏感时期 李克强硬推“地摊经济”  " alt="北戴河会议敏感时期 李克强硬推“地摊经济”  "></a></p>
 <p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/08/a102913393.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河暗潮汹涌 中共元老联手对付习近平？  >-009fcc?logoWidth=1" title="北戴河暗潮汹涌 中共元老联手对付习近平？  " alt="北戴河暗潮汹涌 中共元老联手对付习近平？  "></a></p>
 <p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/07/a102913205.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两天判死两名加拿大公民 人质外交变死亡恐>-009fcc?logoWidth=1" title="中共两天判死两名加拿大公民 人质外交变死亡恐吓  " alt="中共两天判死两名加拿大公民 人质外交变死亡恐吓  "></a></p>
 <p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/07/a102913168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪“坚定维护”中美关系 王毅“拒绝脱钩”>-009fcc?logoWidth=1" title="杨洁篪“坚定维护”中美关系 王毅“拒绝脱钩”  " alt="杨洁篪“坚定维护”中美关系 王毅“拒绝脱钩”  "></a></p>
 <p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/07/a102912611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约中领馆不寻常 突然大规模销毁文件(视频)>-009fcc?logoWidth=1" title="纽约中领馆不寻常 突然大规模销毁文件(视频)  " alt="纽约中领馆不寻常 突然大规模销毁文件(视频)  "></a></p>
-<p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/07/a102913010.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普封杀令腾讯市值蒸发3200亿 港股陆股大>-009fcc?logoWidth=1" title="川普封杀令腾讯市值蒸发3200亿 港股陆股大跳水  " alt="川普封杀令腾讯市值蒸发3200亿 港股陆股大跳水  "></a></p>
+<p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/08/a102913485.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惊艳！日本推出可翻译8种语言的智慧口罩(视频>-009fcc?logoWidth=1" title="惊艳！日本推出可翻译8种语言的智慧口罩(视频)  " alt="惊艳！日本推出可翻译8种语言的智慧口罩(视频)  "></a></p>
 <p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/08/a102913430.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁锁定中港11人 包括习近平当年副手  >-009fcc?logoWidth=1" title="美制裁锁定中港11人 包括习近平当年副手  " alt="美制裁锁定中港11人 包括习近平当年副手  "></a></p>
 <p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/08/a102913425.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美情报机构：中共盼川普败选 试图影响选举  >-009fcc?logoWidth=1" title="美情报机构：中共盼川普败选 试图影响选举  " alt="美情报机构：中共盼川普败选 试图影响选举  "></a></p>
+<p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/07/a102912973.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/勃朗峰冰川恐崩塌 意大利小镇紧急疏散    >-009fcc?logoWidth=1" title="勃朗峰冰川恐崩塌 意大利小镇紧急疏散  " alt="勃朗峰冰川恐崩塌 意大利小镇紧急疏散  "></a></p>
 <p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/08/a102913383.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程翔：跳过北戴河 习避问责图连任      >-009fcc?logoWidth=1" title="程翔：跳过北戴河 习避问责图连任  " alt="程翔：跳过北戴河 习避问责图连任  "></a></p>
-<p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/08/a102913360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁11中港官员 胡锡进“祝”美台建交  >-009fcc?logoWidth=1" title="美制裁11中港官员 胡锡进“祝”美台建交  " alt="美制裁11中港官员 胡锡进“祝”美台建交  "></a></p>
-<p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/03/a102908866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙现鼠疫死亡病例 35人被隔离      >-009fcc?logoWidth=1" title="内蒙现鼠疫死亡病例 35人被隔离  " alt="内蒙现鼠疫死亡病例 35人被隔离  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/eyhtzi3796/djy/blob/master/gb/20/8/7/n12314337.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中港11高官犯何罪 美制裁公布护照住址   >-009fcc?logoWidth=1" title="中港11高官犯何罪 美制裁公布护照住址  " alt="中港11高官犯何罪 美制裁公布护照住址  "></a></p>
 <p><a href="https://github.com/eyhtzi3796/djy/blob/master/gb/20/8/7/n12314680.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美大动作踩红线 北戴河要翻腾了       >-009fcc?logoWidth=1" title="美大动作踩红线 北戴河要翻腾了  " alt="美大动作踩红线 北戴河要翻腾了  "></a></p>
@@ -39,17 +39,17 @@
 <p><a href="https://github.com/eyhtzi3796/djy/blob/master/gb/20/8/7/n12314351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏宝龙等11名高官被美制裁         >-009fcc?logoWidth=1" title="夏宝龙等11名高官被美制裁  " alt="夏宝龙等11名高官被美制裁  "></a></p>
 <p><a href="https://github.com/eyhtzi3796/djy/blob/master/gb/20/8/7/n12315002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约中领馆连续两天用碎纸卡车销毁文件    >-009fcc?logoWidth=1" title="纽约中领馆连续两天用碎纸卡车销毁文件  " alt="纽约中领馆连续两天用碎纸卡车销毁文件  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/07/a102912682.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/七常委隐身7天 北戴河吹响反习号？     >-009fcc?logoWidth=1" title="七常委隐身7天 北戴河吹响反习号？  " alt="七常委隐身7天 北戴河吹响反习号？  "></a></p>
+<p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/05/a102911381.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微电影《路遇》               >-009fcc?logoWidth=1" title="微电影《路遇》  " alt="微电影《路遇》  "></a></p>
+<p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/07/a102912612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/学者：习近平遭党内严批 军方没准备好与美对抗>-009fcc?logoWidth=1" title="学者：习近平遭党内严批 军方没准备好与美对抗  " alt="学者：习近平遭党内严批 军方没准备好与美对抗  "></a></p>
 <p><a href="https://github.com/eyhtzi3796/djy/blob/master/gb/20/8/7/n12314351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁11名中港高官背后          >-009fcc?logoWidth=1" title="美制裁11名中港高官背后  " alt="美制裁11名中港高官背后  "></a></p>
-<p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/07/a102912975.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉医生爆料疫情真相惊人          >-009fcc?logoWidth=1" title="武汉医生爆料疫情真相惊人  " alt="武汉医生爆料疫情真相惊人  "></a></p>
-<p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/07/a102913101.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国财政部宣布制裁11名中港高官 夏宝龙林郑>-009fcc?logoWidth=1" title="美国财政部宣布制裁11名中港高官 夏宝龙林郑在列  " alt="美国财政部宣布制裁11名中港高官 夏宝龙林郑在列  "></a></p>
+<p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/07/a102913010.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普封杀令腾讯市值蒸发3200亿 港股陆股大>-009fcc?logoWidth=1" title="川普封杀令腾讯市值蒸发3200亿 港股陆股大跳水  " alt="川普封杀令腾讯市值蒸发3200亿 港股陆股大跳水  "></a></p>
 <p><a href="https://github.com/eyhtzi3796/djy/blob/master/gb/20/8/7/n12314769.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南女子举报乱倒垃圾 一家四口被砍(慎入) >-009fcc?logoWidth=1" title="湖南女子举报乱倒垃圾 一家四口被砍(慎入)  " alt="湖南女子举报乱倒垃圾 一家四口被砍(慎入)  "></a></p>
 <p><a href="https://github.com/eyhtzi3796/djy/blob/master/gb/20/8/7/n12314458.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共四大国有银行内部测试“数字人民币”   >-009fcc?logoWidth=1" title="中共四大国有银行内部测试“数字人民币”  " alt="中共四大国有银行内部测试“数字人民币”  "></a></p>
-<p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/06/a102912519.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/力争胜选连任 川普向美国人许下六大承诺   >-009fcc?logoWidth=1" title="力争胜选连任 川普向美国人许下六大承诺  " alt="力争胜选连任 川普向美国人许下六大承诺  "></a></p>
-<p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/07/a102913298.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁11名港官 美台建交概率急升     >-009fcc?logoWidth=1" title="美制裁11名港官 美台建交概率急升  " alt="美制裁11名港官 美台建交概率急升  "></a></p>
+<p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/07/a102912860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/你永远不该吃的九种食品！天然保健专家详解  >-009fcc?logoWidth=1" title="你永远不该吃的九种食品！天然保健专家详解  " alt="你永远不该吃的九种食品！天然保健专家详解  "></a></p>
 <p><a href="https://github.com/eyhtzi3796/djy/blob/master/gb/20/8/8/n12315237.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多名美议员撑制裁 卢比奥：林郑甘当中共走卒 >-009fcc?logoWidth=1" title="多名美议员撑制裁 卢比奥：林郑甘当中共走卒  " alt="多名美议员撑制裁 卢比奥：林郑甘当中共走卒  "></a></p>
 <p><a href="https://github.com/eyhtzi3796/djy/blob/master/gb/20/8/8/n12315216.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/颜丹：美国封杀抖音微信与纽约中领馆前碎纸  >-009fcc?logoWidth=1" title="颜丹：美国封杀抖音微信与纽约中领馆前碎纸  " alt="颜丹：美国封杀抖音微信与纽约中领馆前碎纸  "></a></p>
-<p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/07/a102912860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/你永远不该吃的九种食品！天然保健专家详解  >-009fcc?logoWidth=1" title="你永远不该吃的九种食品！天然保健专家详解  " alt="你永远不该吃的九种食品！天然保健专家详解  "></a></p>
+<p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/07/a102912682.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/七常委隐身7天 北戴河吹响反习号？     >-009fcc?logoWidth=1" title="七常委隐身7天 北戴河吹响反习号？  " alt="七常委隐身7天 北戴河吹响反习号？  "></a></p>
+<p><a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/2020/08/07/a102912753.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟售台4架先进无人机 堪比“死神” 北京敏>-009fcc?logoWidth=1" title="美拟售台4架先进无人机 堪比“死神” 北京敏感  " alt="美拟售台4架先进无人机 堪比“死神” 北京敏感  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/eyhtzi3796/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/eyhtzi3796/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eyhtzi3796/www/blob/master/README.md?h#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/eyhtzi3796/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/eyhtzi3796/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eyhtzi3796/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/eyhtzi3796/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eyhtzi3796/www/blob/master/README.md?z#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/eyhtzi3796/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/giiii">git.io/giiii</a></div>
+<div align="center">短网址: <a href="https://git.io/ciiii">git.io/ciiii</a></div>
 
