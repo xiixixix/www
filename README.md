@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mlejrr3246/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mlejrr3246/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ffffff">git.io/ffffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/byy">x.co/byy</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a8888">git.io/a8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/hua9">x.co/hua9</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -25,30 +25,6 @@
 <p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914242.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国外交部超人气“首席捕鼠官”宣布退休   >-009fcc?logoWidth=1" title="英国外交部超人气“首席捕鼠官”宣布退休  " alt="英国外交部超人气“首席捕鼠官”宣布退休  "></a></p>
 <p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧洲最大肉品生产商 丹麦王冠近150名员工染>-009fcc?logoWidth=1" title="欧洲最大肉品生产商 丹麦王冠近150名员工染疫  " alt="欧洲最大肉品生产商 丹麦王冠近150名员工染疫  "></a></p>
 <p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/货轮触礁漏油 模里西斯生态环境遭污染    >-009fcc?logoWidth=1" title="货轮触礁漏油 模里西斯生态环境遭污染  " alt="货轮触礁漏油 模里西斯生态环境遭污染  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/8/n12316261.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：秦城监狱喊“打倒法西斯”的中共高官 >-009fcc?logoWidth=1" title="王友群：秦城监狱喊“打倒法西斯”的中共高官  " alt="王友群：秦城监狱喊“打倒法西斯”的中共高官  "></a></p>
-<p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/9/n12317055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：大陆芯片产业为何落后？        >-009fcc?logoWidth=1" title="王赫：大陆芯片产业为何落后？  " alt="王赫：大陆芯片产业为何落后？  "></a></p>
-<p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/8/n12316506.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川人：美制裁中共官员 中国人欢呼大快人心  >-009fcc?logoWidth=1" title="川人：美制裁中共官员 中国人欢呼大快人心  " alt="川人：美制裁中共官员 中国人欢呼大快人心  "></a></p>
-<p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/8/n12316489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡编称等着擦枪 中美冲突谁胜算       >-009fcc?logoWidth=1" title="胡编称等着擦枪 中美冲突谁胜算  " alt="胡编称等着擦枪 中美冲突谁胜算  "></a></p>
-<p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/8/n12316508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港之后 分析：中共下一目标可能是台湾   >-009fcc?logoWidth=1" title="香港之后 分析：中共下一目标可能是台湾  " alt="香港之后 分析：中共下一目标可能是台湾  "></a></p>
-<p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/9/n12316999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：骆惠宁回应制裁心虚 胡锡进帮腔成拙 >-009fcc?logoWidth=1" title="陈思敏：骆惠宁回应制裁心虚 胡锡进帮腔成拙  " alt="陈思敏：骆惠宁回应制裁心虚 胡锡进帮腔成拙  "></a></p>
-<p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/9/n12316825.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共监控技术公司向欧洲扩张的计划受阻    >-009fcc?logoWidth=1" title="中共监控技术公司向欧洲扩张的计划受阻  " alt="中共监控技术公司向欧洲扩张的计划受阻  "></a></p>
-<p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/8/n12316177.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/因何制裁 美公布中港11高官所为      >-009fcc?logoWidth=1" title="因何制裁 美公布中港11高官所为  " alt="因何制裁 美公布中港11高官所为  "></a></p>
-<p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/8/n12316427.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军试射机载洲际导弹 展示核三位一体威力  >-009fcc?logoWidth=1" title="美军试射机载洲际导弹 展示核三位一体威力  " alt="美军试射机载洲际导弹 展示核三位一体威力  "></a></p>
-<p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/9/n12317017.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郑若骅被制裁 该夫妇收购美企交易或难进行  >-009fcc?logoWidth=1" title="郑若骅被制裁 该夫妇收购美企交易或难进行  " alt="郑若骅被制裁 该夫妇收购美企交易或难进行  "></a></p>
-<p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/9/n12316971.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共怂了 急令五毛大转弯          >-009fcc?logoWidth=1" title="中共怂了 急令五毛大转弯  " alt="中共怂了 急令五毛大转弯  "></a></p>
-<p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/9/n12317270.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁林郑 其幼子疑“家有急事”从美返港  >-009fcc?logoWidth=1" title="美制裁林郑 其幼子疑“家有急事”从美返港  " alt="美制裁林郑 其幼子疑“家有急事”从美返港  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914193.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：美国“净网”可瘫痪中共       >-009fcc?logoWidth=1" title="袁弓夷：美国“净网”可瘫痪中共  " alt="袁弓夷：美国“净网”可瘫痪中共  "></a></p>
-<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914184.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》麻烦大啦！ 检察官发现唐娟的专业>-009fcc?logoWidth=1" title="《石涛聚焦》麻烦大啦！ 检察官发现唐娟的专业“研究生物制剂解毒剂”  " alt="《石涛聚焦》麻烦大啦！ 检察官发现唐娟的专业“研究生物制剂解毒剂”  "></a></p>
-<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914215.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进替党叼盘过猛 踩到军方红线引不满“胡编>-009fcc?logoWidth=1" title="胡锡进替党叼盘过猛 踩到军方红线引不满“胡编念经”  " alt="胡锡进替党叼盘过猛 踩到军方红线引不满“胡编念经”  "></a></p>
-<p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/7/n12315197.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/死亡威胁和五毛攻击 中共为瞒疫控制民众   >-009fcc?logoWidth=1" title="死亡威胁和五毛攻击 中共为瞒疫控制民众  " alt="死亡威胁和五毛攻击 中共为瞒疫控制民众  "></a></p>
-<p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/9/n12317101.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普拟禁微信 美华人欢迎“越早禁越好”   >-009fcc?logoWidth=1" title="川普拟禁微信 美华人欢迎“越早禁越好”  " alt="川普拟禁微信 美华人欢迎“越早禁越好”  "></a></p>
-<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914186.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》中美贸易协议要完蛋 中共国只完成>-009fcc?logoWidth=1" title="《石涛聚焦》中美贸易协议要完蛋 中共国只完成23  " alt="《石涛聚焦》中美贸易协议要完蛋 中共国只完成23  "></a></p>
-<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/08/a102913980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美热战在即吗？中共将如何消亡？（第21集）>-009fcc?logoWidth=1" title="中美热战在即吗？中共将如何消亡？（第21集）  " alt="中美热战在即吗？中共将如何消亡？（第21集）  "></a></p>
-<p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/8/n12316252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骆惠宁称国外无分文 网民：很像当年薄熙来  >-009fcc?logoWidth=1" title="骆惠宁称国外无分文 网民：很像当年薄熙来  " alt="骆惠宁称国外无分文 网民：很像当年薄熙来  "></a></p>
-<p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/8/n12316422.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：习李矛盾加剧 今年北戴河不同寻常？ >-009fcc?logoWidth=1" title="李正宽：习李矛盾加剧 今年北戴河不同寻常？  " alt="李正宽：习李矛盾加剧 今年北戴河不同寻常？  "></a></p>
-<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/08/a102913953.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国施压全面加速 习近平的最后一张牌很可能失>-009fcc?logoWidth=1" title="美国施压全面加速 习近平的最后一张牌很可能失效  " alt="美国施压全面加速 习近平的最后一张牌很可能失效  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +462,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/mlejrr3246/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mlejrr3246/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mlejrr3246/www/blob/master/README.md?b#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/mlejrr3246/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/mlejrr3246/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mlejrr3246/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mlejrr3246/www/blob/master/README.md?i#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/mlejrr3246/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ffffff">git.io/ffffff</a></div>
+<div align="center">短网址: <a href="https://git.io/a8888">git.io/a8888</a></div>
 
