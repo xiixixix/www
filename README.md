@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mlejrr3246/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mlejrr3246/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/777777">git.io/777777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/344">x.co/344</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aaaaaaaa">git.io/aaaaaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u66">x.co/u66</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,9 +20,9 @@
 <p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共指示停止反美改唱双赢 五毛懵了！    >-009fcc?logoWidth=1" title="中共指示停止反美改唱双赢 五毛懵了！  " alt="中共指示停止反美改唱双赢 五毛懵了！  "></a></p>
 <p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914116.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福建晋江7层高楼厂房火灾 至少8人死亡   >-009fcc?logoWidth=1" title="福建晋江7层高楼厂房火灾 至少8人死亡  " alt="福建晋江7层高楼厂房火灾 至少8人死亡  "></a></p>
 <p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914100.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河权斗正酣？栗战书中途离场 一惯例被打破>-009fcc?logoWidth=1" title="北戴河权斗正酣？栗战书中途离场 一惯例被打破  " alt="北戴河权斗正酣？栗战书中途离场 一惯例被打破  "></a></p>
+<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914242.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国外交部超人气“首席补鼠官”宣布退休   >-009fcc?logoWidth=1" title="英国外交部超人气“首席补鼠官”宣布退休  " alt="英国外交部超人气“首席补鼠官”宣布退休  "></a></p>
 <p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧洲最大肉品生产商 丹麦王冠近150名员工染>-009fcc?logoWidth=1" title="欧洲最大肉品生产商 丹麦王冠近150名员工染疫  " alt="欧洲最大肉品生产商 丹麦王冠近150名员工染疫  "></a></p>
 <p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/货轮触礁漏油 模里西斯生态环境遭污染    >-009fcc?logoWidth=1" title="货轮触礁漏油 模里西斯生态环境遭污染  " alt="货轮触礁漏油 模里西斯生态环境遭污染  "></a></p>
-<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914103.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/脸书跟进美国政府 宣布制裁11名中港官员  >-009fcc?logoWidth=1" title="脸书跟进美国政府 宣布制裁11名中港官员  " alt="脸书跟进美国政府 宣布制裁11名中港官员  "></a></p>
 <p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骆惠宁称“国外没一分钱”网民嘲讽：很像当年的>-009fcc?logoWidth=1" title="骆惠宁称“国外没一分钱”网民嘲讽：很像当年的薄熙来  " alt="骆惠宁称“国外没一分钱”网民嘲讽：很像当年的薄熙来  "></a></p>
 <p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914085.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贝鲁特大爆炸 荷兰大使夫人被炸伤不治身亡  >-009fcc?logoWidth=1" title="贝鲁特大爆炸 荷兰大使夫人被炸伤不治身亡  " alt="贝鲁特大爆炸 荷兰大使夫人被炸伤不治身亡  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -40,14 +40,13 @@
 <p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/8/n12316252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骆惠宁称国外无分文 网民：很像当年薄熙来  >-009fcc?logoWidth=1" title="骆惠宁称国外无分文 网民：很像当年薄熙来  " alt="骆惠宁称国外无分文 网民：很像当年薄熙来  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914184.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》麻烦大啦！ 检察官发现唐娟的专业>-009fcc?logoWidth=1" title="《石涛聚焦》麻烦大啦！ 检察官发现唐娟的专业“研究生物制剂解毒剂”  " alt="《石涛聚焦》麻烦大啦！ 检察官发现唐娟的专业“研究生物制剂解毒剂”  "></a></p>
-<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914193.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：美国“净网”可瘫痪中共       >-009fcc?logoWidth=1" title="袁弓夷：美国“净网”可瘫痪中共  " alt="袁弓夷：美国“净网”可瘫痪中共  "></a></p>
-<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914079.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：秦城监狱喊“打倒法西斯”的中共高官 >-009fcc?logoWidth=1" title="王友群：秦城监狱喊“打倒法西斯”的中共高官  " alt="王友群：秦城监狱喊“打倒法西斯”的中共高官  "></a></p>
+<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914240.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/背叛孙中山 宋庆龄的不义人生        >-009fcc?logoWidth=1" title="背叛孙中山 宋庆龄的不义人生  " alt="背叛孙中山 宋庆龄的不义人生  "></a></p>
 <p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/8/n12316422.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：习李矛盾加剧 今年北戴河不同寻常？ >-009fcc?logoWidth=1" title="李正宽：习李矛盾加剧 今年北戴河不同寻常？  " alt="李正宽：习李矛盾加剧 今年北戴河不同寻常？  "></a></p>
 <p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/8/n12316177.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/因何制裁 美公布中港11高官所为      >-009fcc?logoWidth=1" title="因何制裁 美公布中港11高官所为  " alt="因何制裁 美公布中港11高官所为  "></a></p>
-<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914159.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆经济难逃大倒退；特朗普：香港金融将枯竭失>-009fcc?logoWidth=1" title="大陆经济难逃大倒退；特朗普：香港金融将枯竭失败  " alt="大陆经济难逃大倒退；特朗普：香港金融将枯竭失败  "></a></p>
+<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914079.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：秦城监狱喊“打倒法西斯”的中共高官 >-009fcc?logoWidth=1" title="王友群：秦城监狱喊“打倒法西斯”的中共高官  " alt="王友群：秦城监狱喊“打倒法西斯”的中共高官  "></a></p>
+<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914215.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进替党叼盘过猛 踩到军方红线引不满“胡编>-009fcc?logoWidth=1" title="胡锡进替党叼盘过猛 踩到军方红线引不满“胡编念经”  " alt="胡锡进替党叼盘过猛 踩到军方红线引不满“胡编念经”  "></a></p>
 <p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/9/n12316778.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：北戴河会议可能有怎样的争斗      >-009fcc?logoWidth=1" title="钟原：北戴河会议可能有怎样的争斗  " alt="钟原：北戴河会议可能有怎样的争斗  "></a></p>
 <p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/8/n12316455.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“五毛”急转弯 被勒令停止反美 改唱双赢  >-009fcc?logoWidth=1" title="“五毛”急转弯 被勒令停止反美 改唱双赢  " alt="“五毛”急转弯 被勒令停止反美 改唱双赢  "></a></p>
-<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914215.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进替党叼盘过猛 踩到军方红线引不满“胡编>-009fcc?logoWidth=1" title="胡锡进替党叼盘过猛 踩到军方红线引不满“胡编念经”  " alt="胡锡进替党叼盘过猛 踩到军方红线引不满“胡编念经”  "></a></p>
 <p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914186.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》中美贸易协议要完蛋 中共国只完成>-009fcc?logoWidth=1" title="《石涛聚焦》中美贸易协议要完蛋 中共国只完成23  " alt="《石涛聚焦》中美贸易协议要完蛋 中共国只完成23  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -486,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/mlejrr3246/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mlejrr3246/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mlejrr3246/www/blob/master/README.md?h#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/mlejrr3246/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/mlejrr3246/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mlejrr3246/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mlejrr3246/www/blob/master/README.md?e#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/mlejrr3246/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/777777">git.io/777777</a></div>
+<div align="center">短网址: <a href="https://git.io/aaaaaaaa">git.io/aaaaaaaa</a></div>
 
