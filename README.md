@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ajzoqt335/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ajzoqt335/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/effff">git.io/effff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppa">x.co/ppa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fkkkk">git.io/fkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u88">x.co/u88</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,17 +40,15 @@
 <p><a href="https://github.com/ajzoqt335/djy/blob/master/gb/20/8/9/n12316778.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：北戴河会议可能有怎样的争斗      >-009fcc?logoWidth=1" title="钟原：北戴河会议可能有怎样的争斗  " alt="钟原：北戴河会议可能有怎样的争斗  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/09/a102914079.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：秦城监狱喊“打倒法西斯”的中共高官 >-009fcc?logoWidth=1" title="王友群：秦城监狱喊“打倒法西斯”的中共高官  " alt="王友群：秦城监狱喊“打倒法西斯”的中共高官  "></a></p>
+<p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/09/a102914184.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》麻烦大啦！ 检察官发现唐娟的专业>-009fcc?logoWidth=1" title="《石涛聚焦》麻烦大啦！ 检察官发现唐娟的专业“研究生物制剂解毒剂”  " alt="《石涛聚焦》麻烦大啦！ 检察官发现唐娟的专业“研究生物制剂解毒剂”  "></a></p>
 <p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/09/a102914159.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆经济难逃大倒退；特朗普：香港金融将枯竭失>-009fcc?logoWidth=1" title="大陆经济难逃大倒退；特朗普：香港金融将枯竭失败  " alt="大陆经济难逃大倒退；特朗普：香港金融将枯竭失败  "></a></p>
+<p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/08/a102913980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美热战在即吗？中共将如何消亡？（第21集）>-009fcc?logoWidth=1" title="中美热战在即吗？中共将如何消亡？（第21集）  " alt="中美热战在即吗？中共将如何消亡？（第21集）  "></a></p>
 <p><a href="https://github.com/ajzoqt335/djy/blob/master/gb/20/8/8/n12316455.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“五毛”急转弯 被勒令停止反美 改唱双赢  >-009fcc?logoWidth=1" title="“五毛”急转弯 被勒令停止反美 改唱双赢  " alt="“五毛”急转弯 被勒令停止反美 改唱双赢  "></a></p>
 <p><a href="https://github.com/ajzoqt335/djy/blob/master/gb/20/8/8/n12316287.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共拟修法禁止倒挂国旗 遭猛烈炮轰     >-009fcc?logoWidth=1" title="中共拟修法禁止倒挂国旗 遭猛烈炮轰  " alt="中共拟修法禁止倒挂国旗 遭猛烈炮轰  "></a></p>
-<p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/08/a102913980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美热战在即吗？中共将如何消亡？（第21集）>-009fcc?logoWidth=1" title="中美热战在即吗？中共将如何消亡？（第21集）  " alt="中美热战在即吗？中共将如何消亡？（第21集）  "></a></p>
 <p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/08/a102913934.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林郑不怕美国制裁？被曝次子正在哈佛读书   >-009fcc?logoWidth=1" title="林郑不怕美国制裁？被曝次子正在哈佛读书  " alt="林郑不怕美国制裁？被曝次子正在哈佛读书  "></a></p>
+<p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/08/a102913584.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒暗示习近平掌权到2035年 比肩毛泽东引>-009fcc?logoWidth=1" title="党媒暗示习近平掌权到2035年 比肩毛泽东引议  " alt="党媒暗示习近平掌权到2035年 比肩毛泽东引议  "></a></p>
 <p><a href="https://github.com/ajzoqt335/djy/blob/master/gb/20/8/8/n12316337.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普禁微信 Signal软件在中国下载量激增>-009fcc?logoWidth=1" title="川普禁微信 Signal软件在中国下载量激增  " alt="川普禁微信 Signal软件在中国下载量激增  "></a></p>
 <p><a href="https://github.com/ajzoqt335/djy/blob/master/gb/20/8/8/n12316177.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/因何制裁 美公布中港11高官所为      >-009fcc?logoWidth=1" title="因何制裁 美公布中港11高官所为  " alt="因何制裁 美公布中港11高官所为  "></a></p>
-<p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/09/a102914071.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：挨了美国重拳的中共突然跌软说明什么？ >-009fcc?logoWidth=1" title="袁斌：挨了美国重拳的中共突然跌软说明什么？  " alt="袁斌：挨了美国重拳的中共突然跌软说明什么？  "></a></p>
-<p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/08/a102913584.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒暗示习近平掌权到2035年 比肩毛泽东引>-009fcc?logoWidth=1" title="党媒暗示习近平掌权到2035年 比肩毛泽东引议  " alt="党媒暗示习近平掌权到2035年 比肩毛泽东引议  "></a></p>
-<p><a href="https://github.com/ajzoqt335/djy/blob/master/gb/20/8/9/n12316841.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国将禁微信 阿里巴巴股票跌3       >-009fcc?logoWidth=1" title="美国将禁微信 阿里巴巴股票跌3  " alt="美国将禁微信 阿里巴巴股票跌3  "></a></p>
-<p><a href="https://github.com/ajzoqt335/djy/blob/master/gb/20/8/8/n12316213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贵州退休教授离奇死亡 90后公民遭秘密逮捕 >-009fcc?logoWidth=1" title="贵州退休教授离奇死亡 90后公民遭秘密逮捕  " alt="贵州退休教授离奇死亡 90后公民遭秘密逮捕  "></a></p>
 <p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/08/a102913953.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国施压全面加速 习近平的最后一张牌很可能失>-009fcc?logoWidth=1" title="美国施压全面加速 习近平的最后一张牌很可能失效  " alt="美国施压全面加速 习近平的最后一张牌很可能失效  "></a></p>
 <p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/08/a102913393.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河暗潮汹涌 中共元老联手对付习近平？  >-009fcc?logoWidth=1" title="北戴河暗潮汹涌 中共元老联手对付习近平？  " alt="北戴河暗潮汹涌 中共元老联手对付习近平？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -490,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ajzoqt335/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ajzoqt335/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ajzoqt335/www/blob/master/README.md?i#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ajzoqt335/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ajzoqt335/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ajzoqt335/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ajzoqt335/www/blob/master/README.md?r#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ajzoqt335/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/effff">git.io/effff</a></div>
+<div align="center">短网址: <a href="https://git.io/fkkkk">git.io/fkkkk</a></div>
 
