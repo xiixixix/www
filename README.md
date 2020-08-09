@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mlejrr3246/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mlejrr3246/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nxxxx">git.io/nxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/bdd">x.co/bdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bbbbbbbb">git.io/bbbbbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/4445">x.co/4445</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共指示停止反美改唱双赢 五毛懵了！    >-009fcc?logoWidth=1" title="中共指示停止反美改唱双赢 五毛懵了！  " alt="中共指示停止反美改唱双赢 五毛懵了！  "></a></p>
 <p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914116.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福建晋江7层高楼厂房火灾 至少8人死亡   >-009fcc?logoWidth=1" title="福建晋江7层高楼厂房火灾 至少8人死亡  " alt="福建晋江7层高楼厂房火灾 至少8人死亡  "></a></p>
 <p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914100.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河权斗正酣？栗战书中途离场 一惯例被打破>-009fcc?logoWidth=1" title="北戴河权斗正酣？栗战书中途离场 一惯例被打破  " alt="北戴河权斗正酣？栗战书中途离场 一惯例被打破  "></a></p>
+<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914355.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/防疫不忘国家安全 西点军校新学员照常训练  >-009fcc?logoWidth=1" title="防疫不忘国家安全 西点军校新学员照常训练  " alt="防疫不忘国家安全 西点军校新学员照常训练  "></a></p>
+<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914349.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美悬赏千万阻外国干预大选 剑指中共     >-009fcc?logoWidth=1" title="美悬赏千万阻外国干预大选 剑指中共  " alt="美悬赏千万阻外国干预大选 剑指中共  "></a></p>
+<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914339.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暴雨袭击韩国首尔汉江被淹          >-009fcc?logoWidth=1" title="暴雨袭击韩国首尔汉江被淹  " alt="暴雨袭击韩国首尔汉江被淹  "></a></p>
 <p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914299.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江苏明抢中美合资企业 夺知识产权并强制国有化>-009fcc?logoWidth=1" title="江苏明抢中美合资企业 夺知识产权并强制国有化  " alt="江苏明抢中美合资企业 夺知识产权并强制国有化  "></a></p>
 <p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914278.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国制裁香港官员 港民认为正义称快     >-009fcc?logoWidth=1" title="美国制裁香港官员 港民认为正义称快  " alt="美国制裁香港官员 港民认为正义称快  "></a></p>
-<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914242.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国外交部超人气“首席捕鼠官”宣布退休   >-009fcc?logoWidth=1" title="英国外交部超人气“首席捕鼠官”宣布退休  " alt="英国外交部超人气“首席捕鼠官”宣布退休  "></a></p>
-<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧洲最大肉品生产商 丹麦王冠近150名员工染>-009fcc?logoWidth=1" title="欧洲最大肉品生产商 丹麦王冠近150名员工染疫  " alt="欧洲最大肉品生产商 丹麦王冠近150名员工染疫  "></a></p>
-<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/货轮触礁漏油 模里西斯生态环境遭污染    >-009fcc?logoWidth=1" title="货轮触礁漏油 模里西斯生态环境遭污染  " alt="货轮触礁漏油 模里西斯生态环境遭污染  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/9/n12317578.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美卫生部长访台 分析：川普一石四鸟策略   >-009fcc?logoWidth=1" title="美卫生部长访台 分析：川普一石四鸟策略  " alt="美卫生部长访台 分析：川普一石四鸟策略  "></a></p>
 <p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/8/n12316261.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：秦城监狱喊“打倒法西斯”的中共高官 >-009fcc?logoWidth=1" title="王友群：秦城监狱喊“打倒法西斯”的中共高官  " alt="王友群：秦城监狱喊“打倒法西斯”的中共高官  "></a></p>
@@ -488,7 +488,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/mlejrr3246/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mlejrr3246/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mlejrr3246/www/blob/master/README.md?r#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/mlejrr3246/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mlejrr3246/www/blob/master/README.md?u#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/mlejrr3246/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/nxxxx">git.io/nxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/bbbbbbbb">git.io/bbbbbbbb</a></div>
 
