@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mlejrr3246/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mlejrr3246/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jbbbb">git.io/jbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppq">x.co/ppq</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jmmmm">git.io/jmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2226">x.co/2226</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,17 @@
 <p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/9/n12316971.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共怂了 急令五毛大转弯          >-009fcc?logoWidth=1" title="中共怂了 急令五毛大转弯  " alt="中共怂了 急令五毛大转弯  "></a></p>
 <p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/9/n12317270.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁林郑 其幼子疑“家有急事”从美返港  >-009fcc?logoWidth=1" title="美制裁林郑 其幼子疑“家有急事”从美返港  " alt="美制裁林郑 其幼子疑“家有急事”从美返港  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914040.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西安明秦王府城墙为何突然倒塌？信不信由你  >-009fcc?logoWidth=1" title="西安明秦王府城墙为何突然倒塌？信不信由你  " alt="西安明秦王府城墙为何突然倒塌？信不信由你  "></a></p>
+<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强被迫写检讨%3F%3F%3F%3F港官“嘴硬”不怕制裁>-009fcc?logoWidth=1" title="李克强被迫写检讨????港官“嘴硬”不怕制裁，林郑儿子留美泡汤？  " alt="李克强被迫写检讨????港官“嘴硬”不怕制裁，林郑儿子留美泡汤？  "></a></p>
 <p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914193.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：美国“净网”可瘫痪中共       >-009fcc?logoWidth=1" title="袁弓夷：美国“净网”可瘫痪中共  " alt="袁弓夷：美国“净网”可瘫痪中共  "></a></p>
-<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914184.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》麻烦大啦！ 检察官发现唐娟的专业>-009fcc?logoWidth=1" title="《石涛聚焦》麻烦大啦！ 检察官发现唐娟的专业“研究生物制剂解毒剂”  " alt="《石涛聚焦》麻烦大啦！ 检察官发现唐娟的专业“研究生物制剂解毒剂”  "></a></p>
-<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914215.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进替党叼盘过猛 踩到军方红线引不满“胡编>-009fcc?logoWidth=1" title="胡锡进替党叼盘过猛 踩到军方红线引不满“胡编念经”  " alt="胡锡进替党叼盘过猛 踩到军方红线引不满“胡编念经”  "></a></p>
 <p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/7/n12315197.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/死亡威胁和五毛攻击 中共为瞒疫控制民众   >-009fcc?logoWidth=1" title="死亡威胁和五毛攻击 中共为瞒疫控制民众  " alt="死亡威胁和五毛攻击 中共为瞒疫控制民众  "></a></p>
 <p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/9/n12317101.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普拟禁微信 美华人欢迎“越早禁越好”   >-009fcc?logoWidth=1" title="川普拟禁微信 美华人欢迎“越早禁越好”  " alt="川普拟禁微信 美华人欢迎“越早禁越好”  "></a></p>
-<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914186.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》中美贸易协议要完蛋 中共国只完成>-009fcc?logoWidth=1" title="《石涛聚焦》中美贸易协议要完蛋 中共国只完成23  " alt="《石涛聚焦》中美贸易协议要完蛋 中共国只完成23  "></a></p>
-<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/08/a102913980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美热战在即吗？中共将如何消亡？（第21集）>-009fcc?logoWidth=1" title="中美热战在即吗？中共将如何消亡？（第21集）  " alt="中美热战在即吗？中共将如何消亡？（第21集）  "></a></p>
+<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914184.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》麻烦大啦！ 检察官发现唐娟的专业>-009fcc?logoWidth=1" title="《石涛聚焦》麻烦大啦！ 检察官发现唐娟的专业“研究生物制剂解毒剂”  " alt="《石涛聚焦》麻烦大啦！ 检察官发现唐娟的专业“研究生物制剂解毒剂”  "></a></p>
+<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914215.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进替党叼盘过猛 踩到军方红线引不满“胡编>-009fcc?logoWidth=1" title="胡锡进替党叼盘过猛 踩到军方红线引不满“胡编念经”  " alt="胡锡进替党叼盘过猛 踩到军方红线引不满“胡编念经”  "></a></p>
 <p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/8/n12316252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骆惠宁称国外无分文 网民：很像当年薄熙来  >-009fcc?logoWidth=1" title="骆惠宁称国外无分文 网民：很像当年薄熙来  " alt="骆惠宁称国外无分文 网民：很像当年薄熙来  "></a></p>
 <p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/8/n12316422.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：习李矛盾加剧 今年北戴河不同寻常？ >-009fcc?logoWidth=1" title="李正宽：习李矛盾加剧 今年北戴河不同寻常？  " alt="李正宽：习李矛盾加剧 今年北戴河不同寻常？  "></a></p>
-<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/08/a102913953.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国施压全面加速 习近平的最后一张牌很可能失>-009fcc?logoWidth=1" title="美国施压全面加速 习近平的最后一张牌很可能失效  " alt="美国施压全面加速 习近平的最后一张牌很可能失效  "></a></p>
+<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914186.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》中美贸易协议要完蛋 中共国只完成>-009fcc?logoWidth=1" title="《石涛聚焦》中美贸易协议要完蛋 中共国只完成23  " alt="《石涛聚焦》中美贸易协议要完蛋 中共国只完成23  "></a></p>
+<p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/08/a102913980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美热战在即吗？中共将如何消亡？（第21集）>-009fcc?logoWidth=1" title="中美热战在即吗？中共将如何消亡？（第21集）  " alt="中美热战在即吗？中共将如何消亡？（第21集）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/mlejrr3246/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mlejrr3246/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mlejrr3246/www/blob/master/README.md?x#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/mlejrr3246/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/mlejrr3246/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mlejrr3246/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mlejrr3246/www/blob/master/README.md?t#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/mlejrr3246/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jbbbb">git.io/jbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/jmmmm">git.io/jmmmm</a></div>
 
