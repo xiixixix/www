@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mlejrr3246/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mlejrr3246/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jqqqq">git.io/jqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3399">x.co/3399</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kssss">git.io/kssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a5a">x.co/a5a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -35,12 +35,13 @@
 <p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/7/n12315119.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普45天后禁微信 你需要了解什么     >-009fcc?logoWidth=1" title="川普45天后禁微信 你需要了解什么  " alt="川普45天后禁微信 你需要了解什么  "></a></p>
 <p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/6/n12311366.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美攻势凌厉 中共北戴河讨论“持久战”？   >-009fcc?logoWidth=1" title="美攻势凌厉 中共北戴河讨论“持久战”？  " alt="美攻势凌厉 中共北戴河讨论“持久战”？  "></a></p>
 <p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/8/n12316252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骆惠宁称国外无分文 网民：很像当年薄熙来  >-009fcc?logoWidth=1" title="骆惠宁称国外无分文 网民：很像当年薄熙来  " alt="骆惠宁称国外无分文 网民：很像当年薄熙来  "></a></p>
+<p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/9/n12317017.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郑若骅被制裁 该夫妇收购美企交易或难进行  >-009fcc?logoWidth=1" title="郑若骅被制裁 该夫妇收购美企交易或难进行  " alt="郑若骅被制裁 该夫妇收购美企交易或难进行  "></a></p>
 <p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/9/n12316971.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共怂了 急令五毛大转弯          >-009fcc?logoWidth=1" title="中共怂了 急令五毛大转弯  " alt="中共怂了 急令五毛大转弯  "></a></p>
 <p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/8/n12316422.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：习李矛盾加剧 今年北戴河不同寻常？ >-009fcc?logoWidth=1" title="李正宽：习李矛盾加剧 今年北戴河不同寻常？  " alt="李正宽：习李矛盾加剧 今年北戴河不同寻常？  "></a></p>
-<p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/9/n12316778.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：北戴河会议可能有怎样的争斗      >-009fcc?logoWidth=1" title="钟原：北戴河会议可能有怎样的争斗  " alt="钟原：北戴河会议可能有怎样的争斗  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914079.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：秦城监狱喊“打倒法西斯”的中共高官 >-009fcc?logoWidth=1" title="王友群：秦城监狱喊“打倒法西斯”的中共高官  " alt="王友群：秦城监狱喊“打倒法西斯”的中共高官  "></a></p>
 <p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914184.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》麻烦大啦！ 检察官发现唐娟的专业>-009fcc?logoWidth=1" title="《石涛聚焦》麻烦大啦！ 检察官发现唐娟的专业“研究生物制剂解毒剂”  " alt="《石涛聚焦》麻烦大啦！ 检察官发现唐娟的专业“研究生物制剂解毒剂”  "></a></p>
+<p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/9/n12316778.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：北戴河会议可能有怎样的争斗      >-009fcc?logoWidth=1" title="钟原：北戴河会议可能有怎样的争斗  " alt="钟原：北戴河会议可能有怎样的争斗  "></a></p>
 <p><a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/2020/08/09/a102914199.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/禁抖音微信——与中共数字脱钩        >-009fcc?logoWidth=1" title="禁抖音微信——与中共数字脱钩  " alt="禁抖音微信——与中共数字脱钩  "></a></p>
 <p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/8/n12316455.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“五毛”急转弯 被勒令停止反美 改唱双赢  >-009fcc?logoWidth=1" title="“五毛”急转弯 被勒令停止反美 改唱双赢  " alt="“五毛”急转弯 被勒令停止反美 改唱双赢  "></a></p>
 <p><a href="https://github.com/mlejrr3246/djy/blob/master/gb/20/8/8/n12316287.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共拟修法禁止倒挂国旗 遭猛烈炮轰     >-009fcc?logoWidth=1" title="中共拟修法禁止倒挂国旗 遭猛烈炮轰  " alt="中共拟修法禁止倒挂国旗 遭猛烈炮轰  "></a></p>
@@ -487,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/mlejrr3246/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mlejrr3246/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mlejrr3246/www/blob/master/README.md?m#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/mlejrr3246/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/mlejrr3246/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mlejrr3246/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mlejrr3246/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mlejrr3246/www/blob/master/README.md?t#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/mlejrr3246/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jqqqq">git.io/jqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/kssss">git.io/kssss</a></div>
 
