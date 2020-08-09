@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ajzoqt335/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ajzoqt335/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hnnnn">git.io/hnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/fpp">x.co/fpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gqqqq">git.io/gqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9933">x.co/9933</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/08/a102913617.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁11名中港高官 护照住址及罪行全曝光 >-009fcc?logoWidth=1" title="美制裁11名中港高官 护照住址及罪行全曝光  " alt="美制裁11名中港高官 护照住址及罪行全曝光  "></a></p>
 <p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/08/a102913575.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美千万悬赏 纽约中领馆急毁文件       >-009fcc?logoWidth=1" title="美千万悬赏 纽约中领馆急毁文件  " alt="美千万悬赏 纽约中领馆急毁文件  "></a></p>
 <p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/08/a102913499.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：南海剑拔弩张 不及北戴河刀光剑影   >-009fcc?logoWidth=1" title="港媒：南海剑拔弩张 不及北戴河刀光剑影  " alt="港媒：南海剑拔弩张 不及北戴河刀光剑影  "></a></p>
+<p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/09/a102914074.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑遭纵火 捷克住宅楼大火酿11死10伤   >-009fcc?logoWidth=1" title="疑遭纵火 捷克住宅楼大火酿11死10伤  " alt="疑遭纵火 捷克住宅楼大火酿11死10伤  "></a></p>
 <p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/03/a102908866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武肺病毒可感染神经细胞 美专家警告中国疫苗不>-009fcc?logoWidth=1" title="武肺病毒可感染神经细胞 美专家警告中国疫苗不可靠  " alt="武肺病毒可感染神经细胞 美专家警告中国疫苗不可靠  "></a></p>
 <p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/08/a102913838.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫组织宣传错误信息 阻碍推行中共病毒血浆疗>-009fcc?logoWidth=1" title="世卫组织宣传错误信息 阻碍推行中共病毒血浆疗法  " alt="世卫组织宣传错误信息 阻碍推行中共病毒血浆疗法  "></a></p>
 <p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/08/a102914004.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为高管：手机没芯片了 处于缺货状态    >-009fcc?logoWidth=1" title="华为高管：手机没芯片了 处于缺货状态  " alt="华为高管：手机没芯片了 处于缺货状态  "></a></p>
 <p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/08/a102913984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“僵尸不能来自中国” 中共审查下的好莱坞潜规>-009fcc?logoWidth=1" title="“僵尸不能来自中国” 中共审查下的好莱坞潜规则  " alt="“僵尸不能来自中国” 中共审查下的好莱坞潜规则  "></a></p>
-<p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/08/a102913934.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林郑不怕美国制裁？被曝次子正在哈佛读书   >-009fcc?logoWidth=1" title="林郑不怕美国制裁？被曝次子正在哈佛读书  " alt="林郑不怕美国制裁？被曝次子正在哈佛读书  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ajzoqt335/djy/blob/master/gb/20/8/8/n12316465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：中港高官被制裁 中南海难掩三忧   >-009fcc?logoWidth=1" title="周晓辉：中港高官被制裁 中南海难掩三忧  " alt="周晓辉：中港高官被制裁 中南海难掩三忧  "></a></p>
 <p><a href="https://github.com/ajzoqt335/djy/blob/master/gb/20/8/7/n12314680.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美大动作踩红线 北戴河要翻腾了       >-009fcc?logoWidth=1" title="美大动作踩红线 北戴河要翻腾了  " alt="美大动作踩红线 北戴河要翻腾了  "></a></p>
@@ -40,14 +40,14 @@
 <p><a href="https://github.com/ajzoqt335/djy/blob/master/gb/20/8/8/n12316134.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南企业主被禁出国与妻儿团聚 美议员发声  >-009fcc?logoWidth=1" title="湖南企业主被禁出国与妻儿团聚 美议员发声  " alt="湖南企业主被禁出国与妻儿团聚 美议员发声  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ajzoqt335/djy/blob/master/gb/20/8/8/n12315278.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共前外交官：美国再给中共20年就晚了   >-009fcc?logoWidth=1" title="中共前外交官：美国再给中共20年就晚了  " alt="中共前外交官：美国再给中共20年就晚了  "></a></p>
+<p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/09/a102914055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强被迫写检讨%3F%3F%3F%3F港官“嘴硬”不怕制裁>-009fcc?logoWidth=1" title="李克强被迫写检讨????港官“嘴硬”不怕制裁，林郑儿子留美泡汤？  " alt="李克强被迫写检讨????港官“嘴硬”不怕制裁，林郑儿子留美泡汤？  "></a></p>
 <p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/08/a102913907.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/%3F%3F程晓农：当前中共应对冷战的三步棋    >-009fcc?logoWidth=1" title="??程晓农：当前中共应对冷战的三步棋  " alt="??程晓农：当前中共应对冷战的三步棋  "></a></p>
-<p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/08/a102913940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专访陈华：反迫害21年 神帮我走过艰难岁月 >-009fcc?logoWidth=1" title="专访陈华：反迫害21年 神帮我走过艰难岁月  " alt="专访陈华：反迫害21年 神帮我走过艰难岁月  "></a></p>
+<p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/09/a102914071.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：挨了美国重拳的中共突然跌软说明什么？ >-009fcc?logoWidth=1" title="袁斌：挨了美国重拳的中共突然跌软说明什么？  " alt="袁斌：挨了美国重拳的中共突然跌软说明什么？  "></a></p>
 <p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/08/a102913815.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁林郑 北戴河地震 五毛接密令噤声   >-009fcc?logoWidth=1" title="美制裁林郑 北戴河地震 五毛接密令噤声  " alt="美制裁林郑 北戴河地震 五毛接密令噤声  "></a></p>
-<p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/08/a102914038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国打击中共国 制裁11名中港高官     >-009fcc?logoWidth=1" title="美国打击中共国 制裁11名中港高官  " alt="美国打击中共国 制裁11名中港高官  "></a></p>
 <p><a href="https://github.com/ajzoqt335/djy/blob/master/gb/20/8/8/n12316337.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普禁微信 Signal软件在中国下载量激增>-009fcc?logoWidth=1" title="川普禁微信 Signal软件在中国下载量激增  " alt="川普禁微信 Signal软件在中国下载量激增  "></a></p>
 <p><a href="https://github.com/ajzoqt335/djy/blob/master/gb/20/8/8/n12315587.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/麻烦接踵而至 TikTok在美面临集体诉讼 >-009fcc?logoWidth=1" title="麻烦接踵而至 TikTok在美面临集体诉讼  " alt="麻烦接踵而至 TikTok在美面临集体诉讼  "></a></p>
+<p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/08/a102914038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国打击中共国 制裁11名中港高官     >-009fcc?logoWidth=1" title="美国打击中共国 制裁11名中港高官  " alt="美国打击中共国 制裁11名中港高官  "></a></p>
 <p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/08/a102913393.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河暗潮汹涌 中共元老联手对付习近平？  >-009fcc?logoWidth=1" title="北戴河暗潮汹涌 中共元老联手对付习近平？  " alt="北戴河暗潮汹涌 中共元老联手对付习近平？  "></a></p>
-<p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/08/a102913450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微信被禁 中共会缺氧而亡          >-009fcc?logoWidth=1" title="微信被禁 中共会缺氧而亡  " alt="微信被禁 中共会缺氧而亡  "></a></p>
 <p><a href="https://github.com/ajzoqt335/djy/blob/master/gb/20/8/8/n12316075.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄之锋曝10多名香港高官拥有外国籍及资产  >-009fcc?logoWidth=1" title="黄之锋曝10多名香港高官拥有外国籍及资产  " alt="黄之锋曝10多名香港高官拥有外国籍及资产  "></a></p>
 <p><a href="https://github.com/ajzoqt335/djy/blob/master/gb/20/8/8/n12315860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林郑被美制裁 次子在哈佛读博士引关注    >-009fcc?logoWidth=1" title="林郑被美制裁 次子在哈佛读博士引关注  " alt="林郑被美制裁 次子在哈佛读博士引关注  "></a></p>
 <p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/08/a102913953.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国施压全面加速 习近平的最后一张牌很可能失>-009fcc?logoWidth=1" title="美国施压全面加速 习近平的最后一张牌很可能失效  " alt="美国施压全面加速 习近平的最后一张牌很可能失效  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ajzoqt335/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ajzoqt335/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ajzoqt335/www/blob/master/README.md?c#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ajzoqt335/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ajzoqt335/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ajzoqt335/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ajzoqt335/www/blob/master/README.md?v#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ajzoqt335/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hnnnn">git.io/hnnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/gqqqq">git.io/gqqqq</a></div>
 
