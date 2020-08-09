@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ajzoqt335/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ajzoqt335/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ccccccc">git.io/ccccccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2pp">x.co/2pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/sssssss">git.io/sssssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aea">x.co/aea</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/08/a102913617.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁11名中港高官 护照住址及罪行全曝光 >-009fcc?logoWidth=1" title="美制裁11名中港高官 护照住址及罪行全曝光  " alt="美制裁11名中港高官 护照住址及罪行全曝光  "></a></p>
 <p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/08/a102913575.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美千万悬赏 纽约中领馆急毁文件       >-009fcc?logoWidth=1" title="美千万悬赏 纽约中领馆急毁文件  " alt="美千万悬赏 纽约中领馆急毁文件  "></a></p>
 <p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/08/a102913499.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：南海剑拔弩张 不及北戴河刀光剑影   >-009fcc?logoWidth=1" title="港媒：南海剑拔弩张 不及北戴河刀光剑影  " alt="港媒：南海剑拔弩张 不及北戴河刀光剑影  "></a></p>
+<p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/09/a102914085.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贝鲁特大爆炸 荷兰大使夫人被炸伤不治身亡  >-009fcc?logoWidth=1" title="贝鲁特大爆炸 荷兰大使夫人被炸伤不治身亡  " alt="贝鲁特大爆炸 荷兰大使夫人被炸伤不治身亡  "></a></p>
+<p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/09/a102914061.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：潜伏美国的上千中共党员已叛逃    >-009fcc?logoWidth=1" title="袁弓夷：潜伏美国的上千中共党员已叛逃  " alt="袁弓夷：潜伏美国的上千中共党员已叛逃  "></a></p>
 <p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/09/a102914074.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑遭纵火 捷克住宅楼大火酿11死10伤   >-009fcc?logoWidth=1" title="疑遭纵火 捷克住宅楼大火酿11死10伤  " alt="疑遭纵火 捷克住宅楼大火酿11死10伤  "></a></p>
 <p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/03/a102908866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武肺病毒可感染神经细胞 美专家警告中国疫苗不>-009fcc?logoWidth=1" title="武肺病毒可感染神经细胞 美专家警告中国疫苗不可靠  " alt="武肺病毒可感染神经细胞 美专家警告中国疫苗不可靠  "></a></p>
 <p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/08/a102913838.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫组织宣传错误信息 阻碍推行中共病毒血浆疗>-009fcc?logoWidth=1" title="世卫组织宣传错误信息 阻碍推行中共病毒血浆疗法  " alt="世卫组织宣传错误信息 阻碍推行中共病毒血浆疗法  "></a></p>
-<p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/08/a102914004.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为高管：手机没芯片了 处于缺货状态    >-009fcc?logoWidth=1" title="华为高管：手机没芯片了 处于缺货状态  " alt="华为高管：手机没芯片了 处于缺货状态  "></a></p>
-<p><a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/2020/08/08/a102913984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“僵尸不能来自中国” 中共审查下的好莱坞潜规>-009fcc?logoWidth=1" title="“僵尸不能来自中国” 中共审查下的好莱坞潜规则  " alt="“僵尸不能来自中国” 中共审查下的好莱坞潜规则  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ajzoqt335/djy/blob/master/gb/20/8/8/n12316465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：中港高官被制裁 中南海难掩三忧   >-009fcc?logoWidth=1" title="周晓辉：中港高官被制裁 中南海难掩三忧  " alt="周晓辉：中港高官被制裁 中南海难掩三忧  "></a></p>
 <p><a href="https://github.com/ajzoqt335/djy/blob/master/gb/20/8/7/n12314680.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美大动作踩红线 北戴河要翻腾了       >-009fcc?logoWidth=1" title="美大动作踩红线 北戴河要翻腾了  " alt="美大动作踩红线 北戴河要翻腾了  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ajzoqt335/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ajzoqt335/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ajzoqt335/www/blob/master/README.md?d#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ajzoqt335/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ajzoqt335/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ajzoqt335/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ajzoqt335/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ajzoqt335/www/blob/master/README.md?r#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ajzoqt335/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ccccccc">git.io/ccccccc</a></div>
+<div align="center">短网址: <a href="https://git.io/sssssss">git.io/sssssss</a></div>
 
