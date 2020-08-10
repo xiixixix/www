@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/huassy3328/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/huassy3328/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/x2222">git.io/x2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aea">x.co/aea</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qjjjj">git.io/qjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp7">x.co/pp7</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,17 +28,19 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/10/n12320092.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/苹果日报逾百人个资外泄 疑中共公安部门流出 >-009fcc?logoWidth=1" title="苹果日报逾百人个资外泄 疑中共公安部门流出  " alt="苹果日报逾百人个资外泄 疑中共公安部门流出  "></a></p>
 <p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/10/n12319584.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国安搜馆逮人 壹传媒拼了 港人买股相撑   >-009fcc?logoWidth=1" title="国安搜馆逮人 壹传媒拼了 港人买股相撑  " alt="国安搜馆逮人 壹传媒拼了 港人买股相撑  "></a></p>
+<p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/10/n12320331.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美接连重拳出击 中共为何口风大转向     >-009fcc?logoWidth=1" title="美接连重拳出击 中共为何口风大转向  " alt="美接连重拳出击 中共为何口风大转向  "></a></p>
 <p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/10/n12319818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共称制裁11美国人 卢比奥等回应     >-009fcc?logoWidth=1" title="中共称制裁11美国人 卢比奥等回应  " alt="中共称制裁11美国人 卢比奥等回应  "></a></p>
 <p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/10/n12318449.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：美制裁令中共官员炸锅 百姓轰动叫好  >-009fcc?logoWidth=1" title="钟原：美制裁令中共官员炸锅 百姓轰动叫好  " alt="钟原：美制裁令中共官员炸锅 百姓轰动叫好  "></a></p>
-<p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/9/n12318350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抗共大事记：净网禁微信 美部长访台(8/2-->-009fcc?logoWidth=1" title="抗共大事记：净网禁微信 美部长访台(8/2-8/9)  " alt="抗共大事记：净网禁微信 美部长访台(8/2-8/9)  "></a></p>
-<p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/9/n12316879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/廖远：中南海内斗你死我活 李克强处境微妙  >-009fcc?logoWidth=1" title="廖远：中南海内斗你死我活 李克强处境微妙  " alt="廖远：中南海内斗你死我活 李克强处境微妙  "></a></p>
-<p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/9/n12317652.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民建联副主席称不怕制裁 妻子被爆任职美媒  >-009fcc?logoWidth=1" title="民建联副主席称不怕制裁 妻子被爆任职美媒  " alt="民建联副主席称不怕制裁 妻子被爆任职美媒  "></a></p>
+<p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/10/n12320444.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/梳理香港银行制裁政策 11名官员恐无所遁形 >-009fcc?logoWidth=1" title="梳理香港银行制裁政策 11名官员恐无所遁形  " alt="梳理香港银行制裁政策 11名官员恐无所遁形  "></a></p>
+<p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/10/n12319309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆留学生看美国禁微信抖音 3个正当理由  >-009fcc?logoWidth=1" title="大陆留学生看美国禁微信抖音 3个正当理由  " alt="大陆留学生看美国禁微信抖音 3个正当理由  "></a></p>
 <p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/8/n12316177.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/因何制裁 美公布中港11高官所为      >-009fcc?logoWidth=1" title="因何制裁 美公布中港11高官所为  " alt="因何制裁 美公布中港11高官所为  "></a></p>
 <p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/10/n12318484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周庭被捕 黎智英之后第十人         >-009fcc?logoWidth=1" title="周庭被捕 黎智英之后第十人  " alt="周庭被捕 黎智英之后第十人  "></a></p>
+<p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/9/n12318189.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军医唐娟今天庭审            >-009fcc?logoWidth=1" title="中共军医唐娟今天庭审  " alt="中共军医唐娟今天庭审  "></a></p>
+<p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/9/n12318350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抗共大事记：净网禁微信 美部长访台(8/2-->-009fcc?logoWidth=1" title="抗共大事记：净网禁微信 美部长访台(8/2-8/9)  " alt="抗共大事记：净网禁微信 美部长访台(8/2-8/9)  "></a></p>
 <p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/10/n12319645.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共又报复 宣称制裁11名美国人再被揶揄  >-009fcc?logoWidth=1" title="中共又报复 宣称制裁11名美国人再被揶揄  " alt="中共又报复 宣称制裁11名美国人再被揶揄  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/10/n12319490.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/司法部长：Antifa想要在美国搞社会主义 >-009fcc?logoWidth=1" title="司法部长：Antifa想要在美国搞社会主义  " alt="司法部长：Antifa想要在美国搞社会主义  "></a></p>
 <p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/10/n12318989.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共恶斗 分析：李克强处境堪忧       >-009fcc?logoWidth=1" title="中共恶斗 分析：李克强处境堪忧  " alt="中共恶斗 分析：李克强处境堪忧  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/huassy3328/ntdtv/blob/master/gb/2020/08/10/a102914767.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“一箱小狗”成微博禁词 原因笑翻网络    >-009fcc?logoWidth=1" title="“一箱小狗”成微博禁词 原因笑翻网络  " alt="“一箱小狗”成微博禁词 原因笑翻网络  "></a></p>
 <p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/10/n12319138.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟宏伟忏悔书曝光 承认收受部队高官贿赂   >-009fcc?logoWidth=1" title="孟宏伟忏悔书曝光 承认收受部队高官贿赂  " alt="孟宏伟忏悔书曝光 承认收受部队高官贿赂  "></a></p>
 <p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/9/n12317602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：选举百日之争 川普强势反弹      >-009fcc?logoWidth=1" title="杨威：选举百日之争 川普强势反弹  " alt="杨威：选举百日之争 川普强势反弹  "></a></p>
@@ -484,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/huassy3328/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/huassy3328/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/huassy3328/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/huassy3328/www/blob/master/README.md?y#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/huassy3328/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/huassy3328/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/huassy3328/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/huassy3328/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/huassy3328/www/blob/master/README.md?z#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/huassy3328/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/x2222">git.io/x2222</a></div>
+<div align="center">短网址: <a href="https://git.io/qjjjj">git.io/qjjjj</a></div>
 
