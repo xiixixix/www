@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/huassy3328/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/huassy3328/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ezzzz">git.io/ezzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3888">x.co/3888</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/siiii">git.io/siiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3999">x.co/3999</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/huassy3328/ntdtv/blob/master/gb/2020/08/10/a102914457.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美卫生部长高规格访台 航母做“保镖”    >-009fcc?logoWidth=1" title="美卫生部长高规格访台 航母做“保镖”  " alt="美卫生部长高规格访台 航母做“保镖”  "></a></p>
 <p><a href="https://github.com/huassy3328/ntdtv/blob/master/gb/2020/08/10/a102914532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中南海斗得你死我活 李克强处境难料  >-009fcc?logoWidth=1" title="分析：中南海斗得你死我活 李克强处境难料  " alt="分析：中南海斗得你死我活 李克强处境难料  "></a></p>
 <p><a href="https://github.com/huassy3328/ntdtv/blob/master/gb/2020/08/10/a102914476.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/剑指中共 美军将成立“全方位联合作战部队” >-009fcc?logoWidth=1" title="剑指中共 美军将成立“全方位联合作战部队”  " alt="剑指中共 美军将成立“全方位联合作战部队”  "></a></p>
+<p><a href="https://github.com/huassy3328/ntdtv/blob/master/gb/2020/08/03/a102908866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英父子9人被捕 200警察搜查苹果日报大>-009fcc?logoWidth=1" title="黎智英父子9人被捕 200警察搜查苹果日报大楼  " alt="黎智英父子9人被捕 200警察搜查苹果日报大楼  "></a></p>
+<p><a href="https://github.com/huassy3328/ntdtv/blob/master/gb/2020/08/10/a102914823.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英等9人被捕 警方搜走数十箱“证物”  >-009fcc?logoWidth=1" title="黎智英等9人被捕 警方搜走数十箱“证物”  " alt="黎智英等9人被捕 警方搜走数十箱“证物”  "></a></p>
 <p><a href="https://github.com/huassy3328/ntdtv/blob/master/gb/2020/08/10/a102914819.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共制裁美国官员 3人二次上榜 闹国际笑话 >-009fcc?logoWidth=1" title="中共制裁美国官员 3人二次上榜 闹国际笑话  " alt="中共制裁美国官员 3人二次上榜 闹国际笑话  "></a></p>
 <p><a href="https://github.com/huassy3328/ntdtv/blob/master/gb/2020/08/10/a102914767.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“一箱小狗”成微博禁词 原因笑翻网络    >-009fcc?logoWidth=1" title="“一箱小狗”成微博禁词 原因笑翻网络  " alt="“一箱小狗”成微博禁词 原因笑翻网络  "></a></p>
 <p><a href="https://github.com/huassy3328/ntdtv/blob/master/gb/2020/08/10/a102914648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙古草原突遇龙卷风 150顶蒙古包被夷为平>-009fcc?logoWidth=1" title="内蒙古草原突遇龙卷风 150顶蒙古包被夷为平地  " alt="内蒙古草原突遇龙卷风 150顶蒙古包被夷为平地  "></a></p>
-<p><a href="https://github.com/huassy3328/ntdtv/blob/master/gb/2020/08/10/a102914626.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陕西洛南暴雨致5人死亡10人失踪      >-009fcc?logoWidth=1" title="陕西洛南暴雨致5人死亡10人失踪  " alt="陕西洛南暴雨致5人死亡10人失踪  "></a></p>
-<p><a href="https://github.com/huassy3328/ntdtv/blob/master/gb/2020/08/10/a102914593.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贝鲁特大爆炸相当3.3地震 遗留43米深坑洞>-009fcc?logoWidth=1" title="贝鲁特大爆炸相当3.3地震 遗留43米深坑洞  " alt="贝鲁特大爆炸相当3.3地震 遗留43米深坑洞  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/9/n12317578.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美卫生部长访台 分析：川普一石四鸟策略   >-009fcc?logoWidth=1" title="美卫生部长访台 分析：川普一石四鸟策略  " alt="美卫生部长访台 分析：川普一石四鸟策略  "></a></p>
 <p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/9/n12318064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：从二战空袭东京看美国反击中共的决心  >-009fcc?logoWidth=1" title="沈舟：从二战空袭东京看美国反击中共的决心  " alt="沈舟：从二战空袭东京看美国反击中共的决心  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/huassy3328/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/huassy3328/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/huassy3328/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/huassy3328/www/blob/master/README.md?g#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/huassy3328/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/huassy3328/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/huassy3328/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/huassy3328/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/huassy3328/www/blob/master/README.md?t#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/huassy3328/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ezzzz">git.io/ezzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/siiii">git.io/siiii</a></div>
 
