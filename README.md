@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ppqcps340/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ppqcps340/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kiiii">git.io/kiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ypp">x.co/ypp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/idddd">git.io/idddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aza">x.co/aza</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/2020/08/10/a102914532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中南海斗得你死我活 李克强处境堪忧  >-009fcc?logoWidth=1" title="分析：中南海斗得你死我活 李克强处境堪忧  " alt="分析：中南海斗得你死我活 李克强处境堪忧  "></a></p>
 <p><a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/2020/08/10/a102914476.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/剑指中共 美军将成立“全方位联合作战部队” >-009fcc?logoWidth=1" title="剑指中共 美军将成立“全方位联合作战部队”  " alt="剑指中共 美军将成立“全方位联合作战部队”  "></a></p>
 <p><a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/2020/08/09/a102914254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河栗战书中途离场/潜伏美国上千中共党员叛>-009fcc?logoWidth=1" title="北戴河栗战书中途离场/潜伏美国上千中共党员叛逃  " alt="北戴河栗战书中途离场/潜伏美国上千中共党员叛逃  "></a></p>
 <p><a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/2020/08/09/a102914224.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐娟潜逃中领馆 联邦诉隐瞒身份       >-009fcc?logoWidth=1" title="唐娟潜逃中领馆 联邦诉隐瞒身份  " alt="唐娟潜逃中领馆 联邦诉隐瞒身份  "></a></p>
 <p><a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/2020/08/09/a102914151.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德媒：川普禁微信 等于禁了中共的生命线   >-009fcc?logoWidth=1" title="德媒：川普禁微信 等于禁了中共的生命线  " alt="德媒：川普禁微信 等于禁了中共的生命线  "></a></p>
 <p><a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/2020/08/09/a102914142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共指示停止反美改唱双赢 五毛懵了！    >-009fcc?logoWidth=1" title="中共指示停止反美改唱双赢 五毛懵了！  " alt="中共指示停止反美改唱双赢 五毛懵了！  "></a></p>
-<p><a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/2020/08/09/a102914116.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福建晋江7层高楼厂房火灾 至少8人死亡   >-009fcc?logoWidth=1" title="福建晋江7层高楼厂房火灾 至少8人死亡  " alt="福建晋江7层高楼厂房火灾 至少8人死亡  "></a></p>
 <p><a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/2020/08/10/a102914536.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：川普派美卫生部长访台 “一石四鸟”  >-009fcc?logoWidth=1" title="专家：川普派美卫生部长访台 “一石四鸟”  " alt="专家：川普派美卫生部长访台 “一石四鸟”  "></a></p>
 <p><a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/2020/08/03/a102908866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：潜伏美国的上千中共党员已叛逃    >-009fcc?logoWidth=1" title="袁弓夷：潜伏美国的上千中共党员已叛逃  " alt="袁弓夷：潜伏美国的上千中共党员已叛逃  "></a></p>
 <p><a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/2020/08/09/a102914379.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林郑受制裁累及家人 次子读哈佛无法留美任职 >-009fcc?logoWidth=1" title="林郑受制裁累及家人 次子读哈佛无法留美任职  " alt="林郑受制裁累及家人 次子读哈佛无法留美任职  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ppqcps340/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ppqcps340/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ppqcps340/www/blob/master/README.md?d#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ppqcps340/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ppqcps340/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ppqcps340/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ppqcps340/www/blob/master/README.md?l#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ppqcps340/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kiiii">git.io/kiiii</a></div>
+<div align="center">短网址: <a href="https://git.io/idddd">git.io/idddd</a></div>
 
