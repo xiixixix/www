@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/avjyzo383/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/avjyzo383/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/suuuu">git.io/suuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/iaa">x.co/iaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyyy">git.io/yyyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp6">x.co/pp6</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,20 +28,20 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/9/n12317578.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美卫生部长访台 分析：川普一石四鸟策略   >-009fcc?logoWidth=1" title="美卫生部长访台 分析：川普一石四鸟策略  " alt="美卫生部长访台 分析：川普一石四鸟策略  "></a></p>
 <p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/9/n12318064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：从二战空袭东京看美国反击中共的决心  >-009fcc?logoWidth=1" title="沈舟：从二战空袭东京看美国反击中共的决心  " alt="沈舟：从二战空袭东京看美国反击中共的决心  "></a></p>
+<p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/10/n12318449.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：美制裁令中共官员炸锅 百姓轰动叫好  >-009fcc?logoWidth=1" title="钟原：美制裁令中共官员炸锅 百姓轰动叫好  " alt="钟原：美制裁令中共官员炸锅 百姓轰动叫好  "></a></p>
 <p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/8/n12315307.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫：记住病毒来自中国           >-009fcc?logoWidth=1" title="白宫：记住病毒来自中国  " alt="白宫：记住病毒来自中国  "></a></p>
 <p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/9/n12318350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抗共大事：净网禁微信 美部长访台(8/2--8>-009fcc?logoWidth=1" title="抗共大事：净网禁微信 美部长访台(8/2-8/9)  " alt="抗共大事：净网禁微信 美部长访台(8/2-8/9)  "></a></p>
-<p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/9/n12318167.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：一个市委书记的司机捞了450万你信吗 >-009fcc?logoWidth=1" title="袁斌：一个市委书记的司机捞了450万你信吗  " alt="袁斌：一个市委书记的司机捞了450万你信吗  "></a></p>
 <p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/9/n12316879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/廖远：中南海内斗你死我活 李克强处境微妙  >-009fcc?logoWidth=1" title="廖远：中南海内斗你死我活 李克强处境微妙  " alt="廖远：中南海内斗你死我活 李克强处境微妙  "></a></p>
 <p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/9/n12317652.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民建联副主席称不怕制裁 妻子被爆任职美媒  >-009fcc?logoWidth=1" title="民建联副主席称不怕制裁 妻子被爆任职美媒  " alt="民建联副主席称不怕制裁 妻子被爆任职美媒  "></a></p>
 <p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/8/n12316177.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/因何制裁 美公布中港11高官所为      >-009fcc?logoWidth=1" title="因何制裁 美公布中港11高官所为  " alt="因何制裁 美公布中港11高官所为  "></a></p>
 <p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/10/n12318484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港8媒体公会发联合声明 谴责警方      >-009fcc?logoWidth=1" title="港8媒体公会发联合声明 谴责警方  " alt="港8媒体公会发联合声明 谴责警方  "></a></p>
 <p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/10/n12318989.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共恶斗 分析：李克强处境堪忧       >-009fcc?logoWidth=1" title="中共恶斗 分析：李克强处境堪忧  " alt="中共恶斗 分析：李克强处境堪忧  "></a></p>
 <p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/9/n12317602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：选举百日之争 川普强势反弹      >-009fcc?logoWidth=1" title="杨威：选举百日之争 川普强势反弹  " alt="杨威：选举百日之争 川普强势反弹  "></a></p>
-<p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/9/n12318286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫安全顾问：中共网攻美国选举基础设施   >-009fcc?logoWidth=1" title="白宫安全顾问：中共网攻美国选举基础设施  " alt="白宫安全顾问：中共网攻美国选举基础设施  "></a></p>
+<p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/10/n12319138.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟宏伟忏悔书曝光 承认收受部队高官贿赂   >-009fcc?logoWidth=1" title="孟宏伟忏悔书曝光 承认收受部队高官贿赂  " alt="孟宏伟忏悔书曝光 承认收受部队高官贿赂  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/10/n12318484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英被带离办公室 次子餐厅遭搜      >-009fcc?logoWidth=1" title="黎智英被带离办公室 次子餐厅遭搜  " alt="黎智英被带离办公室 次子餐厅遭搜  "></a></p>
 <p><a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/2020/08/09/a102914100.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河权斗正酣？栗战书中途离场 一惯例被打破>-009fcc?logoWidth=1" title="北戴河权斗正酣？栗战书中途离场 一惯例被打破  " alt="北戴河权斗正酣？栗战书中途离场 一惯例被打破  "></a></p>
 <p><a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/2020/08/10/a102914595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/掸封尘：杨洁篪再发长文“求和” 暗藏玄机  >-009fcc?logoWidth=1" title="掸封尘：杨洁篪再发长文“求和” 暗藏玄机  " alt="掸封尘：杨洁篪再发长文“求和” 暗藏玄机  "></a></p>
+<p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/9/n12318286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫安全顾问：中共网攻美国选举基础设施   >-009fcc?logoWidth=1" title="白宫安全顾问：中共网攻美国选举基础设施  " alt="白宫安全顾问：中共网攻美国选举基础设施  "></a></p>
 <p><a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/2020/08/10/a102914468.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美关系无法回头 被制裁11人 谁伤最重？ >-009fcc?logoWidth=1" title="中美关系无法回头 被制裁11人 谁伤最重？  " alt="中美关系无法回头 被制裁11人 谁伤最重？  "></a></p>
 <p><a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/2020/08/09/a102914323.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/严遵美国禁令 港各大银行配合制裁政策引关注 >-009fcc?logoWidth=1" title="严遵美国禁令 港各大银行配合制裁政策引关注  " alt="严遵美国禁令 港各大银行配合制裁政策引关注  "></a></p>
 <p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/9/n12318002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/打脸汪文斌？中共商务部长称产业外移压力大  >-009fcc?logoWidth=1" title="打脸汪文斌？中共商务部长称产业外移压力大  " alt="打脸汪文斌？中共商务部长称产业外移压力大  "></a></p>
@@ -49,7 +49,6 @@
 <p><a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/2020/08/10/a102914423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁11名中港官员 效用到底多大？    >-009fcc?logoWidth=1" title="美制裁11名中港官员 效用到底多大？  " alt="美制裁11名中港官员 效用到底多大？  "></a></p>
 <p><a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/2020/08/09/a102914295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人类史上挖到最深的钻井！你相信地狱之说吗？ >-009fcc?logoWidth=1" title="人类史上挖到最深的钻井！你相信地狱之说吗？  " alt="人类史上挖到最深的钻井！你相信地狱之说吗？  "></a></p>
 <p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/9/n12318304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张慧东：中共外交战狼为何突然熄火      >-009fcc?logoWidth=1" title="张慧东：中共外交战狼为何突然熄火  " alt="张慧东：中共外交战狼为何突然熄火  "></a></p>
-<p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/10/n12318449.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：美制裁令中共官员炸锅 百姓轰动叫好  >-009fcc?logoWidth=1" title="钟原：美制裁令中共官员炸锅 百姓轰动叫好  " alt="钟原：美制裁令中共官员炸锅 百姓轰动叫好  "></a></p>
 <p><a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/2020/08/09/a102914055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强被迫写检讨%3F%3F%3F%3F港官“嘴硬”不怕制裁>-009fcc?logoWidth=1" title="李克强被迫写检讨????港官“嘴硬”不怕制裁，林郑儿子留美泡汤？  " alt="李克强被迫写检讨????港官“嘴硬”不怕制裁，林郑儿子留美泡汤？  "></a></p>
 <p><a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/2020/08/09/a102914061.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：潜伏美国的上千中共党员已叛逃    >-009fcc?logoWidth=1" title="袁弓夷：潜伏美国的上千中共党员已叛逃  " alt="袁弓夷：潜伏美国的上千中共党员已叛逃  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -489,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/avjyzo383/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/avjyzo383/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/avjyzo383/www/blob/master/README.md?l#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/avjyzo383/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/avjyzo383/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/avjyzo383/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/avjyzo383/www/blob/master/README.md?e#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/avjyzo383/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/suuuu">git.io/suuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/yyyyyy">git.io/yyyyyy</a></div>
 
