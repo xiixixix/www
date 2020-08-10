@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/huassy3328/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/huassy3328/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ffffff">git.io/ffffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/zpp">x.co/zpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nqqqq">git.io/nqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2228">x.co/2228</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,14 +20,14 @@
 <p><a href="https://github.com/huassy3328/ntdtv/blob/master/gb/2020/08/10/a102914457.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美卫生部长高规格访台 航母做“保镖”    >-009fcc?logoWidth=1" title="美卫生部长高规格访台 航母做“保镖”  " alt="美卫生部长高规格访台 航母做“保镖”  "></a></p>
 <p><a href="https://github.com/huassy3328/ntdtv/blob/master/gb/2020/08/10/a102914532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中南海斗得你死我活 李克强处境难料  >-009fcc?logoWidth=1" title="分析：中南海斗得你死我活 李克强处境难料  " alt="分析：中南海斗得你死我活 李克强处境难料  "></a></p>
 <p><a href="https://github.com/huassy3328/ntdtv/blob/master/gb/2020/08/10/a102914476.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/剑指中共 美军将成立“全方位联合作战部队” >-009fcc?logoWidth=1" title="剑指中共 美军将成立“全方位联合作战部队”  " alt="剑指中共 美军将成立“全方位联合作战部队”  "></a></p>
+<p><a href="https://github.com/huassy3328/ntdtv/blob/master/gb/2020/08/10/a102915058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中港官员受制裁影响覆盖全球 付款购物皆受阻 >-009fcc?logoWidth=1" title="中港官员受制裁影响覆盖全球 付款购物皆受阻  " alt="中港官员受制裁影响覆盖全球 付款购物皆受阻  "></a></p>
 <p><a href="https://github.com/huassy3328/ntdtv/blob/master/gb/2020/08/10/a102915009.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/提议自己在总统山塑像？川普调侃假新闻:好主意>-009fcc?logoWidth=1" title="提议自己在总统山塑像？川普调侃假新闻:好主意  " alt="提议自己在总统山塑像？川普调侃假新闻:好主意  "></a></p>
 <p><a href="https://github.com/huassy3328/ntdtv/blob/master/gb/2020/08/10/a102914964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英父子被捕 壹传媒股价逆势暴涨逾3倍  >-009fcc?logoWidth=1" title="黎智英父子被捕 壹传媒股价逆势暴涨逾3倍  " alt="黎智英父子被捕 壹传媒股价逆势暴涨逾3倍  "></a></p>
 <p><a href="https://github.com/huassy3328/ntdtv/blob/master/gb/2020/08/10/a102914990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/8.10白宫发言人新闻简报会（同声翻译）  >-009fcc?logoWidth=1" title="8.10白宫发言人新闻简报会（同声翻译）  " alt="8.10白宫发言人新闻简报会（同声翻译）  "></a></p>
 <p><a href="https://github.com/huassy3328/ntdtv/blob/master/gb/2020/08/10/a102914978.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港媒体大亨黎智英被捕  国际关注     >-009fcc?logoWidth=1" title="香港媒体大亨黎智英被捕  国际关注  " alt="香港媒体大亨黎智英被捕  国际关注  "></a></p>
-<p><a href="https://github.com/huassy3328/ntdtv/blob/master/gb/2020/08/10/a102914952.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台朝野关注黎智英等被捕 苏贞昌：中共自毁承诺>-009fcc?logoWidth=1" title="台朝野关注黎智英等被捕 苏贞昌：中共自毁承诺  " alt="台朝野关注黎智英等被捕 苏贞昌：中共自毁承诺  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/10/n12320092.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/苹果日报逾百人个资外泄 疑中共公安部门流出 >-009fcc?logoWidth=1" title="苹果日报逾百人个资外泄 疑中共公安部门流出  " alt="苹果日报逾百人个资外泄 疑中共公安部门流出  "></a></p>
-<p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/10/n12319584.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反抗暴政 港人拼了 苹果日报股价暴涨    >-009fcc?logoWidth=1" title="反抗暴政 港人拼了 苹果日报股价暴涨  " alt="反抗暴政 港人拼了 苹果日报股价暴涨  "></a></p>
+<p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/10/n12319584.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国安搜馆逮人 壹传媒拼了 港人买股相撑   >-009fcc?logoWidth=1" title="国安搜馆逮人 壹传媒拼了 港人买股相撑  " alt="国安搜馆逮人 壹传媒拼了 港人买股相撑  "></a></p>
 <p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/10/n12319818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共称制裁11美国人 卢比奥等回应     >-009fcc?logoWidth=1" title="中共称制裁11美国人 卢比奥等回应  " alt="中共称制裁11美国人 卢比奥等回应  "></a></p>
 <p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/10/n12318449.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：美制裁令中共官员炸锅 百姓轰动叫好  >-009fcc?logoWidth=1" title="钟原：美制裁令中共官员炸锅 百姓轰动叫好  " alt="钟原：美制裁令中共官员炸锅 百姓轰动叫好  "></a></p>
 <p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/9/n12318350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抗共大事记：净网禁微信 美部长访台(8/2-->-009fcc?logoWidth=1" title="抗共大事记：净网禁微信 美部长访台(8/2-8/9)  " alt="抗共大事记：净网禁微信 美部长访台(8/2-8/9)  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/huassy3328/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/huassy3328/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/huassy3328/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/huassy3328/www/blob/master/README.md?p#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/huassy3328/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/huassy3328/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/huassy3328/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/huassy3328/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/huassy3328/www/blob/master/README.md?a#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/huassy3328/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ffffff">git.io/ffffff</a></div>
+<div align="center">短网址: <a href="https://git.io/nqqqq">git.io/nqqqq</a></div>
 
