@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ppqcps340/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ppqcps340/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dcccc">git.io/dcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/uqq">x.co/uqq</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gtttt">git.io/gtttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/vpp">x.co/vpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,7 +27,7 @@
 <p><a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/2020/08/09/a102914400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙古鼠疫蔓延 现第2例死亡        >-009fcc?logoWidth=1" title="内蒙古鼠疫蔓延 现第2例死亡  " alt="内蒙古鼠疫蔓延 现第2例死亡  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ppqcps340/djy/blob/master/gb/20/8/9/n12317578.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美卫生部长访台 分析：川普一石四鸟策略   >-009fcc?logoWidth=1" title="美卫生部长访台 分析：川普一石四鸟策略  " alt="美卫生部长访台 分析：川普一石四鸟策略  "></a></p>
-<p><a href="https://github.com/ppqcps340/djy/blob/master/gb/20/8/10/n12318484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英等7人被抓 警搜壹传媒总部      >-009fcc?logoWidth=1" title="黎智英等7人被抓 警搜壹传媒总部  " alt="黎智英等7人被抓 警搜壹传媒总部  "></a></p>
+<p><a href="https://github.com/ppqcps340/djy/blob/master/gb/20/8/10/n12318484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英父子等7人被抓 警搜苹果大楼     >-009fcc?logoWidth=1" title="黎智英父子等7人被抓 警搜苹果大楼  " alt="黎智英父子等7人被抓 警搜苹果大楼  "></a></p>
 <p><a href="https://github.com/ppqcps340/djy/blob/master/gb/20/8/8/n12316261.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：秦城监狱喊“打倒法西斯”的中共高官 >-009fcc?logoWidth=1" title="王友群：秦城监狱喊“打倒法西斯”的中共高官  " alt="王友群：秦城监狱喊“打倒法西斯”的中共高官  "></a></p>
 <p><a href="https://github.com/ppqcps340/djy/blob/master/gb/20/8/8/n12316489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡编称等着擦枪 中美冲突谁胜算       >-009fcc?logoWidth=1" title="胡编称等着擦枪 中美冲突谁胜算  " alt="胡编称等着擦枪 中美冲突谁胜算  "></a></p>
 <p><a href="https://github.com/ppqcps340/djy/blob/master/gb/20/8/9/n12316999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：骆惠宁回应制裁心虚 胡锡进帮腔成拙 >-009fcc?logoWidth=1" title="陈思敏：骆惠宁回应制裁心虚 胡锡进帮腔成拙  " alt="陈思敏：骆惠宁回应制裁心虚 胡锡进帮腔成拙  "></a></p>
@@ -484,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ppqcps340/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ppqcps340/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ppqcps340/www/blob/master/README.md?u#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ppqcps340/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ppqcps340/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ppqcps340/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ppqcps340/www/blob/master/README.md?m#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ppqcps340/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dcccc">git.io/dcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/gtttt">git.io/gtttt</a></div>
 
