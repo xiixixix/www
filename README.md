@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/huassy3328/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/huassy3328/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qnnnn">git.io/qnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a6a">x.co/a6a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qffff">git.io/qffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j77">x.co/j77</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/huassy3328/ntdtv/blob/master/gb/2020/08/10/a102914476.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/剑指中共 美军将成立“全方位联合作战部队” >-009fcc?logoWidth=1" title="剑指中共 美军将成立“全方位联合作战部队”  " alt="剑指中共 美军将成立“全方位联合作战部队”  "></a></p>
 <p><a href="https://github.com/huassy3328/ntdtv/blob/master/gb/2020/08/10/a102914990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/8.10白宫发言人新闻简报会（同声翻译）  >-009fcc?logoWidth=1" title="8.10白宫发言人新闻简报会（同声翻译）  " alt="8.10白宫发言人新闻简报会（同声翻译）  "></a></p>
 <p><a href="https://github.com/huassy3328/ntdtv/blob/master/gb/2020/08/10/a102914978.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港媒体大亨黎智英被捕  国际关注     >-009fcc?logoWidth=1" title="香港媒体大亨黎智英被捕  国际关注  " alt="香港媒体大亨黎智英被捕  国际关注  "></a></p>
-<p><a href="https://github.com/huassy3328/ntdtv/blob/master/gb/2020/08/10/a102914948.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周庭连夜被带走 港警大搜捕一日抓10人   >-009fcc?logoWidth=1" title="周庭连夜被带走 港警大搜捕一日抓10人  " alt="周庭连夜被带走 港警大搜捕一日抓10人  "></a></p>
 <p><a href="https://github.com/huassy3328/ntdtv/blob/master/gb/2020/08/10/a102914952.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台朝野关注黎智英等被捕 苏贞昌：中共自毁承诺>-009fcc?logoWidth=1" title="台朝野关注黎智英等被捕 苏贞昌：中共自毁承诺  " alt="台朝野关注黎智英等被捕 苏贞昌：中共自毁承诺  "></a></p>
 <p><a href="https://github.com/huassy3328/ntdtv/blob/master/gb/2020/08/03/a102908866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英父子等9人被捕 200警察搜查苹果日报>-009fcc?logoWidth=1" title="黎智英父子等9人被捕 200警察搜查苹果日报大楼  " alt="黎智英父子等9人被捕 200警察搜查苹果日报大楼  "></a></p>
+<p><a href="https://github.com/huassy3328/ntdtv/blob/master/gb/2020/08/10/a102914833.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/访民进京频遭阻拦 北戴河成禁区       >-009fcc?logoWidth=1" title="访民进京频遭阻拦 北戴河成禁区  " alt="访民进京频遭阻拦 北戴河成禁区  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/10/n12320092.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/苹果日报逾百人个资外泄 疑中共公安部门流出 >-009fcc?logoWidth=1" title="苹果日报逾百人个资外泄 疑中共公安部门流出  " alt="苹果日报逾百人个资外泄 疑中共公安部门流出  "></a></p>
 <p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/10/n12319584.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英被捕 壹传媒股价离奇飙升344    >-009fcc?logoWidth=1" title="黎智英被捕 壹传媒股价离奇飙升344  " alt="黎智英被捕 壹传媒股价离奇飙升344  "></a></p>
@@ -39,7 +39,6 @@
 <p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/10/n12319490.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/司法部长：Antifa想要在美国搞社会主义 >-009fcc?logoWidth=1" title="司法部长：Antifa想要在美国搞社会主义  " alt="司法部长：Antifa想要在美国搞社会主义  "></a></p>
 <p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/10/n12318989.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共恶斗 分析：李克强处境堪忧       >-009fcc?logoWidth=1" title="中共恶斗 分析：李克强处境堪忧  " alt="中共恶斗 分析：李克强处境堪忧  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/10/n12318484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英父子等10人被捕 含周庭       >-009fcc?logoWidth=1" title="黎智英父子等10人被捕 含周庭  " alt="黎智英父子等10人被捕 含周庭  "></a></p>
 <p><a href="https://github.com/huassy3328/ntdtv/blob/master/gb/2020/08/10/a102914823.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英父子等9人被捕 警方搜走数十箱“证物”>-009fcc?logoWidth=1" title="黎智英父子等9人被捕 警方搜走数十箱“证物”  " alt="黎智英父子等9人被捕 警方搜走数十箱“证物”  "></a></p>
 <p><a href="https://github.com/huassy3328/ntdtv/blob/master/gb/2020/08/10/a102914650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国卫生部长抵台,台湾迎来历史机遇! 重挫中>-009fcc?logoWidth=1" title="美国卫生部长抵台,台湾迎来历史机遇! 重挫中共锐气,北戴河传“持久战”豪赌川普大选?  " alt="美国卫生部长抵台,台湾迎来历史机遇! 重挫中共锐气,北戴河传“持久战”豪赌川普大选?  "></a></p>
 <p><a href="https://github.com/huassy3328/ntdtv/blob/master/gb/2020/08/10/a102914553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阿札尔会见蔡英文 传达川普对台强力支持   >-009fcc?logoWidth=1" title="阿札尔会见蔡英文 传达川普对台强力支持  " alt="阿札尔会见蔡英文 传达川普对台强力支持  "></a></p>
@@ -488,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/huassy3328/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/huassy3328/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/huassy3328/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/huassy3328/www/blob/master/README.md?e#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/huassy3328/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/huassy3328/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/huassy3328/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/huassy3328/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/huassy3328/www/blob/master/README.md?w#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/huassy3328/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qnnnn">git.io/qnnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/qffff">git.io/qffff</a></div>
 
