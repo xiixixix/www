@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/huassy3328/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/huassy3328/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/m6666">git.io/m6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/377">x.co/377</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/8888888">git.io/8888888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aya">x.co/aya</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,7 +28,7 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/10/n12320092.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/苹果日报逾百人个资外泄 疑中共公安部门流出 >-009fcc?logoWidth=1" title="苹果日报逾百人个资外泄 疑中共公安部门流出  " alt="苹果日报逾百人个资外泄 疑中共公安部门流出  "></a></p>
 <p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/10/n12319584.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英被捕 壹传媒股价离奇飙升344    >-009fcc?logoWidth=1" title="黎智英被捕 壹传媒股价离奇飙升344  " alt="黎智英被捕 壹传媒股价离奇飙升344  "></a></p>
-<p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/10/n12319818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共称制裁11美国人 卢比奥等犀利回应   >-009fcc?logoWidth=1" title="中共称制裁11美国人 卢比奥等犀利回应  " alt="中共称制裁11美国人 卢比奥等犀利回应  "></a></p>
+<p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/10/n12319818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共称制裁11美国人 卢比奥等回应     >-009fcc?logoWidth=1" title="中共称制裁11美国人 卢比奥等回应  " alt="中共称制裁11美国人 卢比奥等回应  "></a></p>
 <p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/10/n12318449.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：美制裁令中共官员炸锅 百姓轰动叫好  >-009fcc?logoWidth=1" title="钟原：美制裁令中共官员炸锅 百姓轰动叫好  " alt="钟原：美制裁令中共官员炸锅 百姓轰动叫好  "></a></p>
 <p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/9/n12318350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抗共大事记：净网禁微信 美部长访台(8/2-->-009fcc?logoWidth=1" title="抗共大事记：净网禁微信 美部长访台(8/2-8/9)  " alt="抗共大事记：净网禁微信 美部长访台(8/2-8/9)  "></a></p>
 <p><a href="https://github.com/huassy3328/djy/blob/master/gb/20/8/9/n12316879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/廖远：中南海内斗你死我活 李克强处境微妙  >-009fcc?logoWidth=1" title="廖远：中南海内斗你死我活 李克强处境微妙  " alt="廖远：中南海内斗你死我活 李克强处境微妙  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/huassy3328/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/huassy3328/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/huassy3328/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/huassy3328/www/blob/master/README.md?v#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/huassy3328/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/huassy3328/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/huassy3328/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/huassy3328/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/huassy3328/www/blob/master/README.md?m#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/huassy3328/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/m6666">git.io/m6666</a></div>
+<div align="center">短网址: <a href="https://git.io/8888888">git.io/8888888</a></div>
 
