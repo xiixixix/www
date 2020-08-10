@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ppqcps340/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ppqcps340/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ddddd">git.io/ddddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pxp">x.co/pxp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a3333">git.io/a3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/sdd">x.co/sdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/2020/08/09/a102914142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共指示停止反美改唱双赢 五毛懵了！    >-009fcc?logoWidth=1" title="中共指示停止反美改唱双赢 五毛懵了！  " alt="中共指示停止反美改唱双赢 五毛懵了！  "></a></p>
 <p><a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/2020/08/09/a102914116.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福建晋江7层高楼厂房火灾 至少8人死亡   >-009fcc?logoWidth=1" title="福建晋江7层高楼厂房火灾 至少8人死亡  " alt="福建晋江7层高楼厂房火灾 至少8人死亡  "></a></p>
 <p><a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/2020/08/09/a102914100.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河权斗正酣？栗战书中途离场 一惯例被打破>-009fcc?logoWidth=1" title="北戴河权斗正酣？栗战书中途离场 一惯例被打破  " alt="北戴河权斗正酣？栗战书中途离场 一惯例被打破  "></a></p>
+<p><a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/2020/08/03/a102908866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：潜伏美国的上千中共党员已叛逃    >-009fcc?logoWidth=1" title="袁弓夷：潜伏美国的上千中共党员已叛逃  " alt="袁弓夷：潜伏美国的上千中共党员已叛逃  "></a></p>
 <p><a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/2020/08/09/a102914379.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林郑受制裁累及家人 次子读哈佛无法留美任职 >-009fcc?logoWidth=1" title="林郑受制裁累及家人 次子读哈佛无法留美任职  " alt="林郑受制裁累及家人 次子读哈佛无法留美任职  "></a></p>
 <p><a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/2020/08/09/a102914403.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫国安顾问警告:外国干扰大选将面临严重后果>-009fcc?logoWidth=1" title="白宫国安顾问警告:外国干扰大选将面临严重后果  " alt="白宫国安顾问警告:外国干扰大选将面临严重后果  "></a></p>
 <p><a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/2020/08/09/a102914406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普拟封杀微信抖音 华人欢迎 建议封更多  >-009fcc?logoWidth=1" title="川普拟封杀微信抖音 华人欢迎 建议封更多  " alt="川普拟封杀微信抖音 华人欢迎 建议封更多  "></a></p>
 <p><a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/2020/08/09/a102914400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙古鼠疫蔓延 现第2例死亡        >-009fcc?logoWidth=1" title="内蒙古鼠疫蔓延 现第2例死亡  " alt="内蒙古鼠疫蔓延 现第2例死亡  "></a></p>
-<p><a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/2020/08/09/a102914389.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普“减免”薪资税引争议 库德洛出来解释  >-009fcc?logoWidth=1" title="川普“减免”薪资税引争议 库德洛出来解释  " alt="川普“减免”薪资税引争议 库德洛出来解释  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ppqcps340/djy/blob/master/gb/20/8/9/n12317578.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美卫生部长访台 分析：川普一石四鸟策略   >-009fcc?logoWidth=1" title="美卫生部长访台 分析：川普一石四鸟策略  " alt="美卫生部长访台 分析：川普一石四鸟策略  "></a></p>
 <p><a href="https://github.com/ppqcps340/djy/blob/master/gb/20/8/8/n12316261.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：秦城监狱喊“打倒法西斯”的中共高官 >-009fcc?logoWidth=1" title="王友群：秦城监狱喊“打倒法西斯”的中共高官  " alt="王友群：秦城监狱喊“打倒法西斯”的中共高官  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ppqcps340/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ppqcps340/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ppqcps340/www/blob/master/README.md?y#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ppqcps340/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ppqcps340/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ppqcps340/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ppqcps340/www/blob/master/README.md?t#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ppqcps340/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ddddd">git.io/ddddd</a></div>
+<div align="center">短网址: <a href="https://git.io/a3333">git.io/a3333</a></div>
 
