@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/avjyzo383/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/avjyzo383/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yssss">git.io/yssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ydd">x.co/ydd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/88888">git.io/88888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u22">x.co/u22</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/2020/08/10/a102914717.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平忧惧亡党 “小林彪”看电影表忠    >-009fcc?logoWidth=1" title="习近平忧惧亡党 “小林彪”看电影表忠  " alt="习近平忧惧亡党 “小林彪”看电影表忠  "></a></p>
 <p><a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/2020/08/10/a102914577.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：黎智英被押往壹传媒总部 近200警封锁>-009fcc?logoWidth=1" title="组图：黎智英被押往壹传媒总部 近200警封锁大楼搜查  " alt="组图：黎智英被押往壹传媒总部 近200警封锁大楼搜查  "></a></p>
 <p><a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/2020/08/10/a102914457.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美卫生部长高规格访台 两艘航母做“保镖”  >-009fcc?logoWidth=1" title="美卫生部长高规格访台 两艘航母做“保镖”  " alt="美卫生部长高规格访台 两艘航母做“保镖”  "></a></p>
 <p><a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/2020/08/10/a102914532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中南海斗得你死我活 李克强处境难料  >-009fcc?logoWidth=1" title="分析：中南海斗得你死我活 李克强处境难料  " alt="分析：中南海斗得你死我活 李克强处境难料  "></a></p>
 <p><a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/2020/08/10/a102914476.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/剑指中共 美军将成立“全方位联合作战部队” >-009fcc?logoWidth=1" title="剑指中共 美军将成立“全方位联合作战部队”  " alt="剑指中共 美军将成立“全方位联合作战部队”  "></a></p>
 <p><a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/2020/08/09/a102914254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河栗战书中途离场/潜伏美国上千中共党员叛>-009fcc?logoWidth=1" title="北戴河栗战书中途离场/潜伏美国上千中共党员叛逃  " alt="北戴河栗战书中途离场/潜伏美国上千中共党员叛逃  "></a></p>
-<p><a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/2020/08/09/a102914224.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐娟潜逃中领馆 联邦诉隐瞒身份       >-009fcc?logoWidth=1" title="唐娟潜逃中领馆 联邦诉隐瞒身份  " alt="唐娟潜逃中领馆 联邦诉隐瞒身份  "></a></p>
 <p><a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/2020/08/10/a102914648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙古草原突遇龙卷风 150顶蒙古包被夷为平>-009fcc?logoWidth=1" title="内蒙古草原突遇龙卷风 150顶蒙古包被夷为平地  " alt="内蒙古草原突遇龙卷风 150顶蒙古包被夷为平地  "></a></p>
 <p><a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/2020/08/10/a102914626.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陕西洛南暴雨致5人死亡10人失踪      >-009fcc?logoWidth=1" title="陕西洛南暴雨致5人死亡10人失踪  " alt="陕西洛南暴雨致5人死亡10人失踪  "></a></p>
 <p><a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/2020/08/10/a102914593.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贝鲁特大爆炸相当3.3地震 遗留43米深坑洞>-009fcc?logoWidth=1" title="贝鲁特大爆炸相当3.3地震 遗留43米深坑洞  " alt="贝鲁特大爆炸相当3.3地震 遗留43米深坑洞  "></a></p>
@@ -34,24 +34,24 @@
 <p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/9/n12316879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/廖远：中南海内斗你死我活 李克强处境微妙  >-009fcc?logoWidth=1" title="廖远：中南海内斗你死我活 李克强处境微妙  " alt="廖远：中南海内斗你死我活 李克强处境微妙  "></a></p>
 <p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/9/n12317652.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民建联副主席称不怕制裁 妻子被爆任职美媒  >-009fcc?logoWidth=1" title="民建联副主席称不怕制裁 妻子被爆任职美媒  " alt="民建联副主席称不怕制裁 妻子被爆任职美媒  "></a></p>
 <p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/8/n12316177.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/因何制裁 美公布中港11高官所为      >-009fcc?logoWidth=1" title="因何制裁 美公布中港11高官所为  " alt="因何制裁 美公布中港11高官所为  "></a></p>
-<p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/10/n12318484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/警方从大楼搬出数十箱“证物”        >-009fcc?logoWidth=1" title="警方从大楼搬出数十箱“证物”  " alt="警方从大楼搬出数十箱“证物”  "></a></p>
+<p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/10/n12318484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港警从壹传媒大楼搬走数十箱“证物”     >-009fcc?logoWidth=1" title="港警从壹传媒大楼搬走数十箱“证物”  " alt="港警从壹传媒大楼搬走数十箱“证物”  "></a></p>
 <p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/10/n12318989.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共恶斗 分析：李克强处境堪忧       >-009fcc?logoWidth=1" title="中共恶斗 分析：李克强处境堪忧  " alt="中共恶斗 分析：李克强处境堪忧  "></a></p>
 <p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/9/n12317602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：选举百日之争 川普强势反弹      >-009fcc?logoWidth=1" title="杨威：选举百日之争 川普强势反弹  " alt="杨威：选举百日之争 川普强势反弹  "></a></p>
 <p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/10/n12319138.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟宏伟忏悔书曝光 承认收受部队高官贿赂   >-009fcc?logoWidth=1" title="孟宏伟忏悔书曝光 承认收受部队高官贿赂  " alt="孟宏伟忏悔书曝光 承认收受部队高官贿赂  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/10/n12318484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港8媒体公会发联合声明 谴责警方      >-009fcc?logoWidth=1" title="港8媒体公会发联合声明 谴责警方  " alt="港8媒体公会发联合声明 谴责警方  "></a></p>
 <p><a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/2020/08/09/a102914100.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河权斗正酣？栗战书中途离场 一惯例被打破>-009fcc?logoWidth=1" title="北戴河权斗正酣？栗战书中途离场 一惯例被打破  " alt="北戴河权斗正酣？栗战书中途离场 一惯例被打破  "></a></p>
-<p><a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/2020/08/10/a102914595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/掸封尘：杨洁篪再发长文“求和” 暗藏玄机  >-009fcc?logoWidth=1" title="掸封尘：杨洁篪再发长文“求和” 暗藏玄机  " alt="掸封尘：杨洁篪再发长文“求和” 暗藏玄机  "></a></p>
+<p><a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/2020/08/09/a102914329.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国际制裁通牒？五眼联盟集体声明警告中共港府 >-009fcc?logoWidth=1" title="国际制裁通牒？五眼联盟集体声明警告中共港府  " alt="国际制裁通牒？五眼联盟集体声明警告中共港府  "></a></p>
 <p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/9/n12318286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫安全顾问：中共网攻美国选举基础设施   >-009fcc?logoWidth=1" title="白宫安全顾问：中共网攻美国选举基础设施  " alt="白宫安全顾问：中共网攻美国选举基础设施  "></a></p>
+<p><a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/2020/08/10/a102914595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/掸封尘：杨洁篪再发长文“求和” 暗藏玄机  >-009fcc?logoWidth=1" title="掸封尘：杨洁篪再发长文“求和” 暗藏玄机  " alt="掸封尘：杨洁篪再发长文“求和” 暗藏玄机  "></a></p>
 <p><a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/2020/08/10/a102914468.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美关系无法回头 被制裁11人 谁伤最重？ >-009fcc?logoWidth=1" title="中美关系无法回头 被制裁11人 谁伤最重？  " alt="中美关系无法回头 被制裁11人 谁伤最重？  "></a></p>
-<p><a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/2020/08/09/a102914323.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/严遵美国禁令 港各大银行配合制裁政策引关注 >-009fcc?logoWidth=1" title="严遵美国禁令 港各大银行配合制裁政策引关注  " alt="严遵美国禁令 港各大银行配合制裁政策引关注  "></a></p>
 <p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/9/n12318002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/打脸汪文斌？中共商务部长称产业外移压力大  >-009fcc?logoWidth=1" title="打脸汪文斌？中共商务部长称产业外移压力大  " alt="打脸汪文斌？中共商务部长称产业外移压力大  "></a></p>
 <p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/4/29/n12071356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/梁家杰：大流行揭中共致命威胁        >-009fcc?logoWidth=1" title="梁家杰：大流行揭中共致命威胁  " alt="梁家杰：大流行揭中共致命威胁  "></a></p>
+<p><a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/2020/08/09/a102914323.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/严遵美国禁令 港各大银行配合制裁政策引关注 >-009fcc?logoWidth=1" title="严遵美国禁令 港各大银行配合制裁政策引关注  " alt="严遵美国禁令 港各大银行配合制裁政策引关注  "></a></p>
 <p><a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/2020/08/10/a102914423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁11名中港官员 效用到底多大？    >-009fcc?logoWidth=1" title="美制裁11名中港官员 效用到底多大？  " alt="美制裁11名中港官员 效用到底多大？  "></a></p>
-<p><a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/2020/08/09/a102914295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人类史上挖到最深的钻井！你相信地狱之说吗？ >-009fcc?logoWidth=1" title="人类史上挖到最深的钻井！你相信地狱之说吗？  " alt="人类史上挖到最深的钻井！你相信地狱之说吗？  "></a></p>
 <p><a href="https://github.com/avjyzo383/djy/blob/master/gb/20/8/9/n12318304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张慧东：中共外交战狼为何突然熄火      >-009fcc?logoWidth=1" title="张慧东：中共外交战狼为何突然熄火  " alt="张慧东：中共外交战狼为何突然熄火  "></a></p>
+<p><a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/2020/08/09/a102914295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人类史上挖到最深的钻井！你相信地狱之说吗？ >-009fcc?logoWidth=1" title="人类史上挖到最深的钻井！你相信地狱之说吗？  " alt="人类史上挖到最深的钻井！你相信地狱之说吗？  "></a></p>
 <p><a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/2020/08/09/a102914055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强被迫写检讨%3F%3F%3F%3F港官“嘴硬”不怕制裁>-009fcc?logoWidth=1" title="李克强被迫写检讨????港官“嘴硬”不怕制裁，林郑儿子留美泡汤？  " alt="李克强被迫写检讨????港官“嘴硬”不怕制裁，林郑儿子留美泡汤？  "></a></p>
-<p><a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/2020/08/09/a102914061.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：潜伏美国的上千中共党员已叛逃    >-009fcc?logoWidth=1" title="袁弓夷：潜伏美国的上千中共党员已叛逃  " alt="袁弓夷：潜伏美国的上千中共党员已叛逃  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -489,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/avjyzo383/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/avjyzo383/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/avjyzo383/www/blob/master/README.md?z#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/avjyzo383/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/avjyzo383/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/avjyzo383/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/avjyzo383/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/avjyzo383/www/blob/master/README.md?w#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/avjyzo383/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/yssss">git.io/yssss</a></div>
+<div align="center">短网址: <a href="https://git.io/88888">git.io/88888</a></div>
 
