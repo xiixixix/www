@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ppqcps340/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ppqcps340/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/utttt">git.io/utttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u55">x.co/u55</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kjjjj">git.io/kjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3888">x.co/3888</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,7 +27,7 @@
 <p><a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/2020/08/09/a102914403.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫国安顾问警告:外国干扰大选将面临严重后果>-009fcc?logoWidth=1" title="白宫国安顾问警告:外国干扰大选将面临严重后果  " alt="白宫国安顾问警告:外国干扰大选将面临严重后果  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ppqcps340/djy/blob/master/gb/20/8/9/n12317578.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美卫生部长访台 分析：川普一石四鸟策略   >-009fcc?logoWidth=1" title="美卫生部长访台 分析：川普一石四鸟策略  " alt="美卫生部长访台 分析：川普一石四鸟策略  "></a></p>
-<p><a href="https://github.com/ppqcps340/djy/blob/master/gb/20/8/10/n12318484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英父子等7人被抓 警搜苹果大楼     >-009fcc?logoWidth=1" title="黎智英父子等7人被抓 警搜苹果大楼  " alt="黎智英父子等7人被抓 警搜苹果大楼  "></a></p>
+<p><a href="https://github.com/ppqcps340/djy/blob/master/gb/20/8/10/n12318484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英张剑虹被押往办公室搜查        >-009fcc?logoWidth=1" title="黎智英张剑虹被押往办公室搜查  " alt="黎智英张剑虹被押往办公室搜查  "></a></p>
 <p><a href="https://github.com/ppqcps340/djy/blob/master/gb/20/8/8/n12316261.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：秦城监狱喊“打倒法西斯”的中共高官 >-009fcc?logoWidth=1" title="王友群：秦城监狱喊“打倒法西斯”的中共高官  " alt="王友群：秦城监狱喊“打倒法西斯”的中共高官  "></a></p>
 <p><a href="https://github.com/ppqcps340/djy/blob/master/gb/20/8/8/n12316489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡编称等着擦枪 中美冲突谁胜算       >-009fcc?logoWidth=1" title="胡编称等着擦枪 中美冲突谁胜算  " alt="胡编称等着擦枪 中美冲突谁胜算  "></a></p>
 <p><a href="https://github.com/ppqcps340/djy/blob/master/gb/20/8/9/n12316999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：骆惠宁回应制裁心虚 胡锡进帮腔成拙 >-009fcc?logoWidth=1" title="陈思敏：骆惠宁回应制裁心虚 胡锡进帮腔成拙  " alt="陈思敏：骆惠宁回应制裁心虚 胡锡进帮腔成拙  "></a></p>
@@ -39,9 +39,9 @@
 <p><a href="https://github.com/ppqcps340/djy/blob/master/gb/20/8/9/n12318002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/打脸汪文斌？中共商务部长称产业外移压力大  >-009fcc?logoWidth=1" title="打脸汪文斌？中共商务部长称产业外移压力大  " alt="打脸汪文斌？中共商务部长称产业外移压力大  "></a></p>
 <p><a href="https://github.com/ppqcps340/djy/blob/master/gb/20/8/9/n12316971.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共怂了 急令五毛大转弯          >-009fcc?logoWidth=1" title="中共怂了 急令五毛大转弯  " alt="中共怂了 急令五毛大转弯  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/2020/08/09/a102914363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推特垂涎TikTok在美业务 专家表怀疑  >-009fcc?logoWidth=1" title="推特垂涎TikTok在美业务 专家表怀疑  " alt="推特垂涎TikTok在美业务 专家表怀疑  "></a></p>
-<p><a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/2020/08/09/a102914323.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/严遵美国禁令 港各大银行配合制裁政策引关注 >-009fcc?logoWidth=1" title="严遵美国禁令 港各大银行配合制裁政策引关注  " alt="严遵美国禁令 港各大银行配合制裁政策引关注  "></a></p>
 <p><a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/2020/08/10/a102914468.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美关系无法回头 被制裁11人 谁伤最重？ >-009fcc?logoWidth=1" title="中美关系无法回头 被制裁11人 谁伤最重？  " alt="中美关系无法回头 被制裁11人 谁伤最重？  "></a></p>
+<p><a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/2020/08/10/a102914423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁11名中港官员 效用到底多大？    >-009fcc?logoWidth=1" title="美制裁11名中港官员 效用到底多大？  " alt="美制裁11名中港官员 效用到底多大？  "></a></p>
+<p><a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/2020/08/09/a102914323.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/严遵美国禁令 港各大银行配合制裁政策引关注 >-009fcc?logoWidth=1" title="严遵美国禁令 港各大银行配合制裁政策引关注  " alt="严遵美国禁令 港各大银行配合制裁政策引关注  "></a></p>
 <p><a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/2020/08/09/a102914061.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：潜伏美国的上千中共党员已叛逃    >-009fcc?logoWidth=1" title="袁弓夷：潜伏美国的上千中共党员已叛逃  " alt="袁弓夷：潜伏美国的上千中共党员已叛逃  "></a></p>
 <p><a href="https://github.com/ppqcps340/djy/blob/master/gb/20/8/9/n12317348.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆猪肉又涨价了 民众：肉价让人抓狂    >-009fcc?logoWidth=1" title="大陆猪肉又涨价了 民众：肉价让人抓狂  " alt="大陆猪肉又涨价了 民众：肉价让人抓狂  "></a></p>
 <p><a href="https://github.com/ppqcps340/djy/blob/master/gb/20/8/9/n12317528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/百度中共官员词条漏洞百出 0岁参军3岁入党 >-009fcc?logoWidth=1" title="百度中共官员词条漏洞百出 0岁参军3岁入党  " alt="百度中共官员词条漏洞百出 0岁参军3岁入党  "></a></p>
@@ -489,7 +489,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/ppqcps340/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ppqcps340/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ppqcps340/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ppqcps340/www/blob/master/README.md?e#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ppqcps340/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ppqcps340/www/blob/master/README.md?z#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ppqcps340/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/utttt">git.io/utttt</a></div>
+<div align="center">短网址: <a href="https://git.io/kjjjj">git.io/kjjjj</a></div>
 
