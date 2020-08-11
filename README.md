@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cnratn349/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cnratn349/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mmmmmmmm">git.io/mmmmmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3aa">x.co/3aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jbbbb">git.io/jbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3377">x.co/3377</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -38,6 +38,7 @@
 <p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/11/n12321426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：大灾大难大迫害 难逃北京大审判   >-009fcc?logoWidth=1" title="王友群：大灾大难大迫害 难逃北京大审判  " alt="王友群：大灾大难大迫害 难逃北京大审判  "></a></p>
 <p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/11/n12323398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福建漳州养殖户：台风袭击惨况        >-009fcc?logoWidth=1" title="福建漳州养殖户：台风袭击惨况  " alt="福建漳州养殖户：台风袭击惨况  "></a></p>
 <p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/11/n12323209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英凌晨获释 警署外市民高呼“撑苹果”  >-009fcc?logoWidth=1" title="黎智英凌晨获释 警署外市民高呼“撑苹果”  " alt="黎智英凌晨获释 警署外市民高呼“撑苹果”  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/11/n12321665.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阿札尔访台 中共军机越海峡中线被强势驱离  >-009fcc?logoWidth=1" title="阿札尔访台 中共军机越海峡中线被强势驱离  " alt="阿札尔访台 中共军机越海峡中线被强势驱离  "></a></p>
 <p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/11/n12322370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港10人遭通宵关押 黎智英被押往游艇会搜查 >-009fcc?logoWidth=1" title="港10人遭通宵关押 黎智英被押往游艇会搜查  " alt="港10人遭通宵关押 黎智英被押往游艇会搜查  "></a></p>
@@ -491,8 +492,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cnratn349/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cnratn349/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cnratn349/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cnratn349/www/blob/master/README.md?h#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cnratn349/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cnratn349/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cnratn349/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cnratn349/www/master/index.html?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cnratn349/www/blob/master/README.md?x#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cnratn349/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mmmmmmmm">git.io/mmmmmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/jbbbb">git.io/jbbbb</a></div>
 
