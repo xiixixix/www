@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dectke3550/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dectke3550/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cdddd">git.io/cdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/4445">x.co/4445</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h5555">git.io/h5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/afa">x.co/afa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,7 +20,7 @@
 <p><a href="https://github.com/dectke3550/ntdtv/blob/master/gb/2020/08/11/a102915303.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英等被捕 美国欧盟发声谴责       >-009fcc?logoWidth=1" title="黎智英等被捕 美国欧盟发声谴责  " alt="黎智英等被捕 美国欧盟发声谴责  "></a></p>
 <p><a href="https://github.com/dectke3550/ntdtv/blob/master/gb/2020/08/10/a102915239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球2千万染疫 白宫外突发枪击       >-009fcc?logoWidth=1" title="全球2千万染疫 白宫外突发枪击  " alt="全球2千万染疫 白宫外突发枪击  "></a></p>
 <p><a href="https://github.com/dectke3550/ntdtv/blob/master/gb/2020/08/10/a102914784.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平忧惧亡党/李克强处境难料       >-009fcc?logoWidth=1" title="习近平忧惧亡党/李克强处境难料  " alt="习近平忧惧亡党/李克强处境难料  "></a></p>
-<p><a href="https://github.com/dectke3550/ntdtv/blob/master/gb/2020/08/11/a102915401.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：港警搜查壹传媒内部照流出 苹果誓言“撑>-009fcc?logoWidth=1" title="组图：港警搜查壹传媒内部照流出 苹果誓言“撑下去！”  " alt="组图：港警搜查壹传媒内部照流出 苹果誓言“撑下去！”  "></a></p>
+<p><a href="https://github.com/dectke3550/ntdtv/blob/master/gb/2020/08/11/a102915483.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江苏盐城货车遇车祸 10吨猪肉被抢走7吨  >-009fcc?logoWidth=1" title="江苏盐城货车遇车祸 10吨猪肉被抢走7吨  " alt="江苏盐城货车遇车祸 10吨猪肉被抢走7吨  "></a></p>
 <p><a href="https://github.com/dectke3550/ntdtv/blob/master/gb/2020/08/11/a102915379.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴尔的摩瓦斯爆炸 房屋被夷平至少1死3伤5受>-009fcc?logoWidth=1" title="巴尔的摩瓦斯爆炸 房屋被夷平至少1死3伤5受困  " alt="巴尔的摩瓦斯爆炸 房屋被夷平至少1死3伤5受困  "></a></p>
 <p><a href="https://github.com/dectke3550/ntdtv/blob/master/gb/2020/08/11/a102915366.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英被捕 蓬佩奥发声强烈谴责       >-009fcc?logoWidth=1" title="黎智英被捕 蓬佩奥发声强烈谴责  " alt="黎智英被捕 蓬佩奥发声强烈谴责  "></a></p>
 <p><a href="https://github.com/dectke3550/ntdtv/blob/master/gb/2020/08/11/a102915350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共一政协副主席 0岁参军 3岁入党刷屏  >-009fcc?logoWidth=1" title="中共一政协副主席 0岁参军 3岁入党刷屏  " alt="中共一政协副主席 0岁参军 3岁入党刷屏  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dectke3550/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dectke3550/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dectke3550/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dectke3550/www/blob/master/README.md?z#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/dectke3550/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dectke3550/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dectke3550/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dectke3550/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dectke3550/www/blob/master/README.md?v#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/dectke3550/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/cdddd">git.io/cdddd</a></div>
+<div align="center">短网址: <a href="https://git.io/h5555">git.io/h5555</a></div>
 
