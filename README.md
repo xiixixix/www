@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cnratn349/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cnratn349/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fssss">git.io/fssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2666">x.co/2666</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/s3333">git.io/s3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p9p">x.co/p9p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915535.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷曝中共逃亡潮：驻外使领馆每天都有人失踪>-009fcc?logoWidth=1" title="袁弓夷曝中共逃亡潮：驻外使领馆每天都有人失踪  " alt="袁弓夷曝中共逃亡潮：驻外使领馆每天都有人失踪  "></a></p>
 <p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915502.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林郑资产只能交习近平？美国制裁出狠招    >-009fcc?logoWidth=1" title="林郑资产只能交习近平？美国制裁出狠招  " alt="林郑资产只能交习近平？美国制裁出狠招  "></a></p>
 <p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915854.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为造国家资料中心现重大漏洞 被指间谍活动铁>-009fcc?logoWidth=1" title="华为造国家资料中心现重大漏洞 被指间谍活动铁证  " alt="华为造国家资料中心现重大漏洞 被指间谍活动铁证  "></a></p>
+<p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915862.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长春插播幸存者 吁美国推倒中共网络防火墙  >-009fcc?logoWidth=1" title="长春插播幸存者 吁美国推倒中共网络防火墙  " alt="长春插播幸存者 吁美国推倒中共网络防火墙  "></a></p>
 <p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共贪官又创新纪录 赖小民被控受贿18亿元 >-009fcc?logoWidth=1" title="中共贪官又创新纪录 赖小民被控受贿18亿元  " alt="中共贪官又创新纪录 赖小民被控受贿18亿元  "></a></p>
 <p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915768.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网文：俄罗斯3年前封禁微信 党媒称“合情合理>-009fcc?logoWidth=1" title="网文：俄罗斯3年前封禁微信 党媒称“合情合理”  " alt="网文：俄罗斯3年前封禁微信 党媒称“合情合理”  "></a></p>
 <p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915742.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前凤凰记者：党媒员工天天翻墙 中共官员悄悄退>-009fcc?logoWidth=1" title="前凤凰记者：党媒员工天天翻墙 中共官员悄悄退党  " alt="前凤凰记者：党媒员工天天翻墙 中共官员悄悄退党  "></a></p>
-<p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915723.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美驻北京使馆徽章删“中国” 蓬佩奥称台湾为国>-009fcc?logoWidth=1" title="美驻北京使馆徽章删“中国” 蓬佩奥称台湾为国家  " alt="美驻北京使馆徽章删“中国” 蓬佩奥称台湾为国家  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/11/n12321842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军医唐娟不认罪 海量电子文件待查    >-009fcc?logoWidth=1" title="中共军医唐娟不认罪 海量电子文件待查  " alt="中共军医唐娟不认罪 海量电子文件待查  "></a></p>
 <p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/10/n12319894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢金河：汇丰恐成中港最大黑天鹅       >-009fcc?logoWidth=1" title="谢金河：汇丰恐成中港最大黑天鹅  " alt="谢金河：汇丰恐成中港最大黑天鹅  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cnratn349/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cnratn349/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cnratn349/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cnratn349/www/blob/master/README.md?q#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cnratn349/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cnratn349/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cnratn349/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cnratn349/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cnratn349/www/blob/master/README.md?r#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cnratn349/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fssss">git.io/fssss</a></div>
+<div align="center">短网址: <a href="https://git.io/s3333">git.io/s3333</a></div>
 
