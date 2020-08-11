@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/snzyvt308/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/snzyvt308/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/itttt">git.io/itttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aad">x.co/aad</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/66666666">git.io/66666666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/fpp">x.co/fpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/2020/08/10/a102914784.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平忧惧亡党/李克强处境难料       >-009fcc?logoWidth=1" title="习近平忧惧亡党/李克强处境难料  " alt="习近平忧惧亡党/李克强处境难料  "></a></p>
 <p><a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/2020/08/10/a102914717.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平忧惧亡党 “小林彪”看电影表忠    >-009fcc?logoWidth=1" title="习近平忧惧亡党 “小林彪”看电影表忠  " alt="习近平忧惧亡党 “小林彪”看电影表忠  "></a></p>
 <p><a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/2020/08/10/a102914577.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：黎智英被押往壹传媒总部 近200警封锁>-009fcc?logoWidth=1" title="组图：黎智英被押往壹传媒总部 近200警封锁大楼搜查  " alt="组图：黎智英被押往壹传媒总部 近200警封锁大楼搜查  "></a></p>
+<p><a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/2020/08/11/a102915343.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/也门连月豪雨 列世界遗产老屋近5000栋漏水>-009fcc?logoWidth=1" title="也门连月豪雨 列世界遗产老屋近5000栋漏水  " alt="也门连月豪雨 列世界遗产老屋近5000栋漏水  "></a></p>
 <p><a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/2020/08/10/a102915232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议定调维系中美关系 官员相互回避如履>-009fcc?logoWidth=1" title="北戴河会议定调维系中美关系 官员相互回避如履薄冰  " alt="北戴河会议定调维系中美关系 官员相互回避如履薄冰  "></a></p>
 <p><a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/2020/08/10/a102915197.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫外枪击案 川普记者会一度中断      >-009fcc?logoWidth=1" title="白宫外枪击案 川普记者会一度中断  " alt="白宫外枪击案 川普记者会一度中断  "></a></p>
 <p><a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/2020/08/10/a102915179.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林郑次子上月在美国突然失踪 被曝已返回香港一>-009fcc?logoWidth=1" title="林郑次子上月在美国突然失踪 被曝已返回香港一带  " alt="林郑次子上月在美国突然失踪 被曝已返回香港一带  "></a></p>
 <p><a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/2020/08/10/a102915159.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/母被医成植物人 姜海霞维权两年无果     >-009fcc?logoWidth=1" title="母被医成植物人 姜海霞维权两年无果  " alt="母被医成植物人 姜海霞维权两年无果  "></a></p>
-<p><a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/2020/08/10/a102915161.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国制裁港共官员 银行如何选边       >-009fcc?logoWidth=1" title="美国制裁港共官员 银行如何选边  " alt="美国制裁港共官员 银行如何选边  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/10/n12320092.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/苹果日报逾百人个资外泄 疑中共公安部门流出 >-009fcc?logoWidth=1" title="苹果日报逾百人个资外泄 疑中共公安部门流出  " alt="苹果日报逾百人个资外泄 疑中共公安部门流出  "></a></p>
 <p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/10/n12319584.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国安搜馆逮人 壹传媒拼了 港人买股相撑   >-009fcc?logoWidth=1" title="国安搜馆逮人 壹传媒拼了 港人买股相撑  " alt="国安搜馆逮人 壹传媒拼了 港人买股相撑  "></a></p>
@@ -39,16 +39,15 @@
 <p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/10/n12318484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周庭被捕 黎智英之后第十人         >-009fcc?logoWidth=1" title="周庭被捕 黎智英之后第十人  " alt="周庭被捕 黎智英之后第十人  "></a></p>
 <p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/10/n12319645.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共又报复 宣称制裁11名美国人再被揶揄  >-009fcc?logoWidth=1" title="中共又报复 宣称制裁11名美国人再被揶揄  " alt="中共又报复 宣称制裁11名美国人再被揶揄  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/2020/08/10/a102915058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中港官员受制裁影响覆盖全球 付款购物皆受阻 >-009fcc?logoWidth=1" title="中港官员受制裁影响覆盖全球 付款购物皆受阻  " alt="中港官员受制裁影响覆盖全球 付款购物皆受阻  "></a></p>
 <p><a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/2020/08/10/a102915009.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/提议自己在总统山塑像？川普调侃假新闻:好主意>-009fcc?logoWidth=1" title="提议自己在总统山塑像？川普调侃假新闻:好主意  " alt="提议自己在总统山塑像？川普调侃假新闻:好主意  "></a></p>
-<p><a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/2020/08/10/a102914819.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共制裁美国官员 3人二次上榜 闹国际笑话 >-009fcc?logoWidth=1" title="中共制裁美国官员 3人二次上榜 闹国际笑话  " alt="中共制裁美国官员 3人二次上榜 闹国际笑话  "></a></p>
 <p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/10/n12319963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国最好的时代和最坏的时代         >-009fcc?logoWidth=1" title="美国最好的时代和最坏的时代  " alt="美国最好的时代和最坏的时代  "></a></p>
 <p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/10/n12320798.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回应中共制裁美国人 白宫：总统将继续强硬  >-009fcc?logoWidth=1" title="回应中共制裁美国人 白宫：总统将继续强硬  " alt="回应中共制裁美国人 白宫：总统将继续强硬  "></a></p>
-<p><a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/2020/08/10/a102915204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫外突发枪击 川普记者会一度中断     >-009fcc?logoWidth=1" title="白宫外突发枪击 川普记者会一度中断  " alt="白宫外突发枪击 川普记者会一度中断  "></a></p>
-<p><a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/2020/08/10/a102915048.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/麒麟断芯 微软断供 华为休         >-009fcc?logoWidth=1" title="麒麟断芯 微软断供 华为休  " alt="麒麟断芯 微软断供 华为休  "></a></p>
+<p><a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/2020/08/10/a102914819.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共制裁美国官员 3人二次上榜 闹国际笑话 >-009fcc?logoWidth=1" title="中共制裁美国官员 3人二次上榜 闹国际笑话  " alt="中共制裁美国官员 3人二次上榜 闹国际笑话  "></a></p>
 <p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/9/n12318189.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军医唐娟今天庭审            >-009fcc?logoWidth=1" title="中共军医唐娟今天庭审  " alt="中共军医唐娟今天庭审  "></a></p>
 <p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/9/n12318350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抗共大事记：净网禁微信 美部长访台(8/2-->-009fcc?logoWidth=1" title="抗共大事记：净网禁微信 美部长访台(8/2-8/9)  " alt="抗共大事记：净网禁微信 美部长访台(8/2-8/9)  "></a></p>
-<p><a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/2020/08/10/a102914668.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部长王毅近期对南海的新表述意味什么？  >-009fcc?logoWidth=1" title="外交部长王毅近期对南海的新表述意味什么？  " alt="外交部长王毅近期对南海的新表述意味什么？  "></a></p>
-<p><a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/2020/08/10/a102914532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中南海斗得你死我活 李克强处境难料  >-009fcc?logoWidth=1" title="分析：中南海斗得你死我活 李克强处境难料  " alt="分析：中南海斗得你死我活 李克强处境难料  "></a></p>
+<p><a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/2020/08/10/a102915204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫外突发枪击 川普记者会一度中断     >-009fcc?logoWidth=1" title="白宫外突发枪击 川普记者会一度中断  " alt="白宫外突发枪击 川普记者会一度中断  "></a></p>
+<p><a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/2020/08/10/a102915048.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/麒麟断芯 微软断供 华为休         >-009fcc?logoWidth=1" title="麒麟断芯 微软断供 华为休  " alt="麒麟断芯 微软断供 华为休  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -486,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/snzyvt308/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/snzyvt308/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/snzyvt308/www/blob/master/README.md?u#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/snzyvt308/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/snzyvt308/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/snzyvt308/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/snzyvt308/www/blob/master/README.md?s#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/snzyvt308/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/itttt">git.io/itttt</a></div>
+<div align="center">短网址: <a href="https://git.io/66666666">git.io/66666666</a></div>
 
