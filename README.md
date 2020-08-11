@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/snzyvt308/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/snzyvt308/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jcccc">git.io/jcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa6">x.co/aa6</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ipppp">git.io/ipppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j88">x.co/j88</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,7 +39,6 @@
 <p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/10/n12318484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周庭被捕 黎智英之后第十人         >-009fcc?logoWidth=1" title="周庭被捕 黎智英之后第十人  " alt="周庭被捕 黎智英之后第十人  "></a></p>
 <p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/10/n12319645.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共又报复 宣称制裁11名美国人再被揶揄  >-009fcc?logoWidth=1" title="中共又报复 宣称制裁11名美国人再被揶揄  " alt="中共又报复 宣称制裁11名美国人再被揶揄  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/10/n12319309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆留学生看美国禁微信抖音 3个正当理由  >-009fcc?logoWidth=1" title="大陆留学生看美国禁微信抖音 3个正当理由  " alt="大陆留学生看美国禁微信抖音 3个正当理由  "></a></p>
 <p><a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/2020/08/10/a102915009.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/提议自己在总统山塑像？川普调侃假新闻:好主意>-009fcc?logoWidth=1" title="提议自己在总统山塑像？川普调侃假新闻:好主意  " alt="提议自己在总统山塑像？川普调侃假新闻:好主意  "></a></p>
 <p><a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/2020/08/10/a102914819.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共制裁美国官员 3人二次上榜 闹国际笑话 >-009fcc?logoWidth=1" title="中共制裁美国官员 3人二次上榜 闹国际笑话  " alt="中共制裁美国官员 3人二次上榜 闹国际笑话  "></a></p>
 <p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/10/n12319963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国最好的时代和最坏的时代         >-009fcc?logoWidth=1" title="美国最好的时代和最坏的时代  " alt="美国最好的时代和最坏的时代  "></a></p>
@@ -486,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/snzyvt308/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/snzyvt308/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/snzyvt308/www/blob/master/README.md?q#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/snzyvt308/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/snzyvt308/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/snzyvt308/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/snzyvt308/www/blob/master/README.md?b#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/snzyvt308/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jcccc">git.io/jcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/ipppp">git.io/ipppp</a></div>
 
