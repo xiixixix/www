@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cnratn349/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cnratn349/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kzzzz">git.io/kzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/psp">x.co/psp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mmmmmmmm">git.io/mmmmmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3aa">x.co/3aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,15 +27,15 @@
 <p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共贪官又创新纪录 赖小民被控受贿18亿元 >-009fcc?logoWidth=1" title="中共贪官又创新纪录 赖小民被控受贿18亿元  " alt="中共贪官又创新纪录 赖小民被控受贿18亿元  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/10/n12321142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭美美爆料人揭红会倒卖防疫品        >-009fcc?logoWidth=1" title="郭美美爆料人揭红会倒卖防疫品  " alt="郭美美爆料人揭红会倒卖防疫品  "></a></p>
+<p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/11/n12322972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：瘟疫大流行后 对习近平看法改变    >-009fcc?logoWidth=1" title="川普：瘟疫大流行后 对习近平看法改变  " alt="川普：瘟疫大流行后 对习近平看法改变  "></a></p>
 <p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/11/n12321842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军医唐娟不认罪 海量电子文件待查    >-009fcc?logoWidth=1" title="中共军医唐娟不认罪 海量电子文件待查  " alt="中共军医唐娟不认罪 海量电子文件待查  "></a></p>
-<p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/10/n12319894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢金河：汇丰恐成中港最大黑天鹅       >-009fcc?logoWidth=1" title="谢金河：汇丰恐成中港最大黑天鹅  " alt="谢金河：汇丰恐成中港最大黑天鹅  "></a></p>
-<p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/11/n12321224.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国将禁微信 腾讯股票两天蒸发660亿美元 >-009fcc?logoWidth=1" title="美国将禁微信 腾讯股票两天蒸发660亿美元  " alt="美国将禁微信 腾讯股票两天蒸发660亿美元  "></a></p>
+<p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/11/n12322965.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/执行美制裁令 传花旗冻结账户 渣打加紧审查 >-009fcc?logoWidth=1" title="执行美制裁令 传花旗冻结账户 渣打加紧审查  " alt="执行美制裁令 传花旗冻结账户 渣打加紧审查  "></a></p>
 <p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/11/n12321373.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：黎智英被抓壹传媒股票暴涨3倍说明什么 >-009fcc?logoWidth=1" title="袁斌：黎智英被抓壹传媒股票暴涨3倍说明什么  " alt="袁斌：黎智英被抓壹传媒股票暴涨3倍说明什么  "></a></p>
 <p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/8/n12316675.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：大时代大变局 大纪元预警莫错过    >-009fcc?logoWidth=1" title="杨威：大时代大变局 大纪元预警莫错过  " alt="杨威：大时代大变局 大纪元预警莫错过  "></a></p>
-<p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/11/n12321426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：大灾大难大迫害 难逃北京大审判   >-009fcc?logoWidth=1" title="王友群：大灾大难大迫害 难逃北京大审判  " alt="王友群：大灾大难大迫害 难逃北京大审判  "></a></p>
+<p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/11/n12322967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：针对中共 美国有一长串行动在考虑  >-009fcc?logoWidth=1" title="蓬佩奥：针对中共 美国有一长串行动在考虑  " alt="蓬佩奥：针对中共 美国有一长串行动在考虑  "></a></p>
 <p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/8/n12316177.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/因何制裁 美公布中港11高官所为      >-009fcc?logoWidth=1" title="因何制裁 美公布中港11高官所为  " alt="因何制裁 美公布中港11高官所为  "></a></p>
 <p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/11/n12322930.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习提粮食危机 学者：中国粮食问题不容忽视  >-009fcc?logoWidth=1" title="习提粮食危机 学者：中国粮食问题不容忽视  " alt="习提粮食危机 学者：中国粮食问题不容忽视  "></a></p>
-<p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/11/n12322967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：针对中共 美国有一长串行动在考虑  >-009fcc?logoWidth=1" title="蓬佩奥：针对中共 美国有一长串行动在考虑  " alt="蓬佩奥：针对中共 美国有一长串行动在考虑  "></a></p>
+<p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/11/n12321426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：大灾大难大迫害 难逃北京大审判   >-009fcc?logoWidth=1" title="王友群：大灾大难大迫害 难逃北京大审判  " alt="王友群：大灾大难大迫害 难逃北京大审判  "></a></p>
 <p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/11/n12323398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福建漳州养殖户：台风袭击惨况        >-009fcc?logoWidth=1" title="福建漳州养殖户：台风袭击惨况  " alt="福建漳州养殖户：台风袭击惨况  "></a></p>
 <p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/11/n12323209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英凌晨获释 警署外市民高呼“撑苹果”  >-009fcc?logoWidth=1" title="黎智英凌晨获释 警署外市民高呼“撑苹果”  " alt="黎智英凌晨获释 警署外市民高呼“撑苹果”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -491,8 +491,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cnratn349/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cnratn349/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cnratn349/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cnratn349/www/blob/master/README.md?l#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cnratn349/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cnratn349/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cnratn349/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cnratn349/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cnratn349/www/blob/master/README.md?h#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cnratn349/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kzzzz">git.io/kzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/mmmmmmmm">git.io/mmmmmmmm</a></div>
 
