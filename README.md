@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cnratn349/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cnratn349/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/t9999">git.io/t9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a7a">x.co/a7a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gjjjj">git.io/gjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3335">x.co/3335</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -47,7 +47,7 @@
 <p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915522.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港大抓捕当晚 闪电直轰“东方明珠塔”(视频>-009fcc?logoWidth=1" title="香港大抓捕当晚 闪电直轰“东方明珠塔”(视频)  " alt="香港大抓捕当晚 闪电直轰“东方明珠塔”(视频)  "></a></p>
 <p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/10/a102915232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议定调维系中美关系 官员相互回避如履>-009fcc?logoWidth=1" title="北戴河会议定调维系中美关系 官员相互回避如履薄冰  " alt="北戴河会议定调维系中美关系 官员相互回避如履薄冰  "></a></p>
 <p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/11/n12321635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闪电击中东方明珠塔 黄河4号洪水形成    >-009fcc?logoWidth=1" title="闪电击中东方明珠塔 黄河4号洪水形成  " alt="闪电击中东方明珠塔 黄河4号洪水形成  "></a></p>
-<p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/11/n12322074.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/壹传媒股价狂飙20倍 股票成港人最新抗争武器>-009fcc?logoWidth=1" title="壹传媒股价狂飙20倍 股票成港人最新抗争武器  " alt="壹传媒股价狂飙20倍 股票成港人最新抗争武器  "></a></p>
+<p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/11/n12322074.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反抗镇压 股票成港人最新抗争武器      >-009fcc?logoWidth=1" title="反抗镇压 股票成港人最新抗争武器  " alt="反抗镇压 股票成港人最新抗争武器  "></a></p>
 <p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915517.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/联合国发人权调查报告 促港府交代27项人权议>-009fcc?logoWidth=1" title="联合国发人权调查报告 促港府交代27项人权议题  " alt="联合国发人权调查报告 促港府交代27项人权议题  "></a></p>
 <p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915412.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：港共反攻倒算 美国终极王牌或加速而至 >-009fcc?logoWidth=1" title="文昭：港共反攻倒算 美国终极王牌或加速而至  " alt="文昭：港共反攻倒算 美国终极王牌或加速而至  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cnratn349/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cnratn349/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cnratn349/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cnratn349/www/blob/master/README.md?l#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cnratn349/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cnratn349/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cnratn349/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cnratn349/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cnratn349/www/blob/master/README.md?h#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cnratn349/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/t9999">git.io/t9999</a></div>
+<div align="center">短网址: <a href="https://git.io/gjjjj">git.io/gjjjj</a></div>
 
