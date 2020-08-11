@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cnratn349/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cnratn349/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e9999">git.io/e9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/377">x.co/377</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/guuuu">git.io/guuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/7aa">x.co/7aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫惊闻枪响 川普被特勤带走        >-009fcc?logoWidth=1" title="白宫惊闻枪响 川普被特勤带走  " alt="白宫惊闻枪响 川普被特勤带走  "></a></p>
 <p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915535.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷曝中共逃亡潮：驻外使领馆每天都有人失踪>-009fcc?logoWidth=1" title="袁弓夷曝中共逃亡潮：驻外使领馆每天都有人失踪  " alt="袁弓夷曝中共逃亡潮：驻外使领馆每天都有人失踪  "></a></p>
 <p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915502.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林郑资产只能交习近平？美国制裁出狠招    >-009fcc?logoWidth=1" title="林郑资产只能交习近平？美国制裁出狠招  " alt="林郑资产只能交习近平？美国制裁出狠招  "></a></p>
+<p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915643.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英2岁女童患罕见先天疾病 肚子上长颗“球” >-009fcc?logoWidth=1" title="英2岁女童患罕见先天疾病 肚子上长颗“球”  " alt="英2岁女童患罕见先天疾病 肚子上长颗“球”  "></a></p>
+<p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915686.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拘押逾36小时 黎智英等人陆续获准保释   >-009fcc?logoWidth=1" title="拘押逾36小时 黎智英等人陆续获准保释  " alt="拘押逾36小时 黎智英等人陆续获准保释  "></a></p>
 <p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京警察截访 大批访民被送久敬庄遣返    >-009fcc?logoWidth=1" title="北京警察截访 大批访民被送久敬庄遣返  " alt="北京警察截访 大批访民被送久敬庄遣返  "></a></p>
 <p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915626.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新苏联笑话：“一箱小狗”成微博禁词     >-009fcc?logoWidth=1" title="新苏联笑话：“一箱小狗”成微博禁词  " alt="新苏联笑话：“一箱小狗”成微博禁词  "></a></p>
 <p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞士要公投 中共权贵万亿资产或将冻结    >-009fcc?logoWidth=1" title="瑞士要公投 中共权贵万亿资产或将冻结  " alt="瑞士要公投 中共权贵万亿资产或将冻结  "></a></p>
-<p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915522.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港大抓捕当晚 闪电直轰“东方明珠塔”(视频>-009fcc?logoWidth=1" title="香港大抓捕当晚 闪电直轰“东方明珠塔”(视频)  " alt="香港大抓捕当晚 闪电直轰“东方明珠塔”(视频)  "></a></p>
-<p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915517.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/联合国发人权调查报告 促港府交代27项人权议>-009fcc?logoWidth=1" title="联合国发人权调查报告 促港府交代27项人权议题  " alt="联合国发人权调查报告 促港府交代27项人权议题  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/11/n12321842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军医唐娟不认罪 海量电子文件待查    >-009fcc?logoWidth=1" title="中共军医唐娟不认罪 海量电子文件待查  " alt="中共军医唐娟不认罪 海量电子文件待查  "></a></p>
 <p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/10/n12319894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢金河：汇丰恐成中港最大黑天鹅       >-009fcc?logoWidth=1" title="谢金河：汇丰恐成中港最大黑天鹅  " alt="谢金河：汇丰恐成中港最大黑天鹅  "></a></p>
@@ -43,9 +43,11 @@
 <p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港人用股票当选票 黎智英被抓股价狂飙三倍  >-009fcc?logoWidth=1" title="港人用股票当选票 黎智英被抓股价狂飙三倍  " alt="港人用股票当选票 黎智英被抓股价狂飙三倍  "></a></p>
 <p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/10/n12320276.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下北戴河会议冷清 对内对外均强调稳定  >-009fcc?logoWidth=1" title="疫情下北戴河会议冷清 对内对外均强调稳定  " alt="疫情下北戴河会议冷清 对内对外均强调稳定  "></a></p>
 <p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/11/n12321570.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华人白宫网站请愿 支持封杀微信TikTok >-009fcc?logoWidth=1" title="华人白宫网站请愿 支持封杀微信TikTok  " alt="华人白宫网站请愿 支持封杀微信TikTok  "></a></p>
+<p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915522.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港大抓捕当晚 闪电直轰“东方明珠塔”(视频>-009fcc?logoWidth=1" title="香港大抓捕当晚 闪电直轰“东方明珠塔”(视频)  " alt="香港大抓捕当晚 闪电直轰“东方明珠塔”(视频)  "></a></p>
 <p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/10/a102915232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议定调维系中美关系 官员相互回避如履>-009fcc?logoWidth=1" title="北戴河会议定调维系中美关系 官员相互回避如履薄冰  " alt="北戴河会议定调维系中美关系 官员相互回避如履薄冰  "></a></p>
 <p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/11/n12321635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闪电击中东方明珠塔 黄河4号洪水形成    >-009fcc?logoWidth=1" title="闪电击中东方明珠塔 黄河4号洪水形成  " alt="闪电击中东方明珠塔 黄河4号洪水形成  "></a></p>
 <p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/11/n12322074.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/壹传媒股价狂飙20倍 股票成港人最新抗争武器>-009fcc?logoWidth=1" title="壹传媒股价狂飙20倍 股票成港人最新抗争武器  " alt="壹传媒股价狂飙20倍 股票成港人最新抗争武器  "></a></p>
+<p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915517.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/联合国发人权调查报告 促港府交代27项人权议>-009fcc?logoWidth=1" title="联合国发人权调查报告 促港府交代27项人权议题  " alt="联合国发人权调查报告 促港府交代27项人权议题  "></a></p>
 <p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915412.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：港共反攻倒算 美国终极王牌或加速而至 >-009fcc?logoWidth=1" title="文昭：港共反攻倒算 美国终极王牌或加速而至  " alt="文昭：港共反攻倒算 美国终极王牌或加速而至  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -484,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cnratn349/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cnratn349/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cnratn349/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cnratn349/www/blob/master/README.md?x#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cnratn349/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cnratn349/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cnratn349/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cnratn349/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cnratn349/www/blob/master/README.md?m#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cnratn349/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/e9999">git.io/e9999</a></div>
+<div align="center">短网址: <a href="https://git.io/guuuu">git.io/guuuu</a></div>
 
