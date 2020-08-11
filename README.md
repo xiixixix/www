@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cnratn349/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cnratn349/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/buuuu">git.io/buuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aya">x.co/aya</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yuuuu">git.io/yuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/iaa">x.co/iaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫惊闻枪响 川普被特勤带走        >-009fcc?logoWidth=1" title="白宫惊闻枪响 川普被特勤带走  " alt="白宫惊闻枪响 川普被特勤带走  "></a></p>
 <p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915535.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷曝中共逃亡潮：驻外使领馆每天都有人失踪>-009fcc?logoWidth=1" title="袁弓夷曝中共逃亡潮：驻外使领馆每天都有人失踪  " alt="袁弓夷曝中共逃亡潮：驻外使领馆每天都有人失踪  "></a></p>
 <p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915502.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林郑资产只能交习近平？美国制裁出狠招    >-009fcc?logoWidth=1" title="林郑资产只能交习近平？美国制裁出狠招  " alt="林郑资产只能交习近平？美国制裁出狠招  "></a></p>
+<p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915723.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美驻北京使馆徽章删“中国” 蓬佩奥称台湾为国>-009fcc?logoWidth=1" title="美驻北京使馆徽章删“中国” 蓬佩奥称台湾为国家  " alt="美驻北京使馆徽章删“中国” 蓬佩奥称台湾为国家  "></a></p>
 <p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩国最长梅雨季 冲走边境地雷 恐成安全未爆弹>-009fcc?logoWidth=1" title="韩国最长梅雨季 冲走边境地雷 恐成安全未爆弹  " alt="韩国最长梅雨季 冲走边境地雷 恐成安全未爆弹  "></a></p>
 <p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915719.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/壹传媒股价涨1000 德媒：市场用钱投票  >-009fcc?logoWidth=1" title="壹传媒股价涨1000 德媒：市场用钱投票  " alt="壹传媒股价涨1000 德媒：市场用钱投票  "></a></p>
 <p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915717.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港警抓媒体创办人！来台港作家：暴政的到来  >-009fcc?logoWidth=1" title="港警抓媒体创办人！来台港作家：暴政的到来  " alt="港警抓媒体创办人！来台港作家：暴政的到来  "></a></p>
 <p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915709.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微软收购TikTok不易？知情人士曝技术原因>-009fcc?logoWidth=1" title="微软收购TikTok不易？知情人士曝技术原因  " alt="微软收购TikTok不易？知情人士曝技术原因  "></a></p>
-<p><a href="https://github.com/cnratn349/ntdtv/blob/master/gb/2020/08/11/a102915696.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两岸对比！美卫长在台演讲 赞台防疫轰中共瞒疫>-009fcc?logoWidth=1" title="两岸对比！美卫长在台演讲 赞台防疫轰中共瞒疫  " alt="两岸对比！美卫长在台演讲 赞台防疫轰中共瞒疫  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/11/n12321842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军医唐娟不认罪 海量电子文件待查    >-009fcc?logoWidth=1" title="中共军医唐娟不认罪 海量电子文件待查  " alt="中共军医唐娟不认罪 海量电子文件待查  "></a></p>
 <p><a href="https://github.com/cnratn349/djy/blob/master/gb/20/8/10/n12319894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢金河：汇丰恐成中港最大黑天鹅       >-009fcc?logoWidth=1" title="谢金河：汇丰恐成中港最大黑天鹅  " alt="谢金河：汇丰恐成中港最大黑天鹅  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cnratn349/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cnratn349/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cnratn349/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cnratn349/www/blob/master/README.md?p#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cnratn349/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cnratn349/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cnratn349/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cnratn349/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cnratn349/www/blob/master/README.md?x#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cnratn349/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/buuuu">git.io/buuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/yuuuu">git.io/yuuuu</a></div>
 
