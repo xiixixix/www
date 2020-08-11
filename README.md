@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/snzyvt308/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/snzyvt308/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/teeee">git.io/teeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/npp">x.co/npp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ncccc">git.io/ncccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/daa">x.co/daa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,24 +28,25 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/10/n12320851.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/记录港人抗争 日纪录片《香港画》电影节获奖 >-009fcc?logoWidth=1" title="记录港人抗争 日纪录片《香港画》电影节获奖  " alt="记录港人抗争 日纪录片《香港画》电影节获奖  "></a></p>
 <p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/11/n12321373.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：黎智英被抓壹传媒股票暴涨3倍说明什么 >-009fcc?logoWidth=1" title="袁斌：黎智英被抓壹传媒股票暴涨3倍说明什么  " alt="袁斌：黎智英被抓壹传媒股票暴涨3倍说明什么  "></a></p>
+<p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/11/n12321426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：大灾大难大迫害 难逃北京大审判   >-009fcc?logoWidth=1" title="王友群：大灾大难大迫害 难逃北京大审判  " alt="王友群：大灾大难大迫害 难逃北京大审判  "></a></p>
 <p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/10/n12320092.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/苹果日报逾百人个资外泄 疑中共公安部门流出 >-009fcc?logoWidth=1" title="苹果日报逾百人个资外泄 疑中共公安部门流出  " alt="苹果日报逾百人个资外泄 疑中共公安部门流出  "></a></p>
-<p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/10/n12319963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国最好的时代和最坏的时代         >-009fcc?logoWidth=1" title="美国最好的时代和最坏的时代  " alt="美国最好的时代和最坏的时代  "></a></p>
+<p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/10/n12319894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢金河：汇丰恐成中港最大黑天鹅       >-009fcc?logoWidth=1" title="谢金河：汇丰恐成中港最大黑天鹅  " alt="谢金河：汇丰恐成中港最大黑天鹅  "></a></p>
 <p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/8/n12316675.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：大时代大变局 大纪元预警莫错过    >-009fcc?logoWidth=1" title="杨威：大时代大变局 大纪元预警莫错过  " alt="杨威：大时代大变局 大纪元预警莫错过  "></a></p>
 <p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/10/n12320444.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/梳理香港银行制裁政策 11名官员恐无所遁形 >-009fcc?logoWidth=1" title="梳理香港银行制裁政策 11名官员恐无所遁形  " alt="梳理香港银行制裁政策 11名官员恐无所遁形  "></a></p>
-<p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/10/n12320331.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美接连重拳出击 中共为何口风大转向     >-009fcc?logoWidth=1" title="美接连重拳出击 中共为何口风大转向  " alt="美接连重拳出击 中共为何口风大转向  "></a></p>
 <p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/8/n12316177.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/因何制裁 美公布中港11高官所为      >-009fcc?logoWidth=1" title="因何制裁 美公布中港11高官所为  " alt="因何制裁 美公布中港11高官所为  "></a></p>
-<p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/10/n12320276.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下北戴河会议冷清 对内对外均强调稳定  >-009fcc?logoWidth=1" title="疫情下北戴河会议冷清 对内对外均强调稳定  " alt="疫情下北戴河会议冷清 对内对外均强调稳定  "></a></p>
 <p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/10/n12318894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加拿大国会勒令前驻华大使麦家廉出席作证   >-009fcc?logoWidth=1" title="加拿大国会勒令前驻华大使麦家廉出席作证  " alt="加拿大国会勒令前驻华大使麦家廉出席作证  "></a></p>
+<p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/11/n12321503.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：对中共的末日审判即将到来       >-009fcc?logoWidth=1" title="分析：对中共的末日审判即将到来  " alt="分析：对中共的末日审判即将到来  "></a></p>
+<p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/10/n12320276.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下北戴河会议冷清 对内对外均强调稳定  >-009fcc?logoWidth=1" title="疫情下北戴河会议冷清 对内对外均强调稳定  " alt="疫情下北戴河会议冷清 对内对外均强调稳定  "></a></p>
 <p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/10/n12318484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周庭被捕 黎智英之后第十人         >-009fcc?logoWidth=1" title="周庭被捕 黎智英之后第十人  " alt="周庭被捕 黎智英之后第十人  "></a></p>
-<p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/10/n12319309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆留学生看美国禁微信抖音 三个正当理由  >-009fcc?logoWidth=1" title="大陆留学生看美国禁微信抖音 三个正当理由  " alt="大陆留学生看美国禁微信抖音 三个正当理由  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/2020/08/10/a102915080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/苹果日报强烈谴责港警滥权 誓言“一定撑下去”>-009fcc?logoWidth=1" title="苹果日报强烈谴责港警滥权 誓言“一定撑下去”  " alt="苹果日报强烈谴责港警滥权 誓言“一定撑下去”  "></a></p>
-<p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/10/n12319645.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共又报复 宣称制裁11名美国人再被揶揄  >-009fcc?logoWidth=1" title="中共又报复 宣称制裁11名美国人再被揶揄  " alt="中共又报复 宣称制裁11名美国人再被揶揄  "></a></p>
+<p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/10/n12319309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆留学生看美国禁微信抖音 三个正当理由  >-009fcc?logoWidth=1" title="大陆留学生看美国禁微信抖音 三个正当理由  " alt="大陆留学生看美国禁微信抖音 三个正当理由  "></a></p>
 <p><a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/2020/08/10/a102915058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中港官员受制裁影响覆盖全球 付款购物皆受阻 >-009fcc?logoWidth=1" title="中港官员受制裁影响覆盖全球 付款购物皆受阻  " alt="中港官员受制裁影响覆盖全球 付款购物皆受阻  "></a></p>
 <p><a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/2020/08/10/a102915086.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五眼联盟外长要求港府收回DQ 港媒放风议员全>-009fcc?logoWidth=1" title="五眼联盟外长要求港府收回DQ 港媒放风议员全延任  " alt="五眼联盟外长要求港府收回DQ 港媒放风议员全延任  "></a></p>
+<p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/10/n12319645.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共又报复 宣称制裁11名美国人再被揶揄  >-009fcc?logoWidth=1" title="中共又报复 宣称制裁11名美国人再被揶揄  " alt="中共又报复 宣称制裁11名美国人再被揶揄  "></a></p>
+<p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/11/n12321224.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国将禁微信 腾讯股票两天蒸发660亿美元 >-009fcc?logoWidth=1" title="美国将禁微信 腾讯股票两天蒸发660亿美元  " alt="美国将禁微信 腾讯股票两天蒸发660亿美元  "></a></p>
 <p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/10/n12320798.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回应中共制裁美国人 白宫：总统将继续强硬  >-009fcc?logoWidth=1" title="回应中共制裁美国人 白宫：总统将继续强硬  " alt="回应中共制裁美国人 白宫：总统将继续强硬  "></a></p>
 <p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/9/n12318189.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军医唐娟庭审 9.1举行听证会     >-009fcc?logoWidth=1" title="中共军医唐娟庭审 9.1举行听证会  " alt="中共军医唐娟庭审 9.1举行听证会  "></a></p>
-<p><a href="https://github.com/snzyvt308/djy/blob/master/gb/20/8/9/n12318350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抗共大事记：净网禁微信 美部长访台(8/2-->-009fcc?logoWidth=1" title="抗共大事记：净网禁微信 美部长访台(8/2-8/9)  " alt="抗共大事记：净网禁微信 美部长访台(8/2-8/9)  "></a></p>
 <p><a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/2020/08/10/a102914532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中南海斗得你死我活 李克强处境难料  >-009fcc?logoWidth=1" title="分析：中南海斗得你死我活 李克强处境难料  " alt="分析：中南海斗得你死我活 李克强处境难料  "></a></p>
 <p><a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/2020/08/10/a102915009.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/提议自己在总统山塑像？川普调侃假新闻:好主意>-009fcc?logoWidth=1" title="提议自己在总统山塑像？川普调侃假新闻:好主意  " alt="提议自己在总统山塑像？川普调侃假新闻:好主意  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -485,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/snzyvt308/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/snzyvt308/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/snzyvt308/www/blob/master/README.md?l#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/snzyvt308/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/snzyvt308/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/snzyvt308/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/snzyvt308/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/snzyvt308/www/blob/master/README.md?b#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/snzyvt308/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/teeee">git.io/teeee</a></div>
+<div align="center">短网址: <a href="https://git.io/ncccc">git.io/ncccc</a></div>
 
