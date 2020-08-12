@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/krpvmk3865/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/krpvmk3865/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ndddd">git.io/ndddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/sdd">x.co/sdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/n9999">git.io/n9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3337">x.co/3337</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/徽章为何删“中国”二字？美驻华使馆回应了  >-009fcc?logoWidth=1" title="徽章为何删“中国”二字？美驻华使馆回应了  " alt="徽章为何删“中国”二字？美驻华使馆回应了  "></a></p>
 <p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916255.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国对中共六连击 蓬佩奥：还有一长串行动  >-009fcc?logoWidth=1" title="美国对中共六连击 蓬佩奥：还有一长串行动  " alt="美国对中共六连击 蓬佩奥：还有一长串行动  "></a></p>
 <p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916169.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：习近平砸烂中美关系 收获十面埋伏  >-009fcc?logoWidth=1" title="陈破空：习近平砸烂中美关系 收获十面埋伏  " alt="陈破空：习近平砸烂中美关系 收获十面埋伏  "></a></p>
+<p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/8·12川普发布会：确诊518万死16.5万>-009fcc?logoWidth=1" title="8·12川普发布会：确诊518万死16.5万  " alt="8·12川普发布会：确诊518万死16.5万  "></a></p>
+<p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916519.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/互联网大会沦北京工具 美科技巨头成为赞助商 >-009fcc?logoWidth=1" title="互联网大会沦北京工具 美科技巨头成为赞助商  " alt="互联网大会沦北京工具 美科技巨头成为赞助商  "></a></p>
 <p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916731.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北女2月确诊中共肺炎治愈 半年后再次复阳 >-009fcc?logoWidth=1" title="湖北女2月确诊中共肺炎治愈 半年后再次复阳  " alt="湖北女2月确诊中共肺炎治愈 半年后再次复阳  "></a></p>
 <p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916695.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视主播让“14亿”分担困难惹恼网民 影片被>-009fcc?logoWidth=1" title="央视主播让“14亿”分担困难惹恼网民 影片被下架  " alt="央视主播让“14亿”分担困难惹恼网民 影片被下架  "></a></p>
 <p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/捷克议长月底访台 首都布拉格市长随行    >-009fcc?logoWidth=1" title="捷克议长月底访台 首都布拉格市长随行  " alt="捷克议长月底访台 首都布拉格市长随行  "></a></p>
-<p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916678.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大量中国造假身份证件流入美国 被疑或为干预大>-009fcc?logoWidth=1" title="大量中国造假身份证件流入美国 被疑或为干预大选  " alt="大量中国造假身份证件流入美国 被疑或为干预大选  "></a></p>
-<p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916662.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：江家为首 海外十万亿资金或冻结   >-009fcc?logoWidth=1" title="袁弓夷：江家为首 海外十万亿资金或冻结  " alt="袁弓夷：江家为首 海外十万亿资金或冻结  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/11/n12322176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中领馆操控CSSA 长臂威胁世界(下)   >-009fcc?logoWidth=1" title="中领馆操控CSSA 长臂威胁世界(下)  " alt="中领馆操控CSSA 长臂威胁世界(下)  "></a></p>
 <p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/11/n12321841.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中领馆操控海外学生会证据曝光（上）     >-009fcc?logoWidth=1" title="中领馆操控海外学生会证据曝光（上）  " alt="中领馆操控海外学生会证据曝光（上）  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/krpvmk3865/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/krpvmk3865/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/krpvmk3865/www/blob/master/README.md?x#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/krpvmk3865/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/krpvmk3865/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/krpvmk3865/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/krpvmk3865/www/blob/master/README.md?y#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/krpvmk3865/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ndddd">git.io/ndddd</a></div>
+<div align="center">短网址: <a href="https://git.io/n9999">git.io/n9999</a></div>
 
