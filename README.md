@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aqcayd3630/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aqcayd3630/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rssss">git.io/rssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/388">x.co/388</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jgggg">git.io/jgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p8p">x.co/p8p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/12/a102916096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美部长访台大胆演讲：疫情不在病毒起源 而是中>-009fcc?logoWidth=1" title="美部长访台大胆演讲：疫情不在病毒起源 而是中共  " alt="美部长访台大胆演讲：疫情不在病毒起源 而是中共  "></a></p>
 <p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/12/a102916084.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南海战云密布 知情人：习告诉军方不要先开枪 >-009fcc?logoWidth=1" title="南海战云密布 知情人：习告诉军方不要先开枪  " alt="南海战云密布 知情人：习告诉军方不要先开枪  "></a></p>
 <p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/10/a102915239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/墨西哥5.3万人丧生 好莱坞安东尼奥确诊  >-009fcc?logoWidth=1" title="墨西哥5.3万人丧生 好莱坞安东尼奥确诊  " alt="墨西哥5.3万人丧生 好莱坞安东尼奥确诊  "></a></p>
 <p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/11/a102915580.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国已现粮食危机？习罕见下令制止餐饮浪费  >-009fcc?logoWidth=1" title="中国已现粮食危机？习罕见下令制止餐饮浪费  " alt="中国已现粮食危机？习罕见下令制止餐饮浪费  "></a></p>
 <p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/11/a102915569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传杨澜夫婿吴征被抓/美国制裁出狠招     >-009fcc?logoWidth=1" title="传杨澜夫婿吴征被抓/美国制裁出狠招  " alt="传杨澜夫婿吴征被抓/美国制裁出狠招  "></a></p>
 <p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/11/a102915521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫惊闻枪响 川普被特勤带走        >-009fcc?logoWidth=1" title="白宫惊闻枪响 川普被特勤带走  " alt="白宫惊闻枪响 川普被特勤带走  "></a></p>
-<p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/11/a102915535.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷曝中共逃亡潮：驻外使领馆每天都有人失踪>-009fcc?logoWidth=1" title="袁弓夷曝中共逃亡潮：驻外使领馆每天都有人失踪  " alt="袁弓夷曝中共逃亡潮：驻外使领馆每天都有人失踪  "></a></p>
 <p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/12/a102916142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情封锁需求转强劲 苹果市值逼近2兆美元里程>-009fcc?logoWidth=1" title="疫情封锁需求转强劲 苹果市值逼近2兆美元里程碑  " alt="疫情封锁需求转强劲 苹果市值逼近2兆美元里程碑  "></a></p>
 <p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/12/a102916110.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贝鲁特大爆炸后 单日新增染疫创新高     >-009fcc?logoWidth=1" title="贝鲁特大爆炸后 单日新增染疫创新高  " alt="贝鲁特大爆炸后 单日新增染疫创新高  "></a></p>
 <p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/12/a102916051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/耿和吁美国政府帮助 寻找失踪三年的高智晟  >-009fcc?logoWidth=1" title="耿和吁美国政府帮助 寻找失踪三年的高智晟  " alt="耿和吁美国政府帮助 寻找失踪三年的高智晟  "></a></p>
@@ -490,8 +490,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aqcayd3630/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aqcayd3630/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aqcayd3630/www/blob/master/README.md?u#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/aqcayd3630/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aqcayd3630/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aqcayd3630/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aqcayd3630/www/blob/master/README.md?o#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/aqcayd3630/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rssss">git.io/rssss</a></div>
+<div align="center">短网址: <a href="https://git.io/jgggg">git.io/jgggg</a></div>
 
