@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/krpvmk3865/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/krpvmk3865/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/daaaa">git.io/daaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/jpp">x.co/jpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nqqqq">git.io/nqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/byy">x.co/byy</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/徽章为何删“中国”二字？美驻华使馆回应了  >-009fcc?logoWidth=1" title="徽章为何删“中国”二字？美驻华使馆回应了  " alt="徽章为何删“中国”二字？美驻华使馆回应了  "></a></p>
 <p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916255.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国对中共六连击 蓬佩奥：还有一长串行动  >-009fcc?logoWidth=1" title="美国对中共六连击 蓬佩奥：还有一长串行动  " alt="美国对中共六连击 蓬佩奥：还有一长串行动  "></a></p>
 <p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916169.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：习近平砸烂中美关系 收获十面埋伏  >-009fcc?logoWidth=1" title="陈破空：习近平砸烂中美关系 收获十面埋伏  " alt="陈破空：习近平砸烂中美关系 收获十面埋伏  "></a></p>
+<p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916513.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中资银行配合美国制裁 暂停为11名中港高官开>-009fcc?logoWidth=1" title="中资银行配合美国制裁 暂停为11名中港高官开账户  " alt="中资银行配合美国制裁 暂停为11名中港高官开账户  "></a></p>
 <p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英回《苹果日报》上班 誓言：一定撑下去！>-009fcc?logoWidth=1" title="黎智英回《苹果日报》上班 誓言：一定撑下去！  " alt="黎智英回《苹果日报》上班 誓言：一定撑下去！  "></a></p>
 <p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵克志赴东北批“两面人” 两公安高官离奇失踪>-009fcc?logoWidth=1" title="赵克志赴东北批“两面人” 两公安高官离奇失踪  " alt="赵克志赴东北批“两面人” 两公安高官离奇失踪  "></a></p>
 <p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暴雨又袭长江上游 洪峰直奔三峡大坝     >-009fcc?logoWidth=1" title="暴雨又袭长江上游 洪峰直奔三峡大坝  " alt="暴雨又袭长江上游 洪峰直奔三峡大坝  "></a></p>
 <p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916285.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中走向全面对抗 川普再谈习近平      >-009fcc?logoWidth=1" title="美中走向全面对抗 川普再谈习近平  " alt="美中走向全面对抗 川普再谈习近平  "></a></p>
-<p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916290.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/裴洛西斥中共剥夺港人自由：全世界都关注香港 >-009fcc?logoWidth=1" title="裴洛西斥中共剥夺港人自由：全世界都关注香港  " alt="裴洛西斥中共剥夺港人自由：全世界都关注香港  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/11/n12321841.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中领馆操控海外学生会证据曝光（上）     >-009fcc?logoWidth=1" title="中领馆操控海外学生会证据曝光（上）  " alt="中领馆操控海外学生会证据曝光（上）  "></a></p>
 <p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/12/n12324288.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/掸封尘：习近平的尴尬——党员九千万 忠诚有几>-009fcc?logoWidth=1" title="掸封尘：习近平的尴尬——党员九千万 忠诚有几人  " alt="掸封尘：习近平的尴尬——党员九千万 忠诚有几人  "></a></p>
@@ -32,7 +32,7 @@
 <p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/11/n12323698.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微信是桥是狱？两大危害遭美制裁       >-009fcc?logoWidth=1" title="微信是桥是狱？两大危害遭美制裁  " alt="微信是桥是狱？两大危害遭美制裁  "></a></p>
 <p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/12/n12324377.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国对TikTok禁令细节：商店下架 禁广告>-009fcc?logoWidth=1" title="美国对TikTok禁令细节：商店下架 禁广告  " alt="美国对TikTok禁令细节：商店下架 禁广告  "></a></p>
 <p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/11/n12322930.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习提粮食危机 学者：中国粮食问题不容忽视  >-009fcc?logoWidth=1" title="习提粮食危机 学者：中国粮食问题不容忽视  " alt="习提粮食危机 学者：中国粮食问题不容忽视  "></a></p>
-<p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/12/n12325133.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/配合美禁令 在港中资银行制裁林郑等人    >-009fcc?logoWidth=1" title="配合美禁令 在港中资银行制裁林郑等人  " alt="配合美禁令 在港中资银行制裁林郑等人  "></a></p>
+<p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/12/n12325133.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遵美禁令 在港中资银行对林郑等采取措施   >-009fcc?logoWidth=1" title="遵美禁令 在港中资银行对林郑等采取措施  " alt="遵美禁令 在港中资银行对林郑等采取措施  "></a></p>
 <p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/8/n12316177.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/因何制裁 美公布中港11高官所为      >-009fcc?logoWidth=1" title="因何制裁 美公布中港11高官所为  " alt="因何制裁 美公布中港11高官所为  "></a></p>
 <p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/12/n12324512.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京再服软 传私下对美表态不在南海先开火  >-009fcc?logoWidth=1" title="北京再服软 传私下对美表态不在南海先开火  " alt="北京再服软 传私下对美表态不在南海先开火  "></a></p>
 <p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/12/n12324415.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国粮食危机或迫在眉睫           >-009fcc?logoWidth=1" title="中国粮食危机或迫在眉睫  " alt="中国粮食危机或迫在眉睫  "></a></p>
@@ -415,12 +415,12 @@
 <p><strong>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年的腥风血雨，二十多年的凌辱折磨，岁月飞逝，历史见证，迫害善良原本就是违背道义不得民心的...</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;99年中共因法轮功修炼人数超过党员而疯狂镇压，不惜制造一个个谎言，导演天安门自焚案栽赃法轮功，对坚持信仰的学员绑架抄家，用尽酷刑，导致数以百万计的家破人亡、妻离子散！然而中共高估了自己的造假宣传。各国政府纷纷谴责中共暴行，高度肯定法轮功提升道德、净化心灵、强身健体的卓越成效。在国内，声援法轮功的事件此起彼伏。成千上万人为被非法抓捕的学员请愿，演绎了不畏强权反迫害的一幕又一幕。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年过去了。如今法轮功“真善忍”普世价值观，超越民族文化，洪传世界一百多个国家，仅台湾就有八十万人修炼，其主要著作被译成四十多种文字，举世赞誉！而中共江泽民却因罪恶迫害，在海内外被数百万人联署举报，被二十多万人实名起诉。在这场对善良打压中，中共把法制、道德伦理都推向崩溃边缘。民心丧尽、天怒人怨!人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/vrfbI8" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/dn77gd" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
 </details>
 
 <div align="center">
 <img src="https://raw.githubusercontent.com/krpvmk3865/www/master/t/01.jpg">
-<h1><strong><a href="https://is.gd/vrfbI8" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
+<h1><strong><a href="https://is.gd/dn77gd" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/krpvmk3865/www/master/t/03.jpg"><br>
@@ -480,12 +480,12 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;于中共无所不在的欺骗洗脑与暴力胁迫下，有多少人放弃了诚实宽厚、仁爱谦和的道德底线，变得见风使舵、落井下石，甚至为一己之私而无恶不作。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;稍微盘点中共的罪恶，让人感到心情无比的沉重。了解了中共，才明白什么叫做罪恶滔天，罄竹难书。</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/vrfbI8" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/dn77gd" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/krpvmk3865/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/krpvmk3865/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/krpvmk3865/www/blob/master/README.md?j#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/krpvmk3865/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/krpvmk3865/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/krpvmk3865/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/krpvmk3865/www/blob/master/README.md?g#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/krpvmk3865/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/daaaa">git.io/daaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/nqqqq">git.io/nqqqq</a></div>
 
