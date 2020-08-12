@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cypabw374/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cypabw374/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fssss">git.io/fssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pps">x.co/pps</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pmmmm">git.io/pmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/4pp">x.co/4pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,15 +41,14 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/cypabw374/ntdtv/blob/master/gb/2020/08/12/a102916096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美卫生部长访台演讲：问题不在病毒起源 而是中>-009fcc?logoWidth=1" title="美卫生部长访台演讲：问题不在病毒起源 而是中共的应对方式  " alt="美卫生部长访台演讲：问题不在病毒起源 而是中共的应对方式  "></a></p>
 <p><a href="https://github.com/cypabw374/ntdtv/blob/master/gb/2020/08/11/a102915723.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美驻北京使馆徽章删“中国” 蓬佩奥称台湾为国>-009fcc?logoWidth=1" title="美驻北京使馆徽章删“中国” 蓬佩奥称台湾为国家  " alt="美驻北京使馆徽章删“中国” 蓬佩奥称台湾为国家  "></a></p>
-<p><a href="https://github.com/cypabw374/ntdtv/blob/master/gb/2020/08/11/a102915535.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共掀起逃亡潮：驻外使领馆每天都有人失踪  >-009fcc?logoWidth=1" title="中共掀起逃亡潮：驻外使领馆每天都有人失踪  " alt="中共掀起逃亡潮：驻外使领馆每天都有人失踪  "></a></p>
 <p><a href="https://github.com/cypabw374/djy/blob/master/gb/20/8/11/n12323398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福建漳州养殖户讲述台风袭击后场景      >-009fcc?logoWidth=1" title="福建漳州养殖户讲述台风袭击后场景  " alt="福建漳州养殖户讲述台风袭击后场景  "></a></p>
 <p><a href="https://github.com/cypabw374/djy/blob/master/gb/20/8/11/n12323209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英凌晨获释 警署外市民高呼“撑苹果”  >-009fcc?logoWidth=1" title="黎智英凌晨获释 警署外市民高呼“撑苹果”  " alt="黎智英凌晨获释 警署外市民高呼“撑苹果”  "></a></p>
+<p><a href="https://github.com/cypabw374/ntdtv/blob/master/gb/2020/08/11/a102915535.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共掀起逃亡潮：驻外使领馆每天都有人失踪  >-009fcc?logoWidth=1" title="中共掀起逃亡潮：驻外使领馆每天都有人失踪  " alt="中共掀起逃亡潮：驻外使领馆每天都有人失踪  "></a></p>
 <p><a href="https://github.com/cypabw374/ntdtv/blob/master/gb/2020/08/11/a102915686.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英周庭等人陆续获准保释         >-009fcc?logoWidth=1" title="黎智英周庭等人陆续获准保释  " alt="黎智英周庭等人陆续获准保释  "></a></p>
-<p><a href="https://github.com/cypabw374/ntdtv/blob/master/gb/2020/08/12/a102916211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暴雨袭击北京 当局三预警齐发        >-009fcc?logoWidth=1" title="暴雨袭击北京 当局三预警齐发  " alt="暴雨袭击北京 当局三预警齐发  "></a></p>
 <p><a href="https://github.com/cypabw374/djy/blob/master/gb/20/8/11/n12323595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美触中共红线？川普拜登大选对阵       >-009fcc?logoWidth=1" title="美触中共红线？川普拜登大选对阵  " alt="美触中共红线？川普拜登大选对阵  "></a></p>
 <p><a href="https://github.com/cypabw374/djy/blob/master/gb/20/8/11/n12322537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军机越过海峡中线 台：就是侵门踏户   >-009fcc?logoWidth=1" title="中共军机越过海峡中线 台：就是侵门踏户  " alt="中共军机越过海峡中线 台：就是侵门踏户  "></a></p>
+<p><a href="https://github.com/cypabw374/ntdtv/blob/master/gb/2020/08/12/a102916211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暴雨袭击北京 当局三预警齐发        >-009fcc?logoWidth=1" title="暴雨袭击北京 当局三预警齐发  " alt="暴雨袭击北京 当局三预警齐发  "></a></p>
 <p><a href="https://github.com/cypabw374/ntdtv/blob/master/gb/2020/08/11/a102915580.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国已现粮食危机？习罕见下令制止餐饮浪费  >-009fcc?logoWidth=1" title="中国已现粮食危机？习罕见下令制止餐饮浪费  " alt="中国已现粮食危机？习罕见下令制止餐饮浪费  "></a></p>
-<p><a href="https://github.com/cypabw374/ntdtv/blob/master/gb/2020/08/10/a102915168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传杨澜夫妇出事 吴征被抓供出江绵恒     >-009fcc?logoWidth=1" title="传杨澜夫妇出事 吴征被抓供出江绵恒  " alt="传杨澜夫妇出事 吴征被抓供出江绵恒  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -488,7 +487,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/cypabw374/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cypabw374/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cypabw374/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cypabw374/www/blob/master/README.md?g#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cypabw374/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cypabw374/www/blob/master/README.md?h#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cypabw374/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fssss">git.io/fssss</a></div>
+<div align="center">短网址: <a href="https://git.io/pmmmm">git.io/pmmmm</a></div>
 
