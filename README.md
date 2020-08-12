@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/krpvmk3865/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/krpvmk3865/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qjjjj">git.io/qjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp4">x.co/pp4</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/333333">git.io/333333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/xaa">x.co/xaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,14 +40,13 @@
 <p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/12/n12325077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河南一城管局官员在会议室上吊自杀身亡    >-009fcc?logoWidth=1" title="河南一城管局官员在会议室上吊自杀身亡  " alt="河南一城管局官员在会议室上吊自杀身亡  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916193.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英被捕后身家猛涨 出警署时欢呼一片(视频>-009fcc?logoWidth=1" title="黎智英被捕后身家猛涨 出警署时欢呼一片(视频)  " alt="黎智英被捕后身家猛涨 出警署时欢呼一片(视频)  "></a></p>
-<p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/11/n12322967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：针对中共 美国有一长串行动在考虑  >-009fcc?logoWidth=1" title="蓬佩奥：针对中共 美国有一长串行动在考虑  " alt="蓬佩奥：针对中共 美国有一长串行动在考虑  "></a></p>
 <p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916158.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境剑拔弩张 中共部署36架战机备战  >-009fcc?logoWidth=1" title="中印边境剑拔弩张 中共部署36架战机备战  " alt="中印边境剑拔弩张 中共部署36架战机备战  "></a></p>
+<p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/11/n12322967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：针对中共 美国有一长串行动在考虑  >-009fcc?logoWidth=1" title="蓬佩奥：针对中共 美国有一长串行动在考虑  " alt="蓬佩奥：针对中共 美国有一长串行动在考虑  "></a></p>
 <p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/11/n12323398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福建漳州养殖户讲述台风袭击后场景      >-009fcc?logoWidth=1" title="福建漳州养殖户讲述台风袭击后场景  " alt="福建漳州养殖户讲述台风袭击后场景  "></a></p>
-<p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/11/n12323209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英凌晨获释 警署外市民高呼“撑苹果”  >-009fcc?logoWidth=1" title="黎智英凌晨获释 警署外市民高呼“撑苹果”  " alt="黎智英凌晨获释 警署外市民高呼“撑苹果”  "></a></p>
 <p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美卫生部长访台演讲：疫情不在病毒起源 而是中>-009fcc?logoWidth=1" title="美卫生部长访台演讲：疫情不在病毒起源 而是中共  " alt="美卫生部长访台演讲：疫情不在病毒起源 而是中共  "></a></p>
 <p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/11/a102915723.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美驻北京使馆徽章删“中国” 蓬佩奥称台湾为国>-009fcc?logoWidth=1" title="美驻北京使馆徽章删“中国” 蓬佩奥称台湾为国家  " alt="美驻北京使馆徽章删“中国” 蓬佩奥称台湾为国家  "></a></p>
-<p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/11/n12323595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美触中共红线？川普拜登大选对阵       >-009fcc?logoWidth=1" title="美触中共红线？川普拜登大选对阵  " alt="美触中共红线？川普拜登大选对阵  "></a></p>
-<p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/11/n12322537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军机越过海峡中线 台：就是侵门踏户   >-009fcc?logoWidth=1" title="中共军机越过海峡中线 台：就是侵门踏户  " alt="中共军机越过海峡中线 台：就是侵门踏户  "></a></p>
+<p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/12/n12325050.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英被抓期间身家暴涨 获大陆异议人士声援 >-009fcc?logoWidth=1" title="黎智英被抓期间身家暴涨 获大陆异议人士声援  " alt="黎智英被抓期间身家暴涨 获大陆异议人士声援  "></a></p>
+<p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/11/n12323209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英凌晨获释 警署外市民高呼“撑苹果”  >-009fcc?logoWidth=1" title="黎智英凌晨获释 警署外市民高呼“撑苹果”  " alt="黎智英凌晨获释 警署外市民高呼“撑苹果”  "></a></p>
 <p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916266.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美台建交前兆 美国要改组联合国       >-009fcc?logoWidth=1" title="美台建交前兆 美国要改组联合国  " alt="美台建交前兆 美国要改组联合国  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -486,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/krpvmk3865/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/krpvmk3865/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/krpvmk3865/www/blob/master/README.md?a#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/krpvmk3865/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/krpvmk3865/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/krpvmk3865/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/krpvmk3865/www/blob/master/README.md?a#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/krpvmk3865/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qjjjj">git.io/qjjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/333333">git.io/333333</a></div>
 
