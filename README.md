@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cypabw374/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cypabw374/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/feeee">git.io/feeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ipp">x.co/ipp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rdddd">git.io/rdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/hhii">x.co/hhii</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/cypabw374/ntdtv/blob/master/gb/2020/08/10/a102915239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/墨西哥5.3万人丧生 好莱坞安东尼奥确诊  >-009fcc?logoWidth=1" title="墨西哥5.3万人丧生 好莱坞安东尼奥确诊  " alt="墨西哥5.3万人丧生 好莱坞安东尼奥确诊  "></a></p>
 <p><a href="https://github.com/cypabw374/ntdtv/blob/master/gb/2020/08/11/a102915580.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国已现粮食危机？习罕见下令制止餐饮浪费  >-009fcc?logoWidth=1" title="中国已现粮食危机？习罕见下令制止餐饮浪费  " alt="中国已现粮食危机？习罕见下令制止餐饮浪费  "></a></p>
 <p><a href="https://github.com/cypabw374/ntdtv/blob/master/gb/2020/08/11/a102915569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传杨澜夫婿吴征被抓/美国制裁出狠招     >-009fcc?logoWidth=1" title="传杨澜夫婿吴征被抓/美国制裁出狠招  " alt="传杨澜夫婿吴征被抓/美国制裁出狠招  "></a></p>
+<p><a href="https://github.com/cypabw374/ntdtv/blob/master/gb/2020/08/12/a102916193.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英被捕后身家猛涨 出警署时欢呼一片(视频>-009fcc?logoWidth=1" title="黎智英被捕后身家猛涨 出警署时欢呼一片(视频)  " alt="黎智英被捕后身家猛涨 出警署时欢呼一片(视频)  "></a></p>
+<p><a href="https://github.com/cypabw374/ntdtv/blob/master/gb/2020/08/12/a102916185.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谈古论今话中医：红斑狼疮的中西医合治    >-009fcc?logoWidth=1" title="谈古论今话中医：红斑狼疮的中西医合治  " alt="谈古论今话中医：红斑狼疮的中西医合治  "></a></p>
 <p><a href="https://github.com/cypabw374/ntdtv/blob/master/gb/2020/08/12/a102916158.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境剑拔弩张 中共部署36架战机备战  >-009fcc?logoWidth=1" title="中印边境剑拔弩张 中共部署36架战机备战  " alt="中印边境剑拔弩张 中共部署36架战机备战  "></a></p>
 <p><a href="https://github.com/cypabw374/ntdtv/blob/master/gb/2020/08/12/a102916156.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谣传能抗病毒 哈萨克斯坦粉红湖遭偷挖    >-009fcc?logoWidth=1" title="谣传能抗病毒 哈萨克斯坦粉红湖遭偷挖  " alt="谣传能抗病毒 哈萨克斯坦粉红湖遭偷挖  "></a></p>
 <p><a href="https://github.com/cypabw374/ntdtv/blob/master/gb/2020/08/12/a102916096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美卫生部长访台演讲：问题不在病毒起源 而是中>-009fcc?logoWidth=1" title="美卫生部长访台演讲：问题不在病毒起源 而是中共的应对方式  " alt="美卫生部长访台演讲：问题不在病毒起源 而是中共的应对方式  "></a></p>
-<p><a href="https://github.com/cypabw374/ntdtv/blob/master/gb/2020/08/12/a102916142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情封锁需求转强劲 苹果市值逼近2兆美元里程>-009fcc?logoWidth=1" title="疫情封锁需求转强劲 苹果市值逼近2兆美元里程碑  " alt="疫情封锁需求转强劲 苹果市值逼近2兆美元里程碑  "></a></p>
-<p><a href="https://github.com/cypabw374/ntdtv/blob/master/gb/2020/08/12/a102916110.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贝鲁特大爆炸后 单日新增染疫创新高     >-009fcc?logoWidth=1" title="贝鲁特大爆炸后 单日新增染疫创新高  " alt="贝鲁特大爆炸后 单日新增染疫创新高  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/cypabw374/djy/blob/master/gb/20/8/11/n12321841.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中领馆操控海外学生会证据曝光(上)     >-009fcc?logoWidth=1" title="中领馆操控海外学生会证据曝光(上)  " alt="中领馆操控海外学生会证据曝光(上)  "></a></p>
 <p><a href="https://github.com/cypabw374/djy/blob/master/gb/20/8/11/n12322972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：瘟疫大流行后 对习近平看法改变    >-009fcc?logoWidth=1" title="川普：瘟疫大流行后 对习近平看法改变  " alt="川普：瘟疫大流行后 对习近平看法改变  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cypabw374/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cypabw374/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cypabw374/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cypabw374/www/blob/master/README.md?p#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cypabw374/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cypabw374/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cypabw374/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cypabw374/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cypabw374/www/blob/master/README.md?v#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cypabw374/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/feeee">git.io/feeee</a></div>
+<div align="center">短网址: <a href="https://git.io/rdddd">git.io/rdddd</a></div>
 
