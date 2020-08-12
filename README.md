@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/krpvmk3865/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/krpvmk3865/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/333333">git.io/333333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/xaa">x.co/xaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/22222222">git.io/22222222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/7aa">x.co/7aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -37,9 +37,10 @@
 <p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/12/n12324512.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京再服软 传私下对美表态不在南海先开火  >-009fcc?logoWidth=1" title="北京再服软 传私下对美表态不在南海先开火  " alt="北京再服软 传私下对美表态不在南海先开火  "></a></p>
 <p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/12/n12324415.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国粮食危机或迫在眉睫           >-009fcc?logoWidth=1" title="中国粮食危机或迫在眉睫  " alt="中国粮食危机或迫在眉睫  "></a></p>
 <p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/12/n12324882.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港机场突发事故 两客机罕见首尾碰撞    >-009fcc?logoWidth=1" title="香港机场突发事故 两客机罕见首尾碰撞  " alt="香港机场突发事故 两客机罕见首尾碰撞  "></a></p>
-<p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/12/n12325077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河南一城管局官员在会议室上吊自杀身亡    >-009fcc?logoWidth=1" title="河南一城管局官员在会议室上吊自杀身亡  " alt="河南一城管局官员在会议室上吊自杀身亡  "></a></p>
+<p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/12/n12324955.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国禁微信 或影响NBA与腾讯15亿美元协议>-009fcc?logoWidth=1" title="美国禁微信 或影响NBA与腾讯15亿美元协议  " alt="美国禁微信 或影响NBA与腾讯15亿美元协议  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916193.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英被捕后身家猛涨 出警署时欢呼一片(视频>-009fcc?logoWidth=1" title="黎智英被捕后身家猛涨 出警署时欢呼一片(视频)  " alt="黎智英被捕后身家猛涨 出警署时欢呼一片(视频)  "></a></p>
+<p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/12/n12325077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河南一城管局官员在会议室上吊自杀身亡    >-009fcc?logoWidth=1" title="河南一城管局官员在会议室上吊自杀身亡  " alt="河南一城管局官员在会议室上吊自杀身亡  "></a></p>
 <p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916158.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境剑拔弩张 中共部署36架战机备战  >-009fcc?logoWidth=1" title="中印边境剑拔弩张 中共部署36架战机备战  " alt="中印边境剑拔弩张 中共部署36架战机备战  "></a></p>
 <p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/11/n12322967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：针对中共 美国有一长串行动在考虑  >-009fcc?logoWidth=1" title="蓬佩奥：针对中共 美国有一长串行动在考虑  " alt="蓬佩奥：针对中共 美国有一长串行动在考虑  "></a></p>
 <p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/11/n12323398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福建漳州养殖户讲述台风袭击后场景      >-009fcc?logoWidth=1" title="福建漳州养殖户讲述台风袭击后场景  " alt="福建漳州养殖户讲述台风袭击后场景  "></a></p>
@@ -485,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/krpvmk3865/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/krpvmk3865/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/krpvmk3865/www/blob/master/README.md?a#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/krpvmk3865/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/krpvmk3865/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/krpvmk3865/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/krpvmk3865/www/blob/master/README.md?w#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/krpvmk3865/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/333333">git.io/333333</a></div>
+<div align="center">短网址: <a href="https://git.io/22222222">git.io/22222222</a></div>
 
