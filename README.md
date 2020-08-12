@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aqcayd3630/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aqcayd3630/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/j6666">git.io/j6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3444">x.co/3444</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/meeee">git.io/meeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3336">x.co/3336</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,12 +41,13 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aqcayd3630/djy/blob/master/gb/20/8/11/n12322930.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习提粮食危机 大陆学者：美中脱钩 中国买粮都>-009fcc?logoWidth=1" title="习提粮食危机 大陆学者：美中脱钩 中国买粮都成问题  " alt="习提粮食危机 大陆学者：美中脱钩 中国买粮都成问题  "></a></p>
 <p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/11/a102915436.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：习近平求连任 李克强求自保      >-009fcc?logoWidth=1" title="分析：习近平求连任 李克强求自保  " alt="分析：习近平求连任 李克强求自保  "></a></p>
-<p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/11/a102915459.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝存隐患 专家：会对中共政权造成致命一>-009fcc?logoWidth=1" title="三峡大坝存隐患 专家：会对中共政权造成致命一击  " alt="三峡大坝存隐患 专家：会对中共政权造成致命一击  "></a></p>
+<p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/12/a102916075.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：暗示有大事？美国驻华使馆改徽号删“中国>-009fcc?logoWidth=1" title="文昭：暗示有大事？美国驻华使馆改徽号删“中国”两字  " alt="文昭：暗示有大事？美国驻华使馆改徽号删“中国”两字  "></a></p>
 <p><a href="https://github.com/aqcayd3630/djy/blob/master/gb/20/8/11/n12323398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福建漳州养殖户讲述台风袭击后场景      >-009fcc?logoWidth=1" title="福建漳州养殖户讲述台风袭击后场景  " alt="福建漳州养殖户讲述台风袭击后场景  "></a></p>
-<p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/11/a102915401.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：港警搜查壹传媒内部照流出 苹果誓言“撑>-009fcc?logoWidth=1" title="组图：港警搜查壹传媒内部照流出 苹果誓言“撑下去！”  " alt="组图：港警搜查壹传媒内部照流出 苹果誓言“撑下去！”  "></a></p>
-<p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/10/a102915168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传杨澜夫妇出事 吴征被抓供出江绵恒     >-009fcc?logoWidth=1" title="传杨澜夫妇出事 吴征被抓供出江绵恒  " alt="传杨澜夫妇出事 吴征被抓供出江绵恒  "></a></p>
+<p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/11/a102915459.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡大坝存隐患 专家：会对中共政权造成致命一>-009fcc?logoWidth=1" title="三峡大坝存隐患 专家：会对中共政权造成致命一击  " alt="三峡大坝存隐患 专家：会对中共政权造成致命一击  "></a></p>
+<p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/12/a102916063.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/粮食危机%3F习罕提制止餐饮浪费/赖小民贪腐18>-009fcc?logoWidth=1" title="粮食危机?习罕提制止餐饮浪费/赖小民贪腐18亿!/港共政府搞港独?/川普政府的大战略  " alt="粮食危机?习罕提制止餐饮浪费/赖小民贪腐18亿!/港共政府搞港独?/川普政府的大战略  "></a></p>
 <p><a href="https://github.com/aqcayd3630/djy/blob/master/gb/20/8/11/n12322537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军机越过海峡中线 台：就是侵门踏户   >-009fcc?logoWidth=1" title="中共军机越过海峡中线 台：就是侵门踏户  " alt="中共军机越过海峡中线 台：就是侵门踏户  "></a></p>
 <p><a href="https://github.com/aqcayd3630/djy/blob/master/gb/20/8/11/n12321552.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉藏毒运毒还会反侦查 纽约三华裔被起诉   >-009fcc?logoWidth=1" title="涉藏毒运毒还会反侦查 纽约三华裔被起诉  " alt="涉藏毒运毒还会反侦查 纽约三华裔被起诉  "></a></p>
+<p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/10/a102915168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传杨澜夫妇出事 吴征被抓供出江绵恒     >-009fcc?logoWidth=1" title="传杨澜夫妇出事 吴征被抓供出江绵恒  " alt="传杨澜夫妇出事 吴征被抓供出江绵恒  "></a></p>
 <p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/11/a102915350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共一政协副主席 0岁参军 3岁入党刷屏  >-009fcc?logoWidth=1" title="中共一政协副主席 0岁参军 3岁入党刷屏  " alt="中共一政协副主席 0岁参军 3岁入党刷屏  "></a></p>
 <p><a href="https://github.com/aqcayd3630/djy/blob/master/gb/20/8/11/n12323253.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆猪肉价涨85 鸡蛋涨34 引发民怨   >-009fcc?logoWidth=1" title="大陆猪肉价涨85 鸡蛋涨34 引发民怨  " alt="大陆猪肉价涨85 鸡蛋涨34 引发民怨  "></a></p>
 <p><a href="https://github.com/aqcayd3630/djy/blob/master/gb/20/8/11/n12322484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国制裁中港官员 香港金融体制遇挫     >-009fcc?logoWidth=1" title="美国制裁中港官员 香港金融体制遇挫  " alt="美国制裁中港官员 香港金融体制遇挫  "></a></p>
@@ -489,8 +490,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aqcayd3630/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aqcayd3630/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aqcayd3630/www/blob/master/README.md?b#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/aqcayd3630/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aqcayd3630/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aqcayd3630/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aqcayd3630/www/blob/master/README.md?d#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/aqcayd3630/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/j6666">git.io/j6666</a></div>
+<div align="center">短网址: <a href="https://git.io/meeee">git.io/meeee</a></div>
 
