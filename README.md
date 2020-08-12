@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/krpvmk3865/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/krpvmk3865/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hhhhhhh">git.io/hhhhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j77">x.co/j77</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/xyyyy">git.io/xyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/iaa">x.co/iaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916255.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国对中共六连击 蓬佩奥：还有一长串行动  >-009fcc?logoWidth=1" title="美国对中共六连击 蓬佩奥：还有一长串行动  " alt="美国对中共六连击 蓬佩奥：还有一长串行动  "></a></p>
 <p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916169.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：习近平砸烂中美关系 收获十面埋伏  >-009fcc?logoWidth=1" title="陈破空：习近平砸烂中美关系 收获十面埋伏  " alt="陈破空：习近平砸烂中美关系 收获十面埋伏  "></a></p>
 <p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/8.12战略与国际研究中心（CSIS)论坛:>-009fcc?logoWidth=1" title="8.12战略与国际研究中心（CSIS)论坛: 反制中共间谍（同声翻译）  " alt="8.12战略与国际研究中心（CSIS)论坛: 反制中共间谍（同声翻译）  "></a></p>
+<p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916584.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲维省疫情回升 英国经济衰退严重     >-009fcc?logoWidth=1" title="澳洲维省疫情回升 英国经济衰退严重  " alt="澳洲维省疫情回升 英国经济衰退严重  "></a></p>
 <p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916523.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/TikTok禁令细节？白宫文件：下架商店 禁>-009fcc?logoWidth=1" title="TikTok禁令细节？白宫文件：下架商店 禁广告  " alt="TikTok禁令细节？白宫文件：下架商店 禁广告  "></a></p>
 <p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916539.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阻绝人民意志徒劳！蔡英文促北京与港人对话  >-009fcc?logoWidth=1" title="阻绝人民意志徒劳！蔡英文促北京与港人对话  " alt="阻绝人民意志徒劳！蔡英文促北京与港人对话  "></a></p>
 <p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国卫生部长离台 讨论台湾厂家赴美投资   >-009fcc?logoWidth=1" title="美国卫生部长离台 讨论台湾厂家赴美投资  " alt="美国卫生部长离台 讨论台湾厂家赴美投资  "></a></p>
-<p><a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/2020/08/12/a102916513.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中资银行配合美国制裁 暂停为11名中港高官开>-009fcc?logoWidth=1" title="中资银行配合美国制裁 暂停为11名中港高官开账户  " alt="中资银行配合美国制裁 暂停为11名中港高官开账户  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/11/n12321841.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中领馆操控海外学生会证据曝光（上）     >-009fcc?logoWidth=1" title="中领馆操控海外学生会证据曝光（上）  " alt="中领馆操控海外学生会证据曝光（上）  "></a></p>
 <p><a href="https://github.com/krpvmk3865/djy/blob/master/gb/20/8/12/n12324288.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/掸封尘：习近平的尴尬——党员九千万 忠诚有几>-009fcc?logoWidth=1" title="掸封尘：习近平的尴尬——党员九千万 忠诚有几人  " alt="掸封尘：习近平的尴尬——党员九千万 忠诚有几人  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/krpvmk3865/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/krpvmk3865/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/krpvmk3865/www/blob/master/README.md?l#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/krpvmk3865/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/krpvmk3865/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/krpvmk3865/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/krpvmk3865/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/krpvmk3865/www/blob/master/README.md?d#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/krpvmk3865/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hhhhhhh">git.io/hhhhhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/xyyyy">git.io/xyyyy</a></div>
 
