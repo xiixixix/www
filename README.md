@@ -10,12 +10,12 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aqcayd3630/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aqcayd3630/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e3333">git.io/e3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a3a">x.co/a3a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uaaaa">git.io/uaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/faa">x.co/faa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/10/a102915239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/墨西哥5.3万人丧生 好莱坞安东尼奥确诊  >-009fcc?logoWidth=1" title="墨西哥5.3万人丧生 好莱坞安东尼奥确诊  " alt="墨西哥5.3万人丧生 好莱坞安东尼奥确诊  "></a></p>
 <p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/11/a102915580.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国已现粮食危机？习罕见下令制止餐饮浪费  >-009fcc?logoWidth=1" title="中国已现粮食危机？习罕见下令制止餐饮浪费  " alt="中国已现粮食危机？习罕见下令制止餐饮浪费  "></a></p>
-<p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/10/a102915239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球2千万染疫 白宫外突发枪击       >-009fcc?logoWidth=1" title="全球2千万染疫 白宫外突发枪击  " alt="全球2千万染疫 白宫外突发枪击  "></a></p>
 <p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/11/a102915569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传杨澜夫婿吴征被抓/美国制裁出狠招     >-009fcc?logoWidth=1" title="传杨澜夫婿吴征被抓/美国制裁出狠招  " alt="传杨澜夫婿吴征被抓/美国制裁出狠招  "></a></p>
 <p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/11/a102915521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫惊闻枪响 川普被特勤带走        >-009fcc?logoWidth=1" title="白宫惊闻枪响 川普被特勤带走  " alt="白宫惊闻枪响 川普被特勤带走  "></a></p>
 <p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/11/a102915535.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷曝中共逃亡潮：驻外使领馆每天都有人失踪>-009fcc?logoWidth=1" title="袁弓夷曝中共逃亡潮：驻外使领馆每天都有人失踪  " alt="袁弓夷曝中共逃亡潮：驻外使领馆每天都有人失踪  "></a></p>
@@ -489,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aqcayd3630/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aqcayd3630/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aqcayd3630/www/blob/master/README.md?t#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/aqcayd3630/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aqcayd3630/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aqcayd3630/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aqcayd3630/www/blob/master/README.md?z#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/aqcayd3630/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/e3333">git.io/e3333</a></div>
+<div align="center">短网址: <a href="https://git.io/uaaaa">git.io/uaaaa</a></div>
 
