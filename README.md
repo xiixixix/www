@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aqcayd3630/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aqcayd3630/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ruuuu">git.io/ruuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aia">x.co/aia</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/99999">git.io/99999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2227">x.co/2227</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -31,28 +31,13 @@
 <p><a href="https://github.com/aqcayd3630/djy/blob/master/gb/20/8/11/n12323796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：美国驻华使馆换徽章释脱钩信号？    >-009fcc?logoWidth=1" title="沈舟：美国驻华使馆换徽章释脱钩信号？  " alt="沈舟：美国驻华使馆换徽章释脱钩信号？  "></a></p>
 <p><a href="https://github.com/aqcayd3630/djy/blob/master/gb/20/8/10/n12321142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郭美美爆料人揭红会倒卖防疫品        >-009fcc?logoWidth=1" title="郭美美爆料人揭红会倒卖防疫品  " alt="郭美美爆料人揭红会倒卖防疫品  "></a></p>
 <p><a href="https://github.com/aqcayd3630/djy/blob/master/gb/20/8/11/n12321842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军医唐娟不认罪 海量电子文件待查    >-009fcc?logoWidth=1" title="中共军医唐娟不认罪 海量电子文件待查  " alt="中共军医唐娟不认罪 海量电子文件待查  "></a></p>
-<p><a href="https://github.com/aqcayd3630/djy/blob/master/gb/20/8/8/n12316675.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：大时代大变局 大纪元预警莫错过    >-009fcc?logoWidth=1" title="杨威：大时代大变局 大纪元预警莫错过  " alt="杨威：大时代大变局 大纪元预警莫错过  "></a></p>
+<p><a href="https://github.com/aqcayd3630/djy/blob/master/gb/20/8/11/n12322930.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习提粮食危机 学者：中国粮食问题不容忽视  >-009fcc?logoWidth=1" title="习提粮食危机 学者：中国粮食问题不容忽视  " alt="习提粮食危机 学者：中国粮食问题不容忽视  "></a></p>
 <p><a href="https://github.com/aqcayd3630/djy/blob/master/gb/20/8/11/n12322965.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/执行美制裁令 传花旗冻结账户 渣打加紧审查 >-009fcc?logoWidth=1" title="执行美制裁令 传花旗冻结账户 渣打加紧审查  " alt="执行美制裁令 传花旗冻结账户 渣打加紧审查  "></a></p>
 <p><a href="https://github.com/aqcayd3630/djy/blob/master/gb/20/8/8/n12316177.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/因何制裁 美公布中港11高官所为      >-009fcc?logoWidth=1" title="因何制裁 美公布中港11高官所为  " alt="因何制裁 美公布中港11高官所为  "></a></p>
-<p><a href="https://github.com/aqcayd3630/djy/blob/master/gb/20/8/11/n12322930.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习提粮食危机 学者：中国粮食问题不容忽视  >-009fcc?logoWidth=1" title="习提粮食危机 学者：中国粮食问题不容忽视  " alt="习提粮食危机 学者：中国粮食问题不容忽视  "></a></p>
 <p><a href="https://github.com/aqcayd3630/djy/blob/master/gb/20/8/11/n12322967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：针对中共 美国有一长串行动在考虑  >-009fcc?logoWidth=1" title="蓬佩奥：针对中共 美国有一长串行动在考虑  " alt="蓬佩奥：针对中共 美国有一长串行动在考虑  "></a></p>
+<p><a href="https://github.com/aqcayd3630/djy/blob/master/gb/20/8/12/n12324415.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国粮食危机或迫在眉睫           >-009fcc?logoWidth=1" title="中国粮食危机或迫在眉睫  " alt="中国粮食危机或迫在眉睫  "></a></p>
 <p><a href="https://github.com/aqcayd3630/djy/blob/master/gb/20/8/11/n12323398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福建漳州养殖户：台风袭击惨况        >-009fcc?logoWidth=1" title="福建漳州养殖户：台风袭击惨况  " alt="福建漳州养殖户：台风袭击惨况  "></a></p>
 <p><a href="https://github.com/aqcayd3630/djy/blob/master/gb/20/8/11/n12323209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英凌晨获释 警署外市民高呼“撑苹果”  >-009fcc?logoWidth=1" title="黎智英凌晨获释 警署外市民高呼“撑苹果”  " alt="黎智英凌晨获释 警署外市民高呼“撑苹果”  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/aqcayd3630/djy/blob/master/gb/20/8/11/n12322930.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习提粮食危机 大陆学者：美中脱钩 中国买粮都>-009fcc?logoWidth=1" title="习提粮食危机 大陆学者：美中脱钩 中国买粮都成问题  " alt="习提粮食危机 大陆学者：美中脱钩 中国买粮都成问题  "></a></p>
-<p><a href="https://github.com/aqcayd3630/djy/blob/master/gb/20/8/11/n12321426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：大灾大难大迫害 难逃北京大审判   >-009fcc?logoWidth=1" title="王友群：大灾大难大迫害 难逃北京大审判  " alt="王友群：大灾大难大迫害 难逃北京大审判  "></a></p>
-<p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/11/a102915901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港特殊地位终结 美海关下令港货标“中国制造>-009fcc?logoWidth=1" title="香港特殊地位终结 美海关下令港货标“中国制造”  " alt="香港特殊地位终结 美海关下令港货标“中国制造”  "></a></p>
-<p><a href="https://github.com/aqcayd3630/djy/blob/master/gb/20/8/11/n12323398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福建漳州养殖户讲述台风袭击后场景      >-009fcc?logoWidth=1" title="福建漳州养殖户讲述台风袭击后场景  " alt="福建漳州养殖户讲述台风袭击后场景  "></a></p>
-<p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/11/a102915842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共贪官又创新纪录 赖小民被控受贿18亿元 >-009fcc?logoWidth=1" title="中共贪官又创新纪录 赖小民被控受贿18亿元  " alt="中共贪官又创新纪录 赖小民被控受贿18亿元  "></a></p>
-<p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/11/a102915972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军机越中线 台军首次宣布“用防空导弹监控>-009fcc?logoWidth=1" title="中共军机越中线 台军首次宣布“用防空导弹监控”  " alt="中共军机越中线 台军首次宣布“用防空导弹监控”  "></a></p>
-<p><a href="https://github.com/aqcayd3630/djy/blob/master/gb/20/8/11/n12322537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军机越过海峡中线 台：就是侵门踏户   >-009fcc?logoWidth=1" title="中共军机越过海峡中线 台：就是侵门踏户  " alt="中共军机越过海峡中线 台：就是侵门踏户  "></a></p>
-<p><a href="https://github.com/aqcayd3630/djy/blob/master/gb/20/8/11/n12321552.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉藏毒运毒还会反侦查 纽约三华裔被起诉   >-009fcc?logoWidth=1" title="涉藏毒运毒还会反侦查 纽约三华裔被起诉  " alt="涉藏毒运毒还会反侦查 纽约三华裔被起诉  "></a></p>
-<p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/11/a102915502.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林郑资产只能交习近平？美国制裁出狠招    >-009fcc?logoWidth=1" title="林郑资产只能交习近平？美国制裁出狠招  " alt="林郑资产只能交习近平？美国制裁出狠招  "></a></p>
-<p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/11/a102915436.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：习近平求连任 李克强求自保      >-009fcc?logoWidth=1" title="分析：习近平求连任 李克强求自保  " alt="分析：习近平求连任 李克强求自保  "></a></p>
-<p><a href="https://github.com/aqcayd3630/djy/blob/master/gb/20/8/11/n12323253.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆猪肉价涨85 鸡蛋涨34 引发民怨   >-009fcc?logoWidth=1" title="大陆猪肉价涨85 鸡蛋涨34 引发民怨  " alt="大陆猪肉价涨85 鸡蛋涨34 引发民怨  "></a></p>
-<p><a href="https://github.com/aqcayd3630/djy/blob/master/gb/20/8/11/n12322484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国制裁中港官员 香港金融体制遇挫     >-009fcc?logoWidth=1" title="美国制裁中港官员 香港金融体制遇挫  " alt="美国制裁中港官员 香港金融体制遇挫  "></a></p>
-<p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/12/a102916075.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：暗示有大事？美国驻华使馆改徽号删“中国>-009fcc?logoWidth=1" title="文昭：暗示有大事？美国驻华使馆改徽号删“中国”两字  " alt="文昭：暗示有大事？美国驻华使馆改徽号删“中国”两字  "></a></p>
-<p><a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/2020/08/12/a102916063.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/粮食危机%3F习罕提制止餐饮浪费/赖小民贪腐18>-009fcc?logoWidth=1" title="粮食危机?习罕提制止餐饮浪费/赖小民贪腐18亿!/港共政府搞港独?/川普政府的大战略  " alt="粮食危机?习罕提制止餐饮浪费/赖小民贪腐18亿!/港共政府搞港独?/川普政府的大战略  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -490,8 +475,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aqcayd3630/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aqcayd3630/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aqcayd3630/www/blob/master/README.md?w#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/aqcayd3630/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aqcayd3630/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aqcayd3630/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aqcayd3630/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aqcayd3630/www/blob/master/README.md?b#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/aqcayd3630/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ruuuu">git.io/ruuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/99999">git.io/99999</a></div>
 
