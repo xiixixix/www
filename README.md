@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/abctzx3003/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/abctzx3003/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hxxxx">git.io/hxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/cdd">x.co/cdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/sbbbb">git.io/sbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/5pp">x.co/5pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/12/a102916582.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周庭被捕引发日本声援热潮 黄之锋公布惊人数据>-009fcc?logoWidth=1" title="周庭被捕引发日本声援热潮 黄之锋公布惊人数据  " alt="周庭被捕引发日本声援热潮 黄之锋公布惊人数据  "></a></p>
 <p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/12/a102916547.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒所长交锋闫丽梦 中国粮食危机来   >-009fcc?logoWidth=1" title="武汉病毒所长交锋闫丽梦 中国粮食危机来  " alt="武汉病毒所长交锋闫丽梦 中国粮食危机来  "></a></p>
 <p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/12/a102916400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习受到军中重要将领们谴责/美驻华使馆回应徽章>-009fcc?logoWidth=1" title="习受到军中重要将领们谴责/美驻华使馆回应徽章删字  " alt="习受到军中重要将领们谴责/美驻华使馆回应徽章删字  "></a></p>
+<p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/13/a102916975.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海顾问发预警：我们海外资产可能被扣押！ >-009fcc?logoWidth=1" title="中南海顾问发预警：我们海外资产可能被扣押！  " alt="中南海顾问发预警：我们海外资产可能被扣押！  "></a></p>
 <p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/13/a102916933.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白俄罗斯争议性大选引动乱 警动用枪支并拘留6>-009fcc?logoWidth=1" title="白俄罗斯争议性大选引动乱 警动用枪支并拘留6000多人  " alt="白俄罗斯争议性大选引动乱 警动用枪支并拘留6000多人  "></a></p>
 <p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/13/a102916925.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥捷克发表演讲：推倒铁幕 团结反共   >-009fcc?logoWidth=1" title="蓬佩奥捷克发表演讲：推倒铁幕 团结反共  " alt="蓬佩奥捷克发表演讲：推倒铁幕 团结反共  "></a></p>
 <p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/13/a102916901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程翔：中共流氓策略对外求和 国际勿上当   >-009fcc?logoWidth=1" title="程翔：中共流氓策略对外求和 国际勿上当  " alt="程翔：中共流氓策略对外求和 国际勿上当  "></a></p>
 <p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/13/a102916886.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南海战云密布 习令军方不要先开枪      >-009fcc?logoWidth=1" title="南海战云密布 习令军方不要先开枪  " alt="南海战云密布 习令军方不要先开枪  "></a></p>
-<p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/12/a102916761.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/斥港警满口谎言 法官判区议员袭警罪不成立  >-009fcc?logoWidth=1" title="斥港警满口谎言 法官判区议员袭警罪不成立  " alt="斥港警满口谎言 法官判区议员袭警罪不成立  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/abctzx3003/djy/blob/master/gb/20/8/11/n12322176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中领馆操控CSSA 长臂威胁世界      >-009fcc?logoWidth=1" title="中领馆操控CSSA 长臂威胁世界  " alt="中领馆操控CSSA 长臂威胁世界  "></a></p>
 <p><a href="https://github.com/abctzx3003/djy/blob/master/gb/20/8/11/n12321841.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中领馆操控海外学生会证据曝光        >-009fcc?logoWidth=1" title="中领馆操控海外学生会证据曝光  " alt="中领馆操控海外学生会证据曝光  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/abctzx3003/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/abctzx3003/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/abctzx3003/www/blob/master/README.md?x#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/abctzx3003/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/abctzx3003/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/abctzx3003/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/abctzx3003/www/blob/master/README.md?q#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/abctzx3003/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hxxxx">git.io/hxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/sbbbb">git.io/sbbbb</a></div>
 
