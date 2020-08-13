@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/abctzx3003/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/abctzx3003/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/taaaa">git.io/taaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aaj">x.co/aaj</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hxxxx">git.io/hxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/cdd">x.co/cdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,7 +40,6 @@
 <p><a href="https://github.com/abctzx3003/djy/blob/master/gb/20/8/12/n12323980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡工程隐患冲击中共合法性 专家吁公投   >-009fcc?logoWidth=1" title="三峡工程隐患冲击中共合法性 专家吁公投  " alt="三峡工程隐患冲击中共合法性 专家吁公投  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/12/a102916129.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳媒：习近平受到军中重要将领们谴责     >-009fcc?logoWidth=1" title="澳媒：习近平受到军中重要将领们谴责  " alt="澳媒：习近平受到军中重要将领们谴责  "></a></p>
-<p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/12/a102916662.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：江家为首 海外十万亿资金或冻结   >-009fcc?logoWidth=1" title="袁弓夷：江家为首 海外十万亿资金或冻结  " alt="袁弓夷：江家为首 海外十万亿资金或冻结  "></a></p>
 <p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/12/a102916789.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/粮荒了？ 中共要立法刚性约束百姓饮食    >-009fcc?logoWidth=1" title="粮荒了？ 中共要立法刚性约束百姓饮食  " alt="粮荒了？ 中共要立法刚性约束百姓饮食  "></a></p>
 <p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/12/a102916266.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美台建交前兆 美国要改组联合国       >-009fcc?logoWidth=1" title="美台建交前兆 美国要改组联合国  " alt="美台建交前兆 美国要改组联合国  "></a></p>
 <p><a href="https://github.com/abctzx3003/djy/blob/master/gb/20/8/12/n12325621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共允许新车用旧零件 为美中脱钩做准备？  >-009fcc?logoWidth=1" title="中共允许新车用旧零件 为美中脱钩做准备？  " alt="中共允许新车用旧零件 为美中脱钩做准备？  "></a></p>
@@ -488,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/abctzx3003/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/abctzx3003/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/abctzx3003/www/blob/master/README.md?g#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/abctzx3003/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/abctzx3003/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/abctzx3003/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/abctzx3003/www/blob/master/README.md?x#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/abctzx3003/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/taaaa">git.io/taaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/hxxxx">git.io/hxxxx</a></div>
 
