@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nzicfw3176/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nzicfw3176/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uuuuuuu">git.io/uuuuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/cdd">x.co/cdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yffff">git.io/yffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/5aa">x.co/5aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/nzicfw3176/ntdtv/blob/master/gb/2020/08/13/a102916887.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平、栗战书、汪洋亲属在港近4亿豪宅被曝光>-009fcc?logoWidth=1" title="习近平、栗战书、汪洋亲属在港近4亿豪宅被曝光  " alt="习近平、栗战书、汪洋亲属在港近4亿豪宅被曝光  "></a></p>
 <p><a href="https://github.com/nzicfw3176/ntdtv/blob/master/gb/2020/08/13/a102916858.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：习近平“反浪费”预示粮荒？反习逆袭，栗>-009fcc?logoWidth=1" title="文昭：习近平“反浪费”预示粮荒？反习逆袭，栗战书财产被曝  " alt="文昭：习近平“反浪费”预示粮荒？反习逆袭，栗战书财产被曝  "></a></p>
 <p><a href="https://github.com/nzicfw3176/ntdtv/blob/master/gb/2020/08/13/a102917332.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“纸片屋”能住人？ 屋内别有洞天令人惊艳  >-009fcc?logoWidth=1" title="“纸片屋”能住人？ 屋内别有洞天令人惊艳  " alt="“纸片屋”能住人？ 屋内别有洞天令人惊艳  "></a></p>
+<p><a href="https://github.com/nzicfw3176/ntdtv/blob/master/gb/2020/08/13/a102917363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周庭感谢日本支持 呼吁港人坚定心志     >-009fcc?logoWidth=1" title="周庭感谢日本支持 呼吁港人坚定心志  " alt="周庭感谢日本支持 呼吁港人坚定心志  "></a></p>
 <p><a href="https://github.com/nzicfw3176/ntdtv/blob/master/gb/2020/08/13/a102917358.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：拜登贺锦丽不敢公开谴责Antifa  >-009fcc?logoWidth=1" title="川普：拜登贺锦丽不敢公开谴责Antifa  " alt="川普：拜登贺锦丽不敢公开谴责Antifa  "></a></p>
 <p><a href="https://github.com/nzicfw3176/ntdtv/blob/master/gb/2020/08/13/a102917281.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/索赔被拒 武汉中共肺炎受害家属再递诉状   >-009fcc?logoWidth=1" title="索赔被拒 武汉中共肺炎受害家属再递诉状  " alt="索赔被拒 武汉中共肺炎受害家属再递诉状  "></a></p>
 <p><a href="https://github.com/nzicfw3176/ntdtv/blob/master/gb/2020/08/13/a102917314.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京暴雨 长安街开启“看海”模式(视频)  >-009fcc?logoWidth=1" title="北京暴雨 长安街开启“看海”模式(视频)  " alt="北京暴雨 长安街开启“看海”模式(视频)  "></a></p>
-<p><a href="https://github.com/nzicfw3176/ntdtv/blob/master/gb/2020/08/10/a102915239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港警队怕美国制裁 紧急转移上百亿资产   >-009fcc?logoWidth=1" title="香港警队怕美国制裁 紧急转移上百亿资产  " alt="香港警队怕美国制裁 紧急转移上百亿资产  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nzicfw3176/djy/blob/master/gb/20/8/11/n12322176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中领馆操控CSSA 长臂威胁世界      >-009fcc?logoWidth=1" title="中领馆操控CSSA 长臂威胁世界  " alt="中领馆操控CSSA 长臂威胁世界  "></a></p>
 <p><a href="https://github.com/nzicfw3176/djy/blob/master/gb/20/8/12/n12326577.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共罕报夏粮收购下跌 专家：近3亿人缺口粮 >-009fcc?logoWidth=1" title="中共罕报夏粮收购下跌 专家：近3亿人缺口粮  " alt="中共罕报夏粮收购下跌 专家：近3亿人缺口粮  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nzicfw3176/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nzicfw3176/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nzicfw3176/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nzicfw3176/www/blob/master/README.md?p#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/nzicfw3176/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nzicfw3176/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nzicfw3176/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nzicfw3176/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nzicfw3176/www/blob/master/README.md?p#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/nzicfw3176/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/uuuuuuu">git.io/uuuuuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/yffff">git.io/yffff</a></div>
 
