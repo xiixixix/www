@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nzicfw3176/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nzicfw3176/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tuuuu">git.io/tuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j55">x.co/j55</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ccccc">git.io/ccccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/6aa">x.co/6aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -30,14 +30,14 @@
 <p><a href="https://github.com/nzicfw3176/djy/blob/master/gb/20/8/12/n12326577.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共罕报夏粮收购下跌 专家：近3亿人缺口粮 >-009fcc?logoWidth=1" title="中共罕报夏粮收购下跌 专家：近3亿人缺口粮  " alt="中共罕报夏粮收购下跌 专家：近3亿人缺口粮  "></a></p>
 <p><a href="https://github.com/nzicfw3176/djy/blob/master/gb/20/8/12/n12326488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：黎智英获保释 中共在香港六连败   >-009fcc?logoWidth=1" title="王友群：黎智英获保释 中共在香港六连败  " alt="王友群：黎智英获保释 中共在香港六连败  "></a></p>
 <p><a href="https://github.com/nzicfw3176/djy/blob/master/gb/20/8/12/n12325861.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/栗战书之女被曝在香港坐拥千万美元别墅    >-009fcc?logoWidth=1" title="栗战书之女被曝在香港坐拥千万美元别墅  " alt="栗战书之女被曝在香港坐拥千万美元别墅  "></a></p>
-<p><a href="https://github.com/nzicfw3176/djy/blob/master/gb/20/8/13/n12327143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆学者警告：美国可扣押中共官员海外资产  >-009fcc?logoWidth=1" title="大陆学者警告：美国可扣押中共官员海外资产  " alt="大陆学者警告：美国可扣押中共官员海外资产  "></a></p>
+<p><a href="https://github.com/nzicfw3176/djy/blob/master/gb/20/8/13/n12327858.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刚刚被调职 北京市政府前副秘书长落马    >-009fcc?logoWidth=1" title="刚刚被调职 北京市政府前副秘书长落马  " alt="刚刚被调职 北京市政府前副秘书长落马  "></a></p>
 <p><a href="https://github.com/nzicfw3176/djy/blob/master/gb/20/8/12/n12326310.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/追查国际最新公告：追查中共常委赵乐际    >-009fcc?logoWidth=1" title="追查国际最新公告：追查中共常委赵乐际  " alt="追查国际最新公告：追查中共常委赵乐际  "></a></p>
 <p><a href="https://github.com/nzicfw3176/djy/blob/master/gb/20/8/12/n12326380.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：习近平喊节约粮食和瑞银最新报告    >-009fcc?logoWidth=1" title="钟原：习近平喊节约粮食和瑞银最新报告  " alt="钟原：习近平喊节约粮食和瑞银最新报告  "></a></p>
 <p><a href="https://github.com/nzicfw3176/djy/blob/master/gb/20/8/8/n12316177.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/因何制裁 美公布中港11高官所为      >-009fcc?logoWidth=1" title="因何制裁 美公布中港11高官所为  " alt="因何制裁 美公布中港11高官所为  "></a></p>
 <p><a href="https://github.com/nzicfw3176/djy/blob/master/gb/20/8/12/n12325024.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆疫情严峻 信息被严密封锁        >-009fcc?logoWidth=1" title="新疆疫情严峻 信息被严密封锁  " alt="新疆疫情严峻 信息被严密封锁  "></a></p>
 <p><a href="https://github.com/nzicfw3176/djy/blob/master/gb/20/8/13/n12327065.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共3常委亲属在港大量资产曝光       >-009fcc?logoWidth=1" title="中共3常委亲属在港大量资产曝光  " alt="中共3常委亲属在港大量资产曝光  "></a></p>
+<p><a href="https://github.com/nzicfw3176/djy/blob/master/gb/20/8/13/n12327143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆学者警告：美国可扣押中共官员海外资产  >-009fcc?logoWidth=1" title="大陆学者警告：美国可扣押中共官员海外资产  " alt="大陆学者警告：美国可扣押中共官员海外资产  "></a></p>
 <p><a href="https://github.com/nzicfw3176/djy/blob/master/gb/20/8/12/n12324085.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洛杉矶华人控诉微信：监控及审查无底线    >-009fcc?logoWidth=1" title="洛杉矶华人控诉微信：监控及审查无底线  " alt="洛杉矶华人控诉微信：监控及审查无底线  "></a></p>
-<p><a href="https://github.com/nzicfw3176/djy/blob/master/gb/20/8/13/n12327858.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刚刚被调职 北京市政府前副秘书长落马    >-009fcc?logoWidth=1" title="刚刚被调职 北京市政府前副秘书长落马  " alt="刚刚被调职 北京市政府前副秘书长落马  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nzicfw3176/djy/blob/master/gb/20/8/12/n12324085.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前中共媒体人谈亲身经历：微信监控及审查无底线>-009fcc?logoWidth=1" title="前中共媒体人谈亲身经历：微信监控及审查无底线  " alt="前中共媒体人谈亲身经历：微信监控及审查无底线  "></a></p>
 <p><a href="https://github.com/nzicfw3176/djy/blob/master/gb/20/8/13/n12327296.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共制造恐怖 香港大纪元记者讲被跟踪经历  >-009fcc?logoWidth=1" title="中共制造恐怖 香港大纪元记者讲被跟踪经历  " alt="中共制造恐怖 香港大纪元记者讲被跟踪经历  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nzicfw3176/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nzicfw3176/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nzicfw3176/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nzicfw3176/www/blob/master/README.md?w#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/nzicfw3176/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nzicfw3176/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nzicfw3176/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nzicfw3176/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nzicfw3176/www/blob/master/README.md?s#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/nzicfw3176/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/tuuuu">git.io/tuuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/ccccc">git.io/ccccc</a></div>
 
