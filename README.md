@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/abctzx3003/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/abctzx3003/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/y2222">git.io/y2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aza">x.co/aza</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/taaaa">git.io/taaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aaj">x.co/aaj</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/12/a102916582.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周庭被捕引发日本声援热潮 黄之锋公布惊人数据>-009fcc?logoWidth=1" title="周庭被捕引发日本声援热潮 黄之锋公布惊人数据  " alt="周庭被捕引发日本声援热潮 黄之锋公布惊人数据  "></a></p>
 <p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/12/a102916547.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒所长交锋闫丽梦 中国粮食危机来   >-009fcc?logoWidth=1" title="武汉病毒所长交锋闫丽梦 中国粮食危机来  " alt="武汉病毒所长交锋闫丽梦 中国粮食危机来  "></a></p>
 <p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/12/a102916400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习受到军中重要将领们谴责/美驻华使馆回应徽章>-009fcc?logoWidth=1" title="习受到军中重要将领们谴责/美驻华使馆回应徽章删字  " alt="习受到军中重要将领们谴责/美驻华使馆回应徽章删字  "></a></p>
+<p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/13/a102916933.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白俄罗斯争议性大选引动乱 警动用枪支并拘留6>-009fcc?logoWidth=1" title="白俄罗斯争议性大选引动乱 警动用枪支并拘留6000多人  " alt="白俄罗斯争议性大选引动乱 警动用枪支并拘留6000多人  "></a></p>
 <p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/13/a102916925.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥捷克发表演讲：推倒铁幕 团结反共   >-009fcc?logoWidth=1" title="蓬佩奥捷克发表演讲：推倒铁幕 团结反共  " alt="蓬佩奥捷克发表演讲：推倒铁幕 团结反共  "></a></p>
 <p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/13/a102916901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程翔：中共流氓策略对外求和 国际勿上当   >-009fcc?logoWidth=1" title="程翔：中共流氓策略对外求和 国际勿上当  " alt="程翔：中共流氓策略对外求和 国际勿上当  "></a></p>
 <p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/13/a102916886.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南海战云密布 习令军方不要先开枪      >-009fcc?logoWidth=1" title="南海战云密布 习令军方不要先开枪  " alt="南海战云密布 习令军方不要先开枪  "></a></p>
 <p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/12/a102916761.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/斥港警满口谎言 法官判区议员袭警罪不成立  >-009fcc?logoWidth=1" title="斥港警满口谎言 法官判区议员袭警罪不成立  " alt="斥港警满口谎言 法官判区议员袭警罪不成立  "></a></p>
-<p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/10/a102915239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥捷克演讲 聚合自由世界对抗中共霸权  >-009fcc?logoWidth=1" title="蓬佩奥捷克演讲 聚合自由世界对抗中共霸权  " alt="蓬佩奥捷克演讲 聚合自由世界对抗中共霸权  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/abctzx3003/djy/blob/master/gb/20/8/11/n12322176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中领馆操控CSSA 长臂威胁世界      >-009fcc?logoWidth=1" title="中领馆操控CSSA 长臂威胁世界  " alt="中领馆操控CSSA 长臂威胁世界  "></a></p>
 <p><a href="https://github.com/abctzx3003/djy/blob/master/gb/20/8/11/n12321841.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中领馆操控海外学生会证据曝光        >-009fcc?logoWidth=1" title="中领馆操控海外学生会证据曝光  " alt="中领馆操控海外学生会证据曝光  "></a></p>
@@ -39,18 +39,18 @@
 <p><a href="https://github.com/abctzx3003/djy/blob/master/gb/20/8/12/n12324252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下 一位在美中国留学生的抉择      >-009fcc?logoWidth=1" title="疫情下 一位在美中国留学生的抉择  " alt="疫情下 一位在美中国留学生的抉择  "></a></p>
 <p><a href="https://github.com/abctzx3003/djy/blob/master/gb/20/8/12/n12323980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三峡工程隐患冲击中共合法性 专家吁公投   >-009fcc?logoWidth=1" title="三峡工程隐患冲击中共合法性 专家吁公投  " alt="三峡工程隐患冲击中共合法性 专家吁公投  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/12/a102916129.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳媒：习近平受到军中重要将领们谴责     >-009fcc?logoWidth=1" title="澳媒：习近平受到军中重要将领们谴责  " alt="澳媒：习近平受到军中重要将领们谴责  "></a></p>
 <p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/12/a102916662.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：江家为首 海外十万亿资金或冻结   >-009fcc?logoWidth=1" title="袁弓夷：江家为首 海外十万亿资金或冻结  " alt="袁弓夷：江家为首 海外十万亿资金或冻结  "></a></p>
 <p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/12/a102916789.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/粮荒了？ 中共要立法刚性约束百姓饮食    >-009fcc?logoWidth=1" title="粮荒了？ 中共要立法刚性约束百姓饮食  " alt="粮荒了？ 中共要立法刚性约束百姓饮食  "></a></p>
 <p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/12/a102916266.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美台建交前兆 美国要改组联合国       >-009fcc?logoWidth=1" title="美台建交前兆 美国要改组联合国  " alt="美台建交前兆 美国要改组联合国  "></a></p>
-<p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/12/a102916513.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中资银行配合美国制裁 暂停为11名中港高官开>-009fcc?logoWidth=1" title="中资银行配合美国制裁 暂停为11名中港高官开账户  " alt="中资银行配合美国制裁 暂停为11名中港高官开账户  "></a></p>
 <p><a href="https://github.com/abctzx3003/djy/blob/master/gb/20/8/12/n12325621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共允许新车用旧零件 为美中脱钩做准备？  >-009fcc?logoWidth=1" title="中共允许新车用旧零件 为美中脱钩做准备？  " alt="中共允许新车用旧零件 为美中脱钩做准备？  "></a></p>
 <p><a href="https://github.com/abctzx3003/djy/blob/master/gb/20/8/12/n12325660.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥访欧：形势大变 自由世界引领5G   >-009fcc?logoWidth=1" title="蓬佩奥访欧：形势大变 自由世界引领5G  " alt="蓬佩奥访欧：形势大变 自由世界引领5G  "></a></p>
+<p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/12/a102916513.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中资银行配合美国制裁 暂停为11名中港高官开>-009fcc?logoWidth=1" title="中资银行配合美国制裁 暂停为11名中港高官开账户  " alt="中资银行配合美国制裁 暂停为11名中港高官开账户  "></a></p>
 <p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/12/a102916645.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微博大头照“去中国”有玄机 美驻华使馆回应很>-009fcc?logoWidth=1" title="微博大头照“去中国”有玄机 美驻华使馆回应很含蓄  " alt="微博大头照“去中国”有玄机 美驻华使馆回应很含蓄  "></a></p>
-<p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/12/a102916285.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中走向全面对抗 川普再谈习近平      >-009fcc?logoWidth=1" title="美中走向全面对抗 川普再谈习近平  " alt="美中走向全面对抗 川普再谈习近平  "></a></p>
 <p><a href="https://github.com/abctzx3003/djy/blob/master/gb/20/8/12/n12325133.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遵美禁令 在港中资银行对林郑等采取措施   >-009fcc?logoWidth=1" title="遵美禁令 在港中资银行对林郑等采取措施  " alt="遵美禁令 在港中资银行对林郑等采取措施  "></a></p>
 <p><a href="https://github.com/abctzx3003/djy/blob/master/gb/20/8/12/n12325699.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：收入不涨物价涨 大陆穷人正在更穷   >-009fcc?logoWidth=1" title="分析：收入不涨物价涨 大陆穷人正在更穷  " alt="分析：收入不涨物价涨 大陆穷人正在更穷  "></a></p>
+<p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/12/a102916285.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中走向全面对抗 川普再谈习近平      >-009fcc?logoWidth=1" title="美中走向全面对抗 川普再谈习近平  " alt="美中走向全面对抗 川普再谈习近平  "></a></p>
 <p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/12/a102916502.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港大抓捕与北戴河会议密切相关？习近平加速背>-009fcc?logoWidth=1" title="香港大抓捕与北戴河会议密切相关？习近平加速背后的政治逻辑  " alt="香港大抓捕与北戴河会议密切相关？习近平加速背后的政治逻辑  "></a></p>
-<p><a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/2020/08/12/a102916426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵克志赴东北批“两面人” 两公安高官离奇失踪>-009fcc?logoWidth=1" title="赵克志赴东北批“两面人” 两公安高官离奇失踪  " alt="赵克志赴东北批“两面人” 两公安高官离奇失踪  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/abctzx3003/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/abctzx3003/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/abctzx3003/www/blob/master/README.md?m#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/abctzx3003/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/abctzx3003/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/abctzx3003/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/abctzx3003/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/abctzx3003/www/blob/master/README.md?g#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/abctzx3003/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/y2222">git.io/y2222</a></div>
+<div align="center">短网址: <a href="https://git.io/taaaa">git.io/taaaa</a></div>
 
