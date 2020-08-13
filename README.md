@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bfndkw380/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bfndkw380/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uuuuu">git.io/uuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3332">x.co/3332</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g6666">git.io/g6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppu">x.co/ppu</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/bfndkw380/ntdtv/blob/master/gb/2020/08/13/a102916858.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：习近平“反浪费”预示粮荒？反习逆袭，栗>-009fcc?logoWidth=1" title="文昭：习近平“反浪费”预示粮荒？反习逆袭，栗战书财产被曝  " alt="文昭：习近平“反浪费”预示粮荒？反习逆袭，栗战书财产被曝  "></a></p>
 <p><a href="https://github.com/bfndkw380/ntdtv/blob/master/gb/2020/08/12/a102916695.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视主播让“14亿”分担困难惹恼网民 影片被>-009fcc?logoWidth=1" title="央视主播让“14亿”分担困难惹恼网民 影片被下架  " alt="央视主播让“14亿”分担困难惹恼网民 影片被下架  "></a></p>
 <p><a href="https://github.com/bfndkw380/ntdtv/blob/master/gb/2020/08/12/a102916582.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周庭被捕引发日本声援热潮 黄之锋公布惊人数据>-009fcc?logoWidth=1" title="周庭被捕引发日本声援热潮 黄之锋公布惊人数据  " alt="周庭被捕引发日本声援热潮 黄之锋公布惊人数据  "></a></p>
+<p><a href="https://github.com/bfndkw380/ntdtv/blob/master/gb/2020/08/13/a102917183.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄罗斯疫情未减 副总理确诊 急推首款疫苗遭质>-009fcc?logoWidth=1" title="俄罗斯疫情未减 副总理确诊 急推首款疫苗遭质疑  " alt="俄罗斯疫情未减 副总理确诊 急推首款疫苗遭质疑  "></a></p>
 <p><a href="https://github.com/bfndkw380/ntdtv/blob/master/gb/2020/08/13/a102917147.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港回不去了 “红二代”们将何去何从？   >-009fcc?logoWidth=1" title="香港回不去了 “红二代”们将何去何从？  " alt="香港回不去了 “红二代”们将何去何从？  "></a></p>
 <p><a href="https://github.com/bfndkw380/ntdtv/blob/master/gb/2020/08/13/a102917150.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黎智英获释后直播哽咽：在手铐下没有感到屈辱 >-009fcc?logoWidth=1" title="黎智英获释后直播哽咽：在手铐下没有感到屈辱  " alt="黎智英获释后直播哽咽：在手铐下没有感到屈辱  "></a></p>
 <p><a href="https://github.com/bfndkw380/ntdtv/blob/master/gb/2020/08/13/a102917085.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/彭博：美国拟将孔子学院列为外国使团     >-009fcc?logoWidth=1" title="彭博：美国拟将孔子学院列为外国使团  " alt="彭博：美国拟将孔子学院列为外国使团  "></a></p>
 <p><a href="https://github.com/bfndkw380/ntdtv/blob/master/gb/2020/08/13/a102917093.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/主打肤色性别牌 拜登提名贺锦丽当副手    >-009fcc?logoWidth=1" title="主打肤色性别牌 拜登提名贺锦丽当副手  " alt="主打肤色性别牌 拜登提名贺锦丽当副手  "></a></p>
-<p><a href="https://github.com/bfndkw380/ntdtv/blob/master/gb/2020/08/13/a102917063.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/因迫害法轮功 武汉逾三百人厄运缠身（3）  >-009fcc?logoWidth=1" title="因迫害法轮功 武汉逾三百人厄运缠身（3）  " alt="因迫害法轮功 武汉逾三百人厄运缠身（3）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bfndkw380/djy/blob/master/gb/20/8/11/n12322176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中领馆操控CSSA 长臂威胁世界      >-009fcc?logoWidth=1" title="中领馆操控CSSA 长臂威胁世界  " alt="中领馆操控CSSA 长臂威胁世界  "></a></p>
 <p><a href="https://github.com/bfndkw380/djy/blob/master/gb/20/8/12/n12326577.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共罕报夏粮收购下跌 专家：近3亿人缺口粮 >-009fcc?logoWidth=1" title="中共罕报夏粮收购下跌 专家：近3亿人缺口粮  " alt="中共罕报夏粮收购下跌 专家：近3亿人缺口粮  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bfndkw380/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bfndkw380/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bfndkw380/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bfndkw380/www/blob/master/README.md?x#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/bfndkw380/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bfndkw380/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bfndkw380/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bfndkw380/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bfndkw380/www/blob/master/README.md?b#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/bfndkw380/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/uuuuu">git.io/uuuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/g6666">git.io/g6666</a></div>
 
