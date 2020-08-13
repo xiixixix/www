@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nzicfw3176/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nzicfw3176/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jzzzz">git.io/jzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2299">x.co/2299</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/n8888">git.io/n8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pgp">x.co/pgp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,7 +40,6 @@
 <p><a href="https://github.com/nzicfw3176/djy/blob/master/gb/20/8/13/n12327143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海顾问警告 美或扣押中共海外资产    >-009fcc?logoWidth=1" title="中南海顾问警告 美或扣押中共海外资产  " alt="中南海顾问警告 美或扣押中共海外资产  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nzicfw3176/ntdtv/blob/master/gb/2020/08/13/a102917096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习下令南海避战 华为芯片将“绝代”     >-009fcc?logoWidth=1" title="习下令南海避战 华为芯片将“绝代”  " alt="习下令南海避战 华为芯片将“绝代”  "></a></p>
-<p><a href="https://github.com/nzicfw3176/djy/blob/master/gb/20/8/13/n12327143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海顾问警告 美或扣押中共官员海外资产  >-009fcc?logoWidth=1" title="中南海顾问警告 美或扣押中共官员海外资产  " alt="中南海顾问警告 美或扣押中共官员海外资产  "></a></p>
 <p><a href="https://github.com/nzicfw3176/ntdtv/blob/master/gb/2020/08/13/a102916975.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海顾问发预警：我们海外资产可能被扣押！ >-009fcc?logoWidth=1" title="中南海顾问发预警：我们海外资产可能被扣押！  " alt="中南海顾问发预警：我们海外资产可能被扣押！  "></a></p>
 <p><a href="https://github.com/nzicfw3176/djy/blob/master/gb/20/8/13/n12327619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传华为要自己建厂造芯片 业界：比登天还难  >-009fcc?logoWidth=1" title="传华为要自己建厂造芯片 业界：比登天还难  " alt="传华为要自己建厂造芯片 业界：比登天还难  "></a></p>
 <p><a href="https://github.com/nzicfw3176/djy/blob/master/gb/20/8/12/n12324085.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前中共媒体人谈亲身经历：微信监控及审查无底线>-009fcc?logoWidth=1" title="前中共媒体人谈亲身经历：微信监控及审查无底线  " alt="前中共媒体人谈亲身经历：微信监控及审查无底线  "></a></p>
@@ -486,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nzicfw3176/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nzicfw3176/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nzicfw3176/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nzicfw3176/www/blob/master/README.md?r#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/nzicfw3176/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nzicfw3176/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nzicfw3176/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nzicfw3176/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nzicfw3176/www/blob/master/README.md?x#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/nzicfw3176/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jzzzz">git.io/jzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/n8888">git.io/n8888</a></div>
 
