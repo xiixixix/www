@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bfndkw380/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bfndkw380/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qeeee">git.io/qeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ndd">x.co/ndd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/muuuu">git.io/muuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/fpp">x.co/fpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -37,14 +37,13 @@
 <p><a href="https://github.com/bfndkw380/djy/blob/master/gb/20/8/12/n12325024.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆疫情严峻 信息被严密封锁        >-009fcc?logoWidth=1" title="新疆疫情严峻 信息被严密封锁  " alt="新疆疫情严峻 信息被严密封锁  "></a></p>
 <p><a href="https://github.com/bfndkw380/djy/blob/master/gb/20/8/13/n12327065.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共3常委亲属在港大量资产曝光       >-009fcc?logoWidth=1" title="中共3常委亲属在港大量资产曝光  " alt="中共3常委亲属在港大量资产曝光  "></a></p>
 <p><a href="https://github.com/bfndkw380/djy/blob/master/gb/20/8/12/n12325726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“所有选项正在耗尽” 华为遭美制裁受重创  >-009fcc?logoWidth=1" title="“所有选项正在耗尽” 华为遭美制裁受重创  " alt="“所有选项正在耗尽” 华为遭美制裁受重创  "></a></p>
-<p><a href="https://github.com/bfndkw380/djy/blob/master/gb/20/8/12/n12325621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共允许新车用旧零件 为美中脱钩做准备？  >-009fcc?logoWidth=1" title="中共允许新车用旧零件 为美中脱钩做准备？  " alt="中共允许新车用旧零件 为美中脱钩做准备？  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/bfndkw380/ntdtv/blob/master/gb/2020/08/13/a102916879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/认怂！北京私下求和 中银行制裁林郑     >-009fcc?logoWidth=1" title="认怂！北京私下求和 中银行制裁林郑  " alt="认怂！北京私下求和 中银行制裁林郑  "></a></p>
-<p><a href="https://github.com/bfndkw380/ntdtv/blob/master/gb/2020/08/13/a102917000.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：背信弃义是中共的游戏故事主线    >-009fcc?logoWidth=1" title="蓬佩奥：背信弃义是中共的游戏故事主线  " alt="蓬佩奥：背信弃义是中共的游戏故事主线  "></a></p>
 <p><a href="https://github.com/bfndkw380/djy/blob/master/gb/20/8/13/n12326893.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙古政法系高官与黑老大勾结细节曝光    >-009fcc?logoWidth=1" title="内蒙古政法系高官与黑老大勾结细节曝光  " alt="内蒙古政法系高官与黑老大勾结细节曝光  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/bfndkw380/djy/blob/master/gb/20/8/12/n12325621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共允许新车用旧零件 为美中脱钩做准备？  >-009fcc?logoWidth=1" title="中共允许新车用旧零件 为美中脱钩做准备？  " alt="中共允许新车用旧零件 为美中脱钩做准备？  "></a></p>
+<p><a href="https://github.com/bfndkw380/ntdtv/blob/master/gb/2020/08/13/a102917114.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美使馆换图藏玄机 今天全港买苹果      >-009fcc?logoWidth=1" title="美使馆换图藏玄机 今天全港买苹果  " alt="美使馆换图藏玄机 今天全港买苹果  "></a></p>
+<p><a href="https://github.com/bfndkw380/ntdtv/blob/master/gb/2020/08/13/a102916879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/认怂！北京私下求和 中银行制裁林郑     >-009fcc?logoWidth=1" title="认怂！北京私下求和 中银行制裁林郑  " alt="认怂！北京私下求和 中银行制裁林郑  "></a></p>
 <p><a href="https://github.com/bfndkw380/djy/blob/master/gb/20/8/12/n12324252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下 一位在美中国留学生的抉择      >-009fcc?logoWidth=1" title="疫情下 一位在美中国留学生的抉择  " alt="疫情下 一位在美中国留学生的抉择  "></a></p>
 <p><a href="https://github.com/bfndkw380/ntdtv/blob/master/gb/2020/08/12/a102916662.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：江家为首 海外十万亿资金或冻结   >-009fcc?logoWidth=1" title="袁弓夷：江家为首 海外十万亿资金或冻结  " alt="袁弓夷：江家为首 海外十万亿资金或冻结  "></a></p>
-<p><a href="https://github.com/bfndkw380/ntdtv/blob/master/gb/2020/08/12/a102916661.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国和台湾，到底谁求谁？你太不懂台湾了   >-009fcc?logoWidth=1" title="美国和台湾，到底谁求谁？你太不懂台湾了  " alt="美国和台湾，到底谁求谁？你太不懂台湾了  "></a></p>
 <p><a href="https://github.com/bfndkw380/djy/blob/master/gb/20/8/12/n12324085.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前中共媒体人谈亲身经历：微信监控及审查无底线>-009fcc?logoWidth=1" title="前中共媒体人谈亲身经历：微信监控及审查无底线  " alt="前中共媒体人谈亲身经历：微信监控及审查无底线  "></a></p>
 <p><a href="https://github.com/bfndkw380/djy/blob/master/gb/20/8/10/n12320716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦：揭中共掩盖病毒真相         >-009fcc?logoWidth=1" title="闫丽梦：揭中共掩盖病毒真相  " alt="闫丽梦：揭中共掩盖病毒真相  "></a></p>
 <p><a href="https://github.com/bfndkw380/ntdtv/blob/master/gb/2020/08/12/a102916789.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/粮荒了？ 中共要立法刚性约束百姓饮食    >-009fcc?logoWidth=1" title="粮荒了？ 中共要立法刚性约束百姓饮食  " alt="粮荒了？ 中共要立法刚性约束百姓饮食  "></a></p>
@@ -486,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bfndkw380/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bfndkw380/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bfndkw380/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bfndkw380/www/blob/master/README.md?o#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/bfndkw380/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bfndkw380/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bfndkw380/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bfndkw380/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bfndkw380/www/blob/master/README.md?k#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/bfndkw380/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qeeee">git.io/qeeee</a></div>
+<div align="center">短网址: <a href="https://git.io/muuuu">git.io/muuuu</a></div>
 
