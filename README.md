@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/alniap312/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/alniap312/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uuuuuuu">git.io/uuuuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u22">x.co/u22</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/saaaa">git.io/saaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp9">x.co/pp9</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102917737.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为什么要杀香港这只“下金蛋的鹅”？   >-009fcc?logoWidth=1" title="中共为什么要杀香港这只“下金蛋的鹅”？  " alt="中共为什么要杀香港这只“下金蛋的鹅”？  "></a></p>
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102917715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台专家分析若美国使出3大招 将会要中共命  >-009fcc?logoWidth=1" title="台专家分析若美国使出3大招 将会要中共命  " alt="台专家分析若美国使出3大招 将会要中共命  "></a></p>
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102917679.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟冻结中共官员10万亿海外资产 江家超万亿>-009fcc?logoWidth=1" title="美拟冻结中共官员10万亿海外资产 江家超万亿  " alt="美拟冻结中共官员10万亿海外资产 江家超万亿  "></a></p>
+<p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102918128.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/摘除侨社五星血旗 周日旧金山举行启动仪式  >-009fcc?logoWidth=1" title="摘除侨社五星血旗 周日旧金山举行启动仪式  " alt="摘除侨社五星血旗 周日旧金山举行启动仪式  "></a></p>
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102918106.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/火车飞驰而来 北加女警15秒内救出老者   >-009fcc?logoWidth=1" title="火车飞驰而来 北加女警15秒内救出老者  " alt="火车飞驰而来 北加女警15秒内救出老者  "></a></p>
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102918076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/烤出“神奇饼干” 唐氏宝宝创立烘焙公司当CE>-009fcc?logoWidth=1" title="烤出“神奇饼干” 唐氏宝宝创立烘焙公司当CEO  " alt="烤出“神奇饼干” 唐氏宝宝创立烘焙公司当CEO  "></a></p>
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102917999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河安保升级 访民前往遭拘        >-009fcc?logoWidth=1" title="北戴河安保升级 访民前往遭拘  " alt="北戴河安保升级 访民前往遭拘  "></a></p>
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/10/a102915239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谋财害命？大陆连现假疫苗网上售卖（组图）  >-009fcc?logoWidth=1" title="谋财害命？大陆连现假疫苗网上售卖（组图）  " alt="谋财害命？大陆连现假疫苗网上售卖（组图）  "></a></p>
-<p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102918018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议精神？“怀念吃粮票”标语再现   >-009fcc?logoWidth=1" title="北戴河会议精神？“怀念吃粮票”标语再现  " alt="北戴河会议精神？“怀念吃粮票”标语再现  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/13/n12328996.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美净网联盟扩大 习开倒车军队异象      >-009fcc?logoWidth=1" title="美净网联盟扩大 习开倒车军队异象  " alt="美净网联盟扩大 习开倒车军队异象  "></a></p>
 <p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/14/n12330425.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：中南海激烈对决 曾庆红悬了？    >-009fcc?logoWidth=1" title="李正宽：中南海激烈对决 曾庆红悬了？  " alt="李正宽：中南海激烈对决 曾庆红悬了？  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/alniap312/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/alniap312/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/alniap312/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/alniap312/www/blob/master/README.md?r#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/alniap312/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/alniap312/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/alniap312/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/alniap312/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/alniap312/www/blob/master/README.md?b#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/alniap312/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/uuuuuuu">git.io/uuuuuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/saaaa">git.io/saaaa</a></div>
 
