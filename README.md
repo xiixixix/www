@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rltkmf317/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rltkmf317/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ebbbb">git.io/ebbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3222">x.co/3222</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ecccc">git.io/ecccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppn">x.co/ppn</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,15 +39,16 @@
 <p><a href="https://github.com/rltkmf317/djy/blob/master/gb/20/8/14/n12329739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭美制裁 分析：中共高官将跳船       >-009fcc?logoWidth=1" title="遭美制裁 分析：中共高官将跳船  " alt="遭美制裁 分析：中共高官将跳船  "></a></p>
 <p><a href="https://github.com/rltkmf317/djy/blob/master/gb/20/8/14/n12329635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：美国制裁中共高官 江泽民等寝食难安 >-009fcc?logoWidth=1" title="王友群：美国制裁中共高官 江泽民等寝食难安  " alt="王友群：美国制裁中共高官 江泽民等寝食难安  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/13/a102916887.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平、栗战书、汪洋亲属在港近4亿豪宅被曝光>-009fcc?logoWidth=1" title="习近平、栗战书、汪洋亲属在港近4亿豪宅被曝光  " alt="习近平、栗战书、汪洋亲属在港近4亿豪宅被曝光  "></a></p>
-<p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/13/a102917529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普:在中共治下 香港市场将“落入地狱”  >-009fcc?logoWidth=1" title="川普:在中共治下 香港市场将“落入地狱”  " alt="川普:在中共治下 香港市场将“落入地狱”  "></a></p>
+<p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/14/a102917762.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河传八项精神？备打仗备粮荒       >-009fcc?logoWidth=1" title="北戴河传八项精神？备打仗备粮荒  " alt="北戴河传八项精神？备打仗备粮荒  "></a></p>
+<p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/14/a102917686.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：江家赃款或作疫情赔款        >-009fcc?logoWidth=1" title="袁弓夷：江家赃款或作疫情赔款  " alt="袁弓夷：江家赃款或作疫情赔款  "></a></p>
 <p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/13/a102917026.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传央视董卿、欧阳夏丹被中纪委带走 涉孙力军丑>-009fcc?logoWidth=1" title="传央视董卿、欧阳夏丹被中纪委带走 涉孙力军丑闻  " alt="传央视董卿、欧阳夏丹被中纪委带走 涉孙力军丑闻  "></a></p>
+<p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/13/a102917147.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港回不去了 “红二代”们将何去何从？   >-009fcc?logoWidth=1" title="香港回不去了 “红二代”们将何去何从？  " alt="香港回不去了 “红二代”们将何去何从？  "></a></p>
 <p><a href="https://github.com/rltkmf317/djy/blob/master/gb/20/8/13/n12328353.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视谴责“大胃王吃播” 与粮食危机有关？  >-009fcc?logoWidth=1" title="央视谴责“大胃王吃播” 与粮食危机有关？  " alt="央视谴责“大胃王吃播” 与粮食危机有关？  "></a></p>
-<p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/13/a102917096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习下令南海避战 华为芯片将“绝代”     >-009fcc?logoWidth=1" title="习下令南海避战 华为芯片将“绝代”  " alt="习下令南海避战 华为芯片将“绝代”  "></a></p>
-<p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/13/a102917540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/各地暴雨持续 长江第4号洪水即将形成    >-009fcc?logoWidth=1" title="各地暴雨持续 长江第4号洪水即将形成  " alt="各地暴雨持续 长江第4号洪水即将形成  "></a></p>
+<p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/13/a102916887.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平、栗战书、汪洋亲属在港近4亿豪宅被曝光>-009fcc?logoWidth=1" title="习近平、栗战书、汪洋亲属在港近4亿豪宅被曝光  " alt="习近平、栗战书、汪洋亲属在港近4亿豪宅被曝光  "></a></p>
 <p><a href="https://github.com/rltkmf317/djy/blob/master/gb/20/8/13/n12328219.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国共产分子乐见警察局被焚毁        >-009fcc?logoWidth=1" title="美国共产分子乐见警察局被焚毁  " alt="美国共产分子乐见警察局被焚毁  "></a></p>
 <p><a href="https://github.com/rltkmf317/djy/blob/master/gb/20/8/13/n12328727.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吃剩烤肉再上桌获赞节俭 地沟油要正名？   >-009fcc?logoWidth=1" title="吃剩烤肉再上桌获赞节俭 地沟油要正名？  " alt="吃剩烤肉再上桌获赞节俭 地沟油要正名？  "></a></p>
-<p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/13/a102917590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重回粮食管控时代？中共将立法“制止餐饮浪费”>-009fcc?logoWidth=1" title="重回粮食管控时代？中共将立法“制止餐饮浪费”  " alt="重回粮食管控时代？中共将立法“制止餐饮浪费”  "></a></p>
+<p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/13/a102917376.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平刚说粮食丰收 官方公布小麦减收千万吨 >-009fcc?logoWidth=1" title="习近平刚说粮食丰收 官方公布小麦减收千万吨  " alt="习近平刚说粮食丰收 官方公布小麦减收千万吨  "></a></p>
+<p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/13/a102917529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普:在中共治下 香港市场将“落入地狱”  >-009fcc?logoWidth=1" title="川普:在中共治下 香港市场将“落入地狱”  " alt="川普:在中共治下 香港市场将“落入地狱”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -485,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rltkmf317/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rltkmf317/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rltkmf317/www/blob/master/README.md?k#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/rltkmf317/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rltkmf317/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rltkmf317/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rltkmf317/www/blob/master/README.md?o#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/rltkmf317/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ebbbb">git.io/ebbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/ecccc">git.io/ecccc</a></div>
 
