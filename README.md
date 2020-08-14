@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/atwnuw392/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/atwnuw392/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rrrrr">git.io/rrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j77">x.co/j77</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b8888">git.io/b8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aaj">x.co/aaj</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/13/a102917001.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/寒蝉效应？香港警队怕美国制裁 紧急转移上百亿>-009fcc?logoWidth=1" title="寒蝉效应？香港警队怕美国制裁 紧急转移上百亿资产  " alt="寒蝉效应？香港警队怕美国制裁 紧急转移上百亿资产  "></a></p>
 <p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/13/a102916887.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平、栗战书、汪洋亲属在港近4亿豪宅被曝光>-009fcc?logoWidth=1" title="习近平、栗战书、汪洋亲属在港近4亿豪宅被曝光  " alt="习近平、栗战书、汪洋亲属在港近4亿豪宅被曝光  "></a></p>
 <p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/13/a102916858.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：习近平“反浪费”预示粮荒？反习逆袭，栗>-009fcc?logoWidth=1" title="文昭：习近平“反浪费”预示粮荒？反习逆袭，栗战书财产被曝  " alt="文昭：习近平“反浪费”预示粮荒？反习逆袭，栗战书财产被曝  "></a></p>
+<p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/10/a102915239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谋财害命？大陆连现假疫苗网上售卖（组图）  >-009fcc?logoWidth=1" title="谋财害命？大陆连现假疫苗网上售卖（组图）  " alt="谋财害命？大陆连现假疫苗网上售卖（组图）  "></a></p>
 <p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/13/a102917600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/产业危机全面爆发%3F 中共鼓励新车用旧零件  >-009fcc?logoWidth=1" title="产业危机全面爆发? 中共鼓励新车用旧零件  " alt="产业危机全面爆发? 中共鼓励新车用旧零件  "></a></p>
 <p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/13/a102917576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/躲避瘟疫 犯罪 高税收 今年搬离纽约市者暴增>-009fcc?logoWidth=1" title="躲避瘟疫 犯罪 高税收 今年搬离纽约市者暴增  " alt="躲避瘟疫 犯罪 高税收 今年搬离纽约市者暴增  "></a></p>
 <p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/13/a102917565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江重庆段1天暴涨5米 三峡再临危机    >-009fcc?logoWidth=1" title="长江重庆段1天暴涨5米 三峡再临危机  " alt="长江重庆段1天暴涨5米 三峡再临危机  "></a></p>
 <p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/13/a102917545.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国再制裁香港变中国制造 打击经济     >-009fcc?logoWidth=1" title="美国再制裁香港变中国制造 打击经济  " alt="美国再制裁香港变中国制造 打击经济  "></a></p>
-<p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/13/a102917529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普:在中共治下 香港市场将“堕入地狱”  >-009fcc?logoWidth=1" title="川普:在中共治下 香港市场将“堕入地狱”  " alt="川普:在中共治下 香港市场将“堕入地狱”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/12/n12323934.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/腾讯党支部超7千党员名单曝光        >-009fcc?logoWidth=1" title="腾讯党支部超7千党员名单曝光  " alt="腾讯党支部超7千党员名单曝光  "></a></p>
 <p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/13/n12328732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院指定孔子学院为外国使团       >-009fcc?logoWidth=1" title="美国务院指定孔子学院为外国使团  " alt="美国务院指定孔子学院为外国使团  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/atwnuw392/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/atwnuw392/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/atwnuw392/www/blob/master/README.md?h#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/atwnuw392/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/atwnuw392/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/atwnuw392/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/atwnuw392/www/blob/master/README.md?m#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/atwnuw392/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rrrrr">git.io/rrrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/b8888">git.io/b8888</a></div>
 
