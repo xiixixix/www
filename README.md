@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/atwnuw392/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/atwnuw392/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yiiii">git.io/yiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aza">x.co/aza</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mxxxx">git.io/mxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u99">x.co/u99</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -25,31 +25,6 @@
 <p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/14/a102917664.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港中资银行配合美国制裁          >-009fcc?logoWidth=1" title="香港中资银行配合美国制裁  " alt="香港中资银行配合美国制裁  "></a></p>
 <p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/10/a102915239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谋财害命？大陆连现假疫苗网上售卖（组图）  >-009fcc?logoWidth=1" title="谋财害命？大陆连现假疫苗网上售卖（组图）  " alt="谋财害命？大陆连现假疫苗网上售卖（组图）  "></a></p>
 <p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/13/a102917606.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共少收1000万吨夏粮 百姓少个菜    >-009fcc?logoWidth=1" title="中共少收1000万吨夏粮 百姓少个菜  " alt="中共少收1000万吨夏粮 百姓少个菜  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/12/n12323934.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/腾讯党支部超7千党员名单曝光        >-009fcc?logoWidth=1" title="腾讯党支部超7千党员名单曝光  " alt="腾讯党支部超7千党员名单曝光  "></a></p>
-<p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/13/n12328732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院指定孔子学院为外国使团       >-009fcc?logoWidth=1" title="美国务院指定孔子学院为外国使团  " alt="美国务院指定孔子学院为外国使团  "></a></p>
-<p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/13/n12328219.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国共产分子乐见警察局被焚毁        >-009fcc?logoWidth=1" title="美国共产分子乐见警察局被焚毁  " alt="美国共产分子乐见警察局被焚毁  "></a></p>
-<p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/13/n12327143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海顾问警告 美或扣押中共海外资产    >-009fcc?logoWidth=1" title="中南海顾问警告 美或扣押中共海外资产  " alt="中南海顾问警告 美或扣押中共海外资产  "></a></p>
-<p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/13/n12328291.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度逮捕一中国间谍 涉上亿美元诈骗     >-009fcc?logoWidth=1" title="印度逮捕一中国间谍 涉上亿美元诈骗  " alt="印度逮捕一中国间谍 涉上亿美元诈骗  "></a></p>
-<p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/13/n12328407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被踢出美元体系？中共惧怕美国金融核打击   >-009fcc?logoWidth=1" title="被踢出美元体系？中共惧怕美国金融核打击  " alt="被踢出美元体系？中共惧怕美国金融核打击  "></a></p>
-<p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/13/n12328530.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒高调唱“丰收”事实打脸 粮食危机逼近  >-009fcc?logoWidth=1" title="党媒高调唱“丰收”事实打脸 粮食危机逼近  " alt="党媒高调唱“丰收”事实打脸 粮食危机逼近  "></a></p>
-<p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/11/n12322176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中领馆操控CSSA 长臂威胁世界      >-009fcc?logoWidth=1" title="中领馆操控CSSA 长臂威胁世界  " alt="中领馆操控CSSA 长臂威胁世界  "></a></p>
-<p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/13/n12328353.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视谴责“大胃王吃播” 与粮食危机有关？  >-009fcc?logoWidth=1" title="央视谴责“大胃王吃播” 与粮食危机有关？  " alt="央视谴责“大胃王吃播” 与粮食危机有关？  "></a></p>
-<p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/13/n12328277.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共想经济国内大循环  外媒：3大困难   >-009fcc?logoWidth=1" title="中共想经济国内大循环  外媒：3大困难  " alt="中共想经济国内大循环  外媒：3大困难  "></a></p>
-<p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/13/n12327734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美令港货标“中国制” 分析：后续影响更严重 >-009fcc?logoWidth=1" title="美令港货标“中国制” 分析：后续影响更严重  " alt="美令港货标“中国制” 分析：后续影响更严重  "></a></p>
-<p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/13/n12328720.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/再释求和信号？ 中共副外长称愿与美国谈判  >-009fcc?logoWidth=1" title="再释求和信号？ 中共副外长称愿与美国谈判  " alt="再释求和信号？ 中共副外长称愿与美国谈判  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/13/a102917026.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传央视董卿、欧阳夏丹被中纪委带走 涉孙力军丑>-009fcc?logoWidth=1" title="传央视董卿、欧阳夏丹被中纪委带走 涉孙力军丑闻  " alt="传央视董卿、欧阳夏丹被中纪委带走 涉孙力军丑闻  "></a></p>
-<p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/13/n12328720.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/再释“求和”信号？ 中共副外长称愿随时与美国>-009fcc?logoWidth=1" title="再释“求和”信号？ 中共副外长称愿随时与美国谈判  " alt="再释“求和”信号？ 中共副外长称愿随时与美国谈判  "></a></p>
-<p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/13/a102917529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普:在中共治下 香港市场将“堕入地狱”  >-009fcc?logoWidth=1" title="川普:在中共治下 香港市场将“堕入地狱”  " alt="川普:在中共治下 香港市场将“堕入地狱”  "></a></p>
-<p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/13/n12328727.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吃剩烤肉再上桌获赞节俭 地沟油要正名？   >-009fcc?logoWidth=1" title="吃剩烤肉再上桌获赞节俭 地沟油要正名？  " alt="吃剩烤肉再上桌获赞节俭 地沟油要正名？  "></a></p>
-<p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/13/n12328850.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/忧美国制裁 港警互助会转移资产至中资银行  >-009fcc?logoWidth=1" title="忧美国制裁 港警互助会转移资产至中资银行  " alt="忧美国制裁 港警互助会转移资产至中资银行  "></a></p>
-<p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/13/a102917096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习下令南海避战 华为芯片将“绝代”     >-009fcc?logoWidth=1" title="习下令南海避战 华为芯片将“绝代”  " alt="习下令南海避战 华为芯片将“绝代”  "></a></p>
-<p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/12/a102916695.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视主播让“14亿”分担困难惹恼网民 影片被>-009fcc?logoWidth=1" title="央视主播让“14亿”分担困难惹恼网民 影片被下架  " alt="央视主播让“14亿”分担困难惹恼网民 影片被下架  "></a></p>
-<p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/13/n12328506.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美助理司法部长：FBI早就盯上休斯顿中领馆 >-009fcc?logoWidth=1" title="美助理司法部长：FBI早就盯上休斯顿中领馆  " alt="美助理司法部长：FBI早就盯上休斯顿中领馆  "></a></p>
-<p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/13/n12328807.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/没有微笑权利？美国媒体病了         >-009fcc?logoWidth=1" title="没有微笑权利？美国媒体病了  " alt="没有微笑权利？美国媒体病了  "></a></p>
-<p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/13/a102916925.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥捷克发表演讲：推倒铁幕 团结反共   >-009fcc?logoWidth=1" title="蓬佩奥捷克发表演讲：推倒铁幕 团结反共  " alt="蓬佩奥捷克发表演讲：推倒铁幕 团结反共  "></a></p>
-<p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/13/a102917540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/各地暴雨持续 长江第4号洪水即将形成    >-009fcc?logoWidth=1" title="各地暴雨持续 长江第4号洪水即将形成  " alt="各地暴雨持续 长江第4号洪水即将形成  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +462,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/atwnuw392/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/atwnuw392/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/atwnuw392/www/blob/master/README.md?t#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/atwnuw392/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/atwnuw392/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/atwnuw392/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/atwnuw392/www/blob/master/README.md?f#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/atwnuw392/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/yiiii">git.io/yiiii</a></div>
+<div align="center">短网址: <a href="https://git.io/mxxxx">git.io/mxxxx</a></div>
 
