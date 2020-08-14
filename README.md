@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rltkmf317/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rltkmf317/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mhhhh">git.io/mhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/iaa">x.co/iaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ebbbb">git.io/ebbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3222">x.co/3222</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/14/a102917745.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/指中共故意释放病毒 阎丽梦列出三关键点   >-009fcc?logoWidth=1" title="指中共故意释放病毒 阎丽梦列出三关键点  " alt="指中共故意释放病毒 阎丽梦列出三关键点  "></a></p>
 <p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/14/a102917715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家曝美针对中共3大招 刀刀要命      >-009fcc?logoWidth=1" title="专家曝美针对中共3大招 刀刀要命  " alt="专家曝美针对中共3大招 刀刀要命  "></a></p>
 <p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/14/a102917679.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曝美拟冻结中共官员10万亿海外资产 江家超万>-009fcc?logoWidth=1" title="曝美拟冻结中共官员10万亿海外资产 江家超万亿  " alt="曝美拟冻结中共官员10万亿海外资产 江家超万亿  "></a></p>
 <p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/14/a102917671.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第一个因疫情“亡国”！赫特河公国宣布解散  >-009fcc?logoWidth=1" title="第一个因疫情“亡国”！赫特河公国宣布解散  " alt="第一个因疫情“亡国”！赫特河公国宣布解散  "></a></p>
 <p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/13/a102917476.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元入院病例图片流出 疑中毒失去意识   >-009fcc?logoWidth=1" title="崔永元入院病例图片流出 疑中毒失去意识  " alt="崔永元入院病例图片流出 疑中毒失去意识  "></a></p>
 <p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/13/a102917298.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/饭量大也有罪？习近平一声令下 泄中国粮荒危机>-009fcc?logoWidth=1" title="饭量大也有罪？习近平一声令下 泄中国粮荒危机  " alt="饭量大也有罪？习近平一声令下 泄中国粮荒危机  "></a></p>
-<p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/13/a102917242.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港警怕美制裁 紧急转移上百亿资产      >-009fcc?logoWidth=1" title="港警怕美制裁 紧急转移上百亿资产  " alt="港警怕美制裁 紧急转移上百亿资产  "></a></p>
+<p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/14/a102917737.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为什么要杀香港这只“下金蛋的鹅”？   >-009fcc?logoWidth=1" title="中共为什么要杀香港这只“下金蛋的鹅”？  " alt="中共为什么要杀香港这只“下金蛋的鹅”？  "></a></p>
 <p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/14/a102917700.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/徐家健：国际资金撤港 中概股何去何从    >-009fcc?logoWidth=1" title="徐家健：国际资金撤港 中概股何去何从  " alt="徐家健：国际资金撤港 中概股何去何从  "></a></p>
 <p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/13/a102917544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共拟将TikTok微信纳入贸易谈判 川普>-009fcc?logoWidth=1" title="传中共拟将TikTok微信纳入贸易谈判 川普态度冷淡  " alt="传中共拟将TikTok微信纳入贸易谈判 川普态度冷淡  "></a></p>
 <p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/14/a102917664.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港中资银行配合美国制裁          >-009fcc?logoWidth=1" title="香港中资银行配合美国制裁  " alt="香港中资银行配合美国制裁  "></a></p>
 <p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/10/a102915239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谋财害命？大陆连现假疫苗网上售卖（组图）  >-009fcc?logoWidth=1" title="谋财害命？大陆连现假疫苗网上售卖（组图）  " alt="谋财害命？大陆连现假疫苗网上售卖（组图）  "></a></p>
-<p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/13/a102917606.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共少收1000万吨夏粮 百姓少个菜    >-009fcc?logoWidth=1" title="中共少收1000万吨夏粮 百姓少个菜  " alt="中共少收1000万吨夏粮 百姓少个菜  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rltkmf317/djy/blob/master/gb/20/8/14/n12329534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：洪灾触目惊心 北戴河会议没完没了   >-009fcc?logoWidth=1" title="钟原：洪灾触目惊心 北戴河会议没完没了  " alt="钟原：洪灾触目惊心 北戴河会议没完没了  "></a></p>
 <p><a href="https://github.com/rltkmf317/djy/blob/master/gb/20/8/13/n12328996.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美净网联盟扩大 习开倒车军队异象      >-009fcc?logoWidth=1" title="美净网联盟扩大 习开倒车军队异象  " alt="美净网联盟扩大 习开倒车军队异象  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rltkmf317/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rltkmf317/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rltkmf317/www/blob/master/README.md?n#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/rltkmf317/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rltkmf317/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rltkmf317/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rltkmf317/www/blob/master/README.md?k#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/rltkmf317/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mhhhh">git.io/mhhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/ebbbb">git.io/ebbbb</a></div>
 
