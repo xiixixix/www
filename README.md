@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/alniap312/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/alniap312/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/x5555">git.io/x5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/afa">x.co/afa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pnnnn">git.io/pnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ndd">x.co/ndd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102917737.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为什么要杀香港这只“下金蛋的鹅”？   >-009fcc?logoWidth=1" title="中共为什么要杀香港这只“下金蛋的鹅”？  " alt="中共为什么要杀香港这只“下金蛋的鹅”？  "></a></p>
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102917715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台专家分析若美国使出3大招 将会要中共命  >-009fcc?logoWidth=1" title="台专家分析若美国使出3大招 将会要中共命  " alt="台专家分析若美国使出3大招 将会要中共命  "></a></p>
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102917679.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟冻结中共官员10万亿海外资产 江家超万亿>-009fcc?logoWidth=1" title="美拟冻结中共官员10万亿海外资产 江家超万亿  " alt="美拟冻结中共官员10万亿海外资产 江家超万亿  "></a></p>
+<p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102918076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/烤出“神奇饼干” 唐氏宝宝创立烘焙公司当CE>-009fcc?logoWidth=1" title="烤出“神奇饼干” 唐氏宝宝创立烘焙公司当CEO  " alt="烤出“神奇饼干” 唐氏宝宝创立烘焙公司当CEO  "></a></p>
+<p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102917999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河安保升级 访民前往遭拘        >-009fcc?logoWidth=1" title="北戴河安保升级 访民前往遭拘  " alt="北戴河安保升级 访民前往遭拘  "></a></p>
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/10/a102915239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谋财害命？大陆连现假疫苗网上售卖（组图）  >-009fcc?logoWidth=1" title="谋财害命？大陆连现假疫苗网上售卖（组图）  " alt="谋财害命？大陆连现假疫苗网上售卖（组图）  "></a></p>
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102918018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议精神？“怀念吃粮票”标语再现   >-009fcc?logoWidth=1" title="北戴河会议精神？“怀念吃粮票”标语再现  " alt="北戴河会议精神？“怀念吃粮票”标语再现  "></a></p>
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102917942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑为连接Wi--Fi 日货轮驶近陆地触礁漏油酿>-009fcc?logoWidth=1" title="疑为连接Wi-Fi 日货轮驶近陆地触礁漏油酿生态浩劫  " alt="疑为连接Wi-Fi 日货轮驶近陆地触礁漏油酿生态浩劫  "></a></p>
-<p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102917935.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平下令制止浪费 餐厅二手烤肉再上桌   >-009fcc?logoWidth=1" title="习近平下令制止浪费 餐厅二手烤肉再上桌  " alt="习近平下令制止浪费 餐厅二手烤肉再上桌  "></a></p>
-<p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102917860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江第4号洪水将过三峡 重庆水位一夜暴涨5米>-009fcc?logoWidth=1" title="长江第4号洪水将过三峡 重庆水位一夜暴涨5米  " alt="长江第4号洪水将过三峡 重庆水位一夜暴涨5米  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/13/n12328996.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美净网联盟扩大 习开倒车军队异象      >-009fcc?logoWidth=1" title="美净网联盟扩大 习开倒车军队异象  " alt="美净网联盟扩大 习开倒车军队异象  "></a></p>
 <p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/14/n12330425.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：中南海激烈对决 曾庆红悬了？    >-009fcc?logoWidth=1" title="李正宽：中南海激烈对决 曾庆红悬了？  " alt="李正宽：中南海激烈对决 曾庆红悬了？  "></a></p>
@@ -39,15 +39,17 @@
 <p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/14/n12329739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭美制裁 分析：中共高官将跳船       >-009fcc?logoWidth=1" title="遭美制裁 分析：中共高官将跳船  " alt="遭美制裁 分析：中共高官将跳船  "></a></p>
 <p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/13/n12328183.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/21年 中共制造法轮功冤案惨绝人寰     >-009fcc?logoWidth=1" title="21年 中共制造法轮功冤案惨绝人寰  " alt="21年 中共制造法轮功冤案惨绝人寰  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102917988.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习一尊的地位、连任三届的梦想，在北戴河会议上>-009fcc?logoWidth=1" title="习一尊的地位、连任三届的梦想，在北戴河会议上被妥协了？  " alt="习一尊的地位、连任三届的梦想，在北戴河会议上被妥协了？  "></a></p>
+<p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102917671.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第一个因疫情“亡国”！赫特河公国宣布解散  >-009fcc?logoWidth=1" title="第一个因疫情“亡国”！赫特河公国宣布解散  " alt="第一个因疫情“亡国”！赫特河公国宣布解散  "></a></p>
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102917648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/独家!中共内部“八点精神”/北戴河第三战场开>-009fcc?logoWidth=1" title="独家!中共内部“八点精神”/北戴河第三战场开火 “老同志”问责习近平  " alt="独家!中共内部“八点精神”/北戴河第三战场开火 “老同志”问责习近平  "></a></p>
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102917955.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/16岁男孩被美国主流媒体围攻，他做错了什么？>-009fcc?logoWidth=1" title="16岁男孩被美国主流媒体围攻，他做错了什么？假新闻是如何产生的？  " alt="16岁男孩被美国主流媒体围攻，他做错了什么？假新闻是如何产生的？  "></a></p>
 <p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/12/n12323934.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/腾讯党支部超7千党员名单曝光        >-009fcc?logoWidth=1" title="腾讯党支部超7千党员名单曝光  " alt="腾讯党支部超7千党员名单曝光  "></a></p>
 <p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/13/n12328277.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共想经济国内大循环  外媒：3大困难   >-009fcc?logoWidth=1" title="中共想经济国内大循环  外媒：3大困难  " alt="中共想经济国内大循环  外媒：3大困难  "></a></p>
+<p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102917860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江第4号洪水将过三峡 重庆水位一夜暴涨5米>-009fcc?logoWidth=1" title="长江第4号洪水将过三峡 重庆水位一夜暴涨5米  " alt="长江第4号洪水将过三峡 重庆水位一夜暴涨5米  "></a></p>
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102917762.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河传八项精神？备打仗备粮荒       >-009fcc?logoWidth=1" title="北戴河传八项精神？备打仗备粮荒  " alt="北戴河传八项精神？备打仗备粮荒  "></a></p>
 <p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/13/n12328407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被踢出美元体系？中共惧怕美国金融核打击   >-009fcc?logoWidth=1" title="被踢出美元体系？中共惧怕美国金融核打击  " alt="被踢出美元体系？中共惧怕美国金融核打击  "></a></p>
 <p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/13/n12329177.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传崔永元在北京家中昏迷 急送医院抢救   >-009fcc?logoWidth=1" title="网传崔永元在北京家中昏迷 急送医院抢救  " alt="网传崔永元在北京家中昏迷 急送医院抢救  "></a></p>
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/13/a102917432.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/可怜！美驻华使馆更换社媒图像 大陆政客看不懂>-009fcc?logoWidth=1" title="可怜！美驻华使馆更换社媒图像 大陆政客看不懂  " alt="可怜！美驻华使馆更换社媒图像 大陆政客看不懂  "></a></p>
+<p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102917935.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平下令制止浪费 餐厅二手烤肉再上桌   >-009fcc?logoWidth=1" title="习近平下令制止浪费 餐厅二手烤肉再上桌  " alt="习近平下令制止浪费 餐厅二手烤肉再上桌  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -485,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/alniap312/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/alniap312/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/alniap312/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/alniap312/www/blob/master/README.md?k#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/alniap312/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/alniap312/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/alniap312/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/alniap312/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/alniap312/www/blob/master/README.md?d#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/alniap312/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/x5555">git.io/x5555</a></div>
+<div align="center">短网址: <a href="https://git.io/pnnnn">git.io/pnnnn</a></div>
 
