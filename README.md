@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rltkmf317/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rltkmf317/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uyyyy">git.io/uyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j33">x.co/j33</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ppppp">git.io/ppppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j44">x.co/j44</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/14/a102918001.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平栗战书被打黑枪%3F/中共为啥要杀香港这只>-009fcc?logoWidth=1" title="习近平栗战书被打黑枪?/中共为啥要杀香港这只“下金蛋的鹅”？  " alt="习近平栗战书被打黑枪?/中共为啥要杀香港这只“下金蛋的鹅”？  "></a></p>
 <p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/14/a102917832.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平栗战书被打黑枪 敏感时刻谁在放料？  >-009fcc?logoWidth=1" title="习近平栗战书被打黑枪 敏感时刻谁在放料？  " alt="习近平栗战书被打黑枪 敏感时刻谁在放料？  "></a></p>
 <p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/14/a102917745.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/指中共故意释放病毒 闫丽梦列出三关键点   >-009fcc?logoWidth=1" title="指中共故意释放病毒 闫丽梦列出三关键点  " alt="指中共故意释放病毒 闫丽梦列出三关键点  "></a></p>
 <p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/14/a102917737.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为什么要杀香港这只“下金蛋的鹅”？   >-009fcc?logoWidth=1" title="中共为什么要杀香港这只“下金蛋的鹅”？  " alt="中共为什么要杀香港这只“下金蛋的鹅”？  "></a></p>
 <p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/14/a102917715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台专家分析若美国使出3大招 对中共最要命  >-009fcc?logoWidth=1" title="台专家分析若美国使出3大招 对中共最要命  " alt="台专家分析若美国使出3大招 对中共最要命  "></a></p>
 <p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/14/a102917679.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟冻结中共官员10万亿海外资产 江家超万亿>-009fcc?logoWidth=1" title="美拟冻结中共官员10万亿海外资产 江家超万亿  " alt="美拟冻结中共官员10万亿海外资产 江家超万亿  "></a></p>
-<p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/14/a102917671.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第一个因疫情“亡国”！赫特河公国宣布解散  >-009fcc?logoWidth=1" title="第一个因疫情“亡国”！赫特河公国宣布解散  " alt="第一个因疫情“亡国”！赫特河公国宣布解散  "></a></p>
+<p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/14/a102918018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议精神？“怀念吃粮票”标语再现   >-009fcc?logoWidth=1" title="北戴河会议精神？“怀念吃粮票”标语再现  " alt="北戴河会议精神？“怀念吃粮票”标语再现  "></a></p>
 <p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/14/a102917942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑为连接Wi--Fi 日货轮驶近陆地触礁漏油酿>-009fcc?logoWidth=1" title="疑为连接Wi-Fi 日货轮驶近陆地触礁漏油酿生态浩劫  " alt="疑为连接Wi-Fi 日货轮驶近陆地触礁漏油酿生态浩劫  "></a></p>
 <p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/14/a102917935.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平下令制止浪费 餐厅二手烤肉再上桌   >-009fcc?logoWidth=1" title="习近平下令制止浪费 餐厅二手烤肉再上桌  " alt="习近平下令制止浪费 餐厅二手烤肉再上桌  "></a></p>
 <p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/14/a102917934.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/腾讯“姓党”设200多个党支部 上万名党员 >-009fcc?logoWidth=1" title="腾讯“姓党”设200多个党支部 上万名党员  " alt="腾讯“姓党”设200多个党支部 上万名党员  "></a></p>
 <p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/14/a102917860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江第4号洪水将过三峡 重庆水位一夜暴涨5米>-009fcc?logoWidth=1" title="长江第4号洪水将过三峡 重庆水位一夜暴涨5米  " alt="长江第4号洪水将过三峡 重庆水位一夜暴涨5米  "></a></p>
-<p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/14/a102917794.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/首次回应黎智英被捕 川普：是一件可怕事情  >-009fcc?logoWidth=1" title="首次回应黎智英被捕 川普：是一件可怕事情  " alt="首次回应黎智英被捕 川普：是一件可怕事情  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rltkmf317/djy/blob/master/gb/20/8/14/n12329534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：洪灾触目惊心 北戴河会议没完没了   >-009fcc?logoWidth=1" title="钟原：洪灾触目惊心 北戴河会议没完没了  " alt="钟原：洪灾触目惊心 北戴河会议没完没了  "></a></p>
 <p><a href="https://github.com/rltkmf317/djy/blob/master/gb/20/8/13/n12328996.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美净网联盟扩大 习开倒车军队异象      >-009fcc?logoWidth=1" title="美净网联盟扩大 习开倒车军队异象  " alt="美净网联盟扩大 习开倒车军队异象  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/rltkmf317/djy/blob/master/gb/20/8/14/n12329739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭美制裁 分析：中共高官将跳船       >-009fcc?logoWidth=1" title="遭美制裁 分析：中共高官将跳船  " alt="遭美制裁 分析：中共高官将跳船  "></a></p>
 <p><a href="https://github.com/rltkmf317/djy/blob/master/gb/20/8/13/n12328277.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共想经济国内大循环  外媒：3大困难   >-009fcc?logoWidth=1" title="中共想经济国内大循环  外媒：3大困难  " alt="中共想经济国内大循环  外媒：3大困难  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/14/a102917671.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第一个因疫情“亡国”！赫特河公国宣布解散  >-009fcc?logoWidth=1" title="第一个因疫情“亡国”！赫特河公国宣布解散  " alt="第一个因疫情“亡国”！赫特河公国宣布解散  "></a></p>
 <p><a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/2020/08/14/a102917762.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河传八项精神？备打仗备粮荒       >-009fcc?logoWidth=1" title="北戴河传八项精神？备打仗备粮荒  " alt="北戴河传八项精神？备打仗备粮荒  "></a></p>
 <p><a href="https://github.com/rltkmf317/djy/blob/master/gb/20/8/14/n12329835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赖小民贪腐金额巨大 分析：或面临死刑    >-009fcc?logoWidth=1" title="赖小民贪腐金额巨大 分析：或面临死刑  " alt="赖小民贪腐金额巨大 分析：或面临死刑  "></a></p>
 <p><a href="https://github.com/rltkmf317/djy/blob/master/gb/20/8/13/n12328720.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/再释“求和”信号？ 中共副外长称愿随时与美国>-009fcc?logoWidth=1" title="再释“求和”信号？ 中共副外长称愿随时与美国谈判  " alt="再释“求和”信号？ 中共副外长称愿随时与美国谈判  "></a></p>
@@ -485,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rltkmf317/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rltkmf317/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rltkmf317/www/blob/master/README.md?a#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/rltkmf317/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rltkmf317/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rltkmf317/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rltkmf317/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rltkmf317/www/blob/master/README.md?q#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/rltkmf317/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/uyyyy">git.io/uyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/ppppp">git.io/ppppp</a></div>
 
