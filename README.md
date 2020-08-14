@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/alniap312/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/alniap312/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/syyyy">git.io/syyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aae">x.co/aae</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pbbbb">git.io/pbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2229">x.co/2229</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -30,17 +30,16 @@
 <p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/14/n12330425.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：中南海激烈对决 曾庆红悬了？    >-009fcc?logoWidth=1" title="李正宽：中南海激烈对决 曾庆红悬了？  " alt="李正宽：中南海激烈对决 曾庆红悬了？  "></a></p>
 <p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/13/n12329037.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：“北京还未看到美国真正行动”透信息 >-009fcc?logoWidth=1" title="周晓辉：“北京还未看到美国真正行动”透信息  " alt="周晓辉：“北京还未看到美国真正行动”透信息  "></a></p>
 <p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/14/n12329534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：洪灾触目惊心 北戴河会议没完没了   >-009fcc?logoWidth=1" title="钟原：洪灾触目惊心 北戴河会议没完没了  " alt="钟原：洪灾触目惊心 北戴河会议没完没了  "></a></p>
-<p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/14/n12329835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赖小民贪腐金额巨大 分析：或面临死刑    >-009fcc?logoWidth=1" title="赖小民贪腐金额巨大 分析：或面临死刑  " alt="赖小民贪腐金额巨大 分析：或面临死刑  "></a></p>
-<p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/14/n12329716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传北戴河八精神？备打仗备粮荒        >-009fcc?logoWidth=1" title="传北戴河八精神？备打仗备粮荒  " alt="传北戴河八精神？备打仗备粮荒  "></a></p>
+<p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/14/n12330347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共公布数字人民币试点地区 隐私问题受关注 >-009fcc?logoWidth=1" title="中共公布数字人民币试点地区 隐私问题受关注  " alt="中共公布数字人民币试点地区 隐私问题受关注  "></a></p>
+<p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/14/n12329716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河传八精神？备打仗备粮荒        >-009fcc?logoWidth=1" title="北戴河传八精神？备打仗备粮荒  " alt="北戴河传八精神？备打仗备粮荒  "></a></p>
 <p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/13/n12329022.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：爆料中共常委贪腐 为何缺韩正     >-009fcc?logoWidth=1" title="杨威：爆料中共常委贪腐 为何缺韩正  " alt="杨威：爆料中共常委贪腐 为何缺韩正  "></a></p>
 <p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/11/n12322176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中领馆操控CSSA 长臂威胁世界      >-009fcc?logoWidth=1" title="中领馆操控CSSA 长臂威胁世界  " alt="中领馆操控CSSA 长臂威胁世界  "></a></p>
 <p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/14/n12329635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：美国制裁中共高官 江泽民等寝食难安 >-009fcc?logoWidth=1" title="王友群：美国制裁中共高官 江泽民等寝食难安  " alt="王友群：美国制裁中共高官 江泽民等寝食难安  "></a></p>
 <p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/14/n12329504.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/答大纪元记者问 川普批香港侵犯新闻自由   >-009fcc?logoWidth=1" title="答大纪元记者问 川普批香港侵犯新闻自由  " alt="答大纪元记者问 川普批香港侵犯新闻自由  "></a></p>
 <p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/14/n12329739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭美制裁 分析：中共高官将跳船       >-009fcc?logoWidth=1" title="遭美制裁 分析：中共高官将跳船  " alt="遭美制裁 分析：中共高官将跳船  "></a></p>
-<p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/14/n12330347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共公布数字人民币试点地区 隐私问题受关注 >-009fcc?logoWidth=1" title="中共公布数字人民币试点地区 隐私问题受关注  " alt="中共公布数字人民币试点地区 隐私问题受关注  "></a></p>
+<p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/13/n12328183.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/21年 中共制造法轮功冤案惨绝人寰     >-009fcc?logoWidth=1" title="21年 中共制造法轮功冤案惨绝人寰  " alt="21年 中共制造法轮功冤案惨绝人寰  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102917988.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习一尊的地位、连任三届的梦想，在北戴河会议上>-009fcc?logoWidth=1" title="习一尊的地位、连任三届的梦想，在北戴河会议上被妥协了？  " alt="习一尊的地位、连任三届的梦想，在北戴河会议上被妥协了？  "></a></p>
-<p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/13/n12328183.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/21年 中共制造法轮功冤案惨绝人寰     >-009fcc?logoWidth=1" title="21年 中共制造法轮功冤案惨绝人寰  " alt="21年 中共制造法轮功冤案惨绝人寰  "></a></p>
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102917648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/独家!中共内部“八点精神”/北戴河第三战场开>-009fcc?logoWidth=1" title="独家!中共内部“八点精神”/北戴河第三战场开火 “老同志”问责习近平  " alt="独家!中共内部“八点精神”/北戴河第三战场开火 “老同志”问责习近平  "></a></p>
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102917955.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/16岁男孩被美国主流媒体围攻，他做错了什么？>-009fcc?logoWidth=1" title="16岁男孩被美国主流媒体围攻，他做错了什么？假新闻是如何产生的？  " alt="16岁男孩被美国主流媒体围攻，他做错了什么？假新闻是如何产生的？  "></a></p>
 <p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/12/n12323934.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/腾讯党支部超7千党员名单曝光        >-009fcc?logoWidth=1" title="腾讯党支部超7千党员名单曝光  " alt="腾讯党支部超7千党员名单曝光  "></a></p>
@@ -486,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/alniap312/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/alniap312/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/alniap312/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/alniap312/www/blob/master/README.md?p#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/alniap312/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/alniap312/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/alniap312/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/alniap312/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/alniap312/www/blob/master/README.md?i#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/alniap312/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/syyyy">git.io/syyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/pbbbb">git.io/pbbbb</a></div>
 
