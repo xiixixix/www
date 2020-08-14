@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/alniap312/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/alniap312/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/x9999">git.io/x9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa5">x.co/aa5</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iffff">git.io/iffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2228">x.co/2228</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,9 +21,9 @@
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102917715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台专家分析若美国使出3大招 将会要中共命  >-009fcc?logoWidth=1" title="台专家分析若美国使出3大招 将会要中共命  " alt="台专家分析若美国使出3大招 将会要中共命  "></a></p>
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102917679.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟冻结中共官员10万亿海外资产 江家超万亿>-009fcc?logoWidth=1" title="美拟冻结中共官员10万亿海外资产 江家超万亿  " alt="美拟冻结中共官员10万亿海外资产 江家超万亿  "></a></p>
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102918322.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国金融业不良贷款激增 催债公司如雨后春笋冒>-009fcc?logoWidth=1" title="中国金融业不良贷款激增 催债公司如雨后春笋冒出  " alt="中国金融业不良贷款激增 催债公司如雨后春笋冒出  "></a></p>
+<p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102918297.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情期间新骗术 年长者最易上当       >-009fcc?logoWidth=1" title="疫情期间新骗术 年长者最易上当  " alt="疫情期间新骗术 年长者最易上当  "></a></p>
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102918124.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“自愿被窃数据” 美司法部高官剖析TikTo>-009fcc?logoWidth=1" title="“自愿被窃数据” 美司法部高官剖析TikTok安全威胁  " alt="“自愿被窃数据” 美司法部高官剖析TikTok安全威胁  "></a></p>
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102918273.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美司法部：耶鲁招生歧视亚裔和白人 不改将被起>-009fcc?logoWidth=1" title="美司法部：耶鲁招生歧视亚裔和白人 不改将被起诉  " alt="美司法部：耶鲁招生歧视亚裔和白人 不改将被起诉  "></a></p>
-<p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102918274.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美对孔子学院宣战 中共挂“免战牌”     >-009fcc?logoWidth=1" title="美对孔子学院宣战 中共挂“免战牌”  " alt="美对孔子学院宣战 中共挂“免战牌”  "></a></p>
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102918260.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加国会香港听证 人权组织促紧急救港     >-009fcc?logoWidth=1" title="加国会香港听证 人权组织促紧急救港  " alt="加国会香港听证 人权组织促紧急救港  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/14/n12329605.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共9大威胁 利用网红当外宣？       >-009fcc?logoWidth=1" title="中共9大威胁 利用网红当外宣？  " alt="中共9大威胁 利用网红当外宣？  "></a></p>
@@ -35,10 +35,11 @@
 <p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/14/n12329716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河传八精神？备打仗备粮荒        >-009fcc?logoWidth=1" title="北戴河传八精神？备打仗备粮荒  " alt="北戴河传八精神？备打仗备粮荒  "></a></p>
 <p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/11/n12322176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中领馆操控CSSA 长臂威胁世界      >-009fcc?logoWidth=1" title="中领馆操控CSSA 长臂威胁世界  " alt="中领馆操控CSSA 长臂威胁世界  "></a></p>
 <p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/14/n12329635.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：美国制裁中共高官 江泽民等寝食难安 >-009fcc?logoWidth=1" title="王友群：美国制裁中共高官 江泽民等寝食难安  " alt="王友群：美国制裁中共高官 江泽民等寝食难安  "></a></p>
+<p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/14/n12331589.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习王读物《法国大革命反思录》等书被下架   >-009fcc?logoWidth=1" title="习王读物《法国大革命反思录》等书被下架  " alt="习王读物《法国大革命反思录》等书被下架  "></a></p>
 <p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/13/n12329037.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：“北京还未看到美国真正行动”透信息 >-009fcc?logoWidth=1" title="周晓辉：“北京还未看到美国真正行动”透信息  " alt="周晓辉：“北京还未看到美国真正行动”透信息  "></a></p>
 <p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/14/n12329534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：洪灾触目惊心 北戴河会议没完没了   >-009fcc?logoWidth=1" title="钟原：洪灾触目惊心 北戴河会议没完没了  " alt="钟原：洪灾触目惊心 北戴河会议没完没了  "></a></p>
-<p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/14/n12329504.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/答大纪元记者问 川普批香港侵犯新闻自由   >-009fcc?logoWidth=1" title="答大纪元记者问 川普批香港侵犯新闻自由  " alt="答大纪元记者问 川普批香港侵犯新闻自由  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/14/n12329504.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/答大纪元记者问 川普批香港侵犯新闻自由   >-009fcc?logoWidth=1" title="答大纪元记者问 川普批香港侵犯新闻自由  " alt="答大纪元记者问 川普批香港侵犯新闻自由  "></a></p>
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102917988.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习一尊的地位、连任三届的梦想，在北戴河会议上>-009fcc?logoWidth=1" title="习一尊的地位、连任三届的梦想，在北戴河会议上被妥协了？  " alt="习一尊的地位、连任三届的梦想，在北戴河会议上被妥协了？  "></a></p>
 <p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/14/n12329739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭美制裁 分析：中共高官将跳船       >-009fcc?logoWidth=1" title="遭美制裁 分析：中共高官将跳船  " alt="遭美制裁 分析：中共高官将跳船  "></a></p>
 <p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/13/n12328183.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/21年 中共制造法轮功冤案惨绝人寰     >-009fcc?logoWidth=1" title="21年 中共制造法轮功冤案惨绝人寰  " alt="21年 中共制造法轮功冤案惨绝人寰  "></a></p>
@@ -487,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/alniap312/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/alniap312/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/alniap312/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/alniap312/www/blob/master/README.md?x#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/alniap312/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/alniap312/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/alniap312/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/alniap312/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/alniap312/www/blob/master/README.md?p#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/alniap312/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/x9999">git.io/x9999</a></div>
+<div align="center">短网址: <a href="https://git.io/iffff">git.io/iffff</a></div>
 
