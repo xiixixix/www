@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/atwnuw392/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/atwnuw392/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a5555">git.io/a5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2888">x.co/2888</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f5555">git.io/f5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2226">x.co/2226</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,16 +40,16 @@
 <p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/13/n12328720.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/再释求和信号？ 中共副外长称愿与美国谈判  >-009fcc?logoWidth=1" title="再释求和信号？ 中共副外长称愿与美国谈判  " alt="再释求和信号？ 中共副外长称愿与美国谈判  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/13/a102916887.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平、栗战书、汪洋亲属在港近4亿豪宅被曝光>-009fcc?logoWidth=1" title="习近平、栗战书、汪洋亲属在港近4亿豪宅被曝光  " alt="习近平、栗战书、汪洋亲属在港近4亿豪宅被曝光  "></a></p>
-<p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/13/a102917590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重回粮食管控时代？中共将立法“制止餐饮浪费”>-009fcc?logoWidth=1" title="重回粮食管控时代？中共将立法“制止餐饮浪费”  " alt="重回粮食管控时代？中共将立法“制止餐饮浪费”  "></a></p>
 <p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/13/n12328720.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/再释“求和”信号？ 中共副外长称愿随时与美国>-009fcc?logoWidth=1" title="再释“求和”信号？ 中共副外长称愿随时与美国谈判  " alt="再释“求和”信号？ 中共副外长称愿随时与美国谈判  "></a></p>
-<p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/13/a102917529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普:在中共治下 香港市场将“堕入地狱”  >-009fcc?logoWidth=1" title="川普:在中共治下 香港市场将“堕入地狱”  " alt="川普:在中共治下 香港市场将“堕入地狱”  "></a></p>
+<p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/13/a102917529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普:在中共治下 香港市场将“坠入地狱”  >-009fcc?logoWidth=1" title="川普:在中共治下 香港市场将“坠入地狱”  " alt="川普:在中共治下 香港市场将“坠入地狱”  "></a></p>
+<p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/13/a102917026.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传央视董卿、欧阳夏丹被中纪委带走 涉孙力军丑>-009fcc?logoWidth=1" title="传央视董卿、欧阳夏丹被中纪委带走 涉孙力军丑闻  " alt="传央视董卿、欧阳夏丹被中纪委带走 涉孙力军丑闻  "></a></p>
 <p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/13/n12328727.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吃剩烤肉再上桌获赞节俭 地沟油要正名？   >-009fcc?logoWidth=1" title="吃剩烤肉再上桌获赞节俭 地沟油要正名？  " alt="吃剩烤肉再上桌获赞节俭 地沟油要正名？  "></a></p>
 <p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/13/n12328850.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/忧美国制裁 港警互助会转移资产至中资银行  >-009fcc?logoWidth=1" title="忧美国制裁 港警互助会转移资产至中资银行  " alt="忧美国制裁 港警互助会转移资产至中资银行  "></a></p>
-<p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/13/a102917026.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传央视董卿、欧阳夏丹被中纪委带走 涉孙力军丑>-009fcc?logoWidth=1" title="传央视董卿、欧阳夏丹被中纪委带走 涉孙力军丑闻  " alt="传央视董卿、欧阳夏丹被中纪委带走 涉孙力军丑闻  "></a></p>
-<p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/13/n12328506.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美助理司法部长：FBI早就盯上休斯顿中领馆 >-009fcc?logoWidth=1" title="美助理司法部长：FBI早就盯上休斯顿中领馆  " alt="美助理司法部长：FBI早就盯上休斯顿中领馆  "></a></p>
-<p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/13/n12328807.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/没有微笑权利？美国媒体病了         >-009fcc?logoWidth=1" title="没有微笑权利？美国媒体病了  " alt="没有微笑权利？美国媒体病了  "></a></p>
 <p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/13/a102917096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习下令南海避战 华为芯片将“绝代”     >-009fcc?logoWidth=1" title="习下令南海避战 华为芯片将“绝代”  " alt="习下令南海避战 华为芯片将“绝代”  "></a></p>
 <p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/13/a102917540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/各地暴雨持续 长江第4号洪水即将形成    >-009fcc?logoWidth=1" title="各地暴雨持续 长江第4号洪水即将形成  " alt="各地暴雨持续 长江第4号洪水即将形成  "></a></p>
+<p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/13/n12328506.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美助理司法部长：FBI早就盯上休斯顿中领馆 >-009fcc?logoWidth=1" title="美助理司法部长：FBI早就盯上休斯顿中领馆  " alt="美助理司法部长：FBI早就盯上休斯顿中领馆  "></a></p>
+<p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/13/n12328807.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/没有微笑权利？美国媒体病了         >-009fcc?logoWidth=1" title="没有微笑权利？美国媒体病了  " alt="没有微笑权利？美国媒体病了  "></a></p>
+<p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/13/a102917590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重回粮食管控时代？中共将立法“制止餐饮浪费”>-009fcc?logoWidth=1" title="重回粮食管控时代？中共将立法“制止餐饮浪费”  " alt="重回粮食管控时代？中共将立法“制止餐饮浪费”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/atwnuw392/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/atwnuw392/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/atwnuw392/www/blob/master/README.md?x#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/atwnuw392/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/atwnuw392/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/atwnuw392/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/atwnuw392/www/blob/master/README.md?h#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/atwnuw392/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/a5555">git.io/a5555</a></div>
+<div align="center">短网址: <a href="https://git.io/f5555">git.io/f5555</a></div>
 
