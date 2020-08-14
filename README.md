@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/alniap312/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/alniap312/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ubbbb">git.io/ubbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppz">x.co/ppz</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ggggggg">git.io/ggggggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/edd">x.co/edd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,13 @@
 <p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/14/n12329534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：洪灾触目惊心 北戴河会议没完没了   >-009fcc?logoWidth=1" title="钟原：洪灾触目惊心 北戴河会议没完没了  " alt="钟原：洪灾触目惊心 北戴河会议没完没了  "></a></p>
 <p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/14/n12330929.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/缺钱了？疫情过后 北京颁令禁止小产权房   >-009fcc?logoWidth=1" title="缺钱了？疫情过后 北京颁令禁止小产权房  " alt="缺钱了？疫情过后 北京颁令禁止小产权房  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/14/n12329504.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/答大纪元记者问 川普批香港侵犯新闻自由   >-009fcc?logoWidth=1" title="答大纪元记者问 川普批香港侵犯新闻自由  " alt="答大纪元记者问 川普批香港侵犯新闻自由  "></a></p>
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102917988.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习一尊的地位、连任三届的梦想，在北戴河会议上>-009fcc?logoWidth=1" title="习一尊的地位、连任三届的梦想，在北戴河会议上被妥协了？  " alt="习一尊的地位、连任三届的梦想，在北戴河会议上被妥协了？  "></a></p>
-<p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/14/n12329739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭美制裁 分析：中共高官将跳船       >-009fcc?logoWidth=1" title="遭美制裁 分析：中共高官将跳船  " alt="遭美制裁 分析：中共高官将跳船  "></a></p>
-<p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/13/n12328183.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/21年 中共制造法轮功冤案惨绝人寰     >-009fcc?logoWidth=1" title="21年 中共制造法轮功冤案惨绝人寰  " alt="21年 中共制造法轮功冤案惨绝人寰  "></a></p>
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/13/a102917476.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元入院病例图片流出 疑中毒失去意识   >-009fcc?logoWidth=1" title="崔永元入院病例图片流出 疑中毒失去意识  " alt="崔永元入院病例图片流出 疑中毒失去意识  "></a></p>
-<p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/12/n12323934.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/腾讯党支部超7千党员名单曝光        >-009fcc?logoWidth=1" title="腾讯党支部超7千党员名单曝光  " alt="腾讯党支部超7千党员名单曝光  "></a></p>
-<p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/13/n12328277.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共想经济国内大循环  外媒：3大困难   >-009fcc?logoWidth=1" title="中共想经济国内大循环  外媒：3大困难  " alt="中共想经济国内大循环  外媒：3大困难  "></a></p>
+<p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/14/n12329504.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/答大纪元记者问 川普批香港侵犯新闻自由   >-009fcc?logoWidth=1" title="答大纪元记者问 川普批香港侵犯新闻自由  " alt="答大纪元记者问 川普批香港侵犯新闻自由  "></a></p>
+<p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/13/n12329022.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：爆料中共常委贪腐 为何缺韩正     >-009fcc?logoWidth=1" title="杨威：爆料中共常委贪腐 为何缺韩正  " alt="杨威：爆料中共常委贪腐 为何缺韩正  "></a></p>
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102917671.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第一个因疫情“亡国”！赫特河公国宣布解散  >-009fcc?logoWidth=1" title="第一个因疫情“亡国”！赫特河公国宣布解散  " alt="第一个因疫情“亡国”！赫特河公国宣布解散  "></a></p>
-<p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/13/n12328407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被踢出美元体系？中共惧怕美国金融核打击   >-009fcc?logoWidth=1" title="被踢出美元体系？中共惧怕美国金融核打击  " alt="被踢出美元体系？中共惧怕美国金融核打击  "></a></p>
-<p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/13/n12329177.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传崔永元在北京家中昏迷 急送医院抢救   >-009fcc?logoWidth=1" title="网传崔永元在北京家中昏迷 急送医院抢救  " alt="网传崔永元在北京家中昏迷 急送医院抢救  "></a></p>
+<p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/14/n12331816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张召忠指导公众号改名“战忽局” 引热议   >-009fcc?logoWidth=1" title="张召忠指导公众号改名“战忽局” 引热议  " alt="张召忠指导公众号改名“战忽局” 引热议  "></a></p>
+<p><a href="https://github.com/alniap312/djy/blob/master/gb/20/8/13/n12329037.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会议员警告中共高官：北京还未看到美国的真>-009fcc?logoWidth=1" title="美国会议员警告中共高官：北京还未看到美国的真正行动  " alt="美国会议员警告中共高官：北京还未看到美国的真正行动  "></a></p>
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102917648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/独家!中共内部“八点精神”/北戴河第三战场开>-009fcc?logoWidth=1" title="独家!中共内部“八点精神”/北戴河第三战场开火 “老同志”问责习近平  " alt="独家!中共内部“八点精神”/北戴河第三战场开火 “老同志”问责习近平  "></a></p>
 <p><a href="https://github.com/alniap312/ntdtv/blob/master/gb/2020/08/14/a102917955.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/16岁男孩被美国主流媒体围攻，他做错了什么？>-009fcc?logoWidth=1" title="16岁男孩被美国主流媒体围攻，他做错了什么？假新闻是如何产生的？  " alt="16岁男孩被美国主流媒体围攻，他做错了什么？假新闻是如何产生的？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -488,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/alniap312/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/alniap312/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/alniap312/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/alniap312/www/blob/master/README.md?o#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/alniap312/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/alniap312/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/alniap312/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/alniap312/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/alniap312/www/blob/master/README.md?o#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/alniap312/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ubbbb">git.io/ubbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/ggggggg">git.io/ggggggg</a></div>
 
