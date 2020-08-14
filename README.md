@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/atwnuw392/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/atwnuw392/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ssssssss">git.io/ssssssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a4a">x.co/a4a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uuuuuuu">git.io/uuuuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a4a">x.co/a4a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -42,7 +42,7 @@
 <p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/13/n12328530.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒高调唱“丰收”事实打脸 粮食危机逼近  >-009fcc?logoWidth=1" title="党媒高调唱“丰收”事实打脸 粮食危机逼近  " alt="党媒高调唱“丰收”事实打脸 粮食危机逼近  "></a></p>
 <p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/13/a102916887.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平、栗战书、汪洋亲属在港近4亿豪宅被曝光>-009fcc?logoWidth=1" title="习近平、栗战书、汪洋亲属在港近4亿豪宅被曝光  " alt="习近平、栗战书、汪洋亲属在港近4亿豪宅被曝光  "></a></p>
 <p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/13/n12328996.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美净网联盟扩大 习开倒车军队异象      >-009fcc?logoWidth=1" title="美净网联盟扩大 习开倒车军队异象  " alt="美净网联盟扩大 习开倒车军队异象  "></a></p>
-<p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/13/a102917529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普:在中共治下 香港市场将“坠入地狱”  >-009fcc?logoWidth=1" title="川普:在中共治下 香港市场将“坠入地狱”  " alt="川普:在中共治下 香港市场将“坠入地狱”  "></a></p>
+<p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/13/a102917529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普:在中共治下 香港市场将“落入地狱”  >-009fcc?logoWidth=1" title="川普:在中共治下 香港市场将“落入地狱”  " alt="川普:在中共治下 香港市场将“落入地狱”  "></a></p>
 <p><a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/2020/08/13/a102917026.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传央视董卿、欧阳夏丹被中纪委带走 涉孙力军丑>-009fcc?logoWidth=1" title="传央视董卿、欧阳夏丹被中纪委带走 涉孙力军丑闻  " alt="传央视董卿、欧阳夏丹被中纪委带走 涉孙力军丑闻  "></a></p>
 <p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/13/n12328732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院指定孔子学院为外国使团       >-009fcc?logoWidth=1" title="美国务院指定孔子学院为外国使团  " alt="美国务院指定孔子学院为外国使团  "></a></p>
 <p><a href="https://github.com/atwnuw392/djy/blob/master/gb/20/8/13/n12329022.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：爆料中共常委贪腐 为何缺韩正     >-009fcc?logoWidth=1" title="杨威：爆料中共常委贪腐 为何缺韩正  " alt="杨威：爆料中共常委贪腐 为何缺韩正  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/atwnuw392/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/atwnuw392/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/atwnuw392/www/blob/master/README.md?n#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/atwnuw392/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/atwnuw392/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/atwnuw392/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/atwnuw392/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/atwnuw392/www/blob/master/README.md?h#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/atwnuw392/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ssssssss">git.io/ssssssss</a></div>
+<div align="center">短网址: <a href="https://git.io/uuuuuuu">git.io/uuuuuuu</a></div>
 
