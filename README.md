@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aecffq3870/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aecffq3870/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fffffff">git.io/fffffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3337">x.co/3337</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/2zzzz">git.io/2zzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3666">x.co/3666</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918343.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/私人钱包也姓党？中国数字人民币试点全面铺开 >-009fcc?logoWidth=1" title="私人钱包也姓党？中国数字人民币试点全面铺开  " alt="私人钱包也姓党？中国数字人民币试点全面铺开  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918216.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共在台海连续军演 美部署最先进B--2轰炸机>-009fcc?logoWidth=1" title="中共在台海连续军演 美部署最先进B-2轰炸机应对  " alt="中共在台海连续军演 美部署最先进B-2轰炸机应对  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918001.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“怀念吃粮票”标语再现/习近平栗战书被打黑枪>-009fcc?logoWidth=1" title="“怀念吃粮票”标语再现/习近平栗战书被打黑枪?  " alt="“怀念吃粮票”标语再现/习近平栗战书被打黑枪?  "></a></p>
+<p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/15/a102918548.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/紧张局势升级 美国向台湾出售66架F--16战>-009fcc?logoWidth=1" title="紧张局势升级 美国向台湾出售66架F-16战机  " alt="紧张局势升级 美国向台湾出售66架F-16战机  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/15/a102918545.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山大退休教授孙文广失踪近两年 生死未明   >-009fcc?logoWidth=1" title="山大退休教授孙文广失踪近两年 生死未明  " alt="山大退休教授孙文广失踪近两年 生死未明  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/15/a102918546.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一日内 山东高密绑架四十六名法轮功学员   >-009fcc?logoWidth=1" title="一日内 山东高密绑架四十六名法轮功学员  " alt="一日内 山东高密绑架四十六名法轮功学员  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/15/a102918521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/以色列阿联酋将建交 欧盟表示欢迎 库什纳料有>-009fcc?logoWidth=1" title="以色列阿联酋将建交 欧盟表示欢迎 库什纳料有国家跟进  " alt="以色列阿联酋将建交 欧盟表示欢迎 库什纳料有国家跟进  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/15/a102918524.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港府打压传媒 卢俊宇：加速制裁       >-009fcc?logoWidth=1" title="港府打压传媒 卢俊宇：加速制裁  " alt="港府打压传媒 卢俊宇：加速制裁  "></a></p>
-<p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/15/a102918508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国左派不遗余力改写本国历史        >-009fcc?logoWidth=1" title="美国左派不遗余力改写本国历史  " alt="美国左派不遗余力改写本国历史  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/14/n12331597.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不再称一尊 习梦断北戴河？         >-009fcc?logoWidth=1" title="不再称一尊 习梦断北戴河？  " alt="不再称一尊 习梦断北戴河？  "></a></p>
 <p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/14/n12331816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张召忠顾问公众号改名“战忽局” 引热议   >-009fcc?logoWidth=1" title="张召忠顾问公众号改名“战忽局” 引热议  " alt="张召忠顾问公众号改名“战忽局” 引热议  "></a></p>
@@ -39,17 +39,16 @@
 <p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/15/n12332414.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习当局的五大误判              >-009fcc?logoWidth=1" title="习当局的五大误判  " alt="习当局的五大误判  "></a></p>
 <p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/14/n12331785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加速倒车？大陆惊现“怀念粮票时代”标语   >-009fcc?logoWidth=1" title="加速倒车？大陆惊现“怀念粮票时代”标语  " alt="加速倒车？大陆惊现“怀念粮票时代”标语  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/15/a102918509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乐山大佛佛脚被水淹 曾数次闭眼流泪显灵(视频>-009fcc?logoWidth=1" title="乐山大佛佛脚被水淹 曾数次闭眼流泪显灵(视频)  " alt="乐山大佛佛脚被水淹 曾数次闭眼流泪显灵(视频)  "></a></p>
-<p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918246.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大饥荒已经形成？习近平高调反浪费三大背景  >-009fcc?logoWidth=1" title="大饥荒已经形成？习近平高调反浪费三大背景  " alt="大饥荒已经形成？习近平高调反浪费三大背景  "></a></p>
+<p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102917988.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习一尊的地位、连任三届的梦想，在北戴河会议上>-009fcc?logoWidth=1" title="习一尊的地位、连任三届的梦想，在北戴河会议上被妥协了？  " alt="习一尊的地位、连任三届的梦想，在北戴河会议上被妥协了？  "></a></p>
 <p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/14/n12331747.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张菁：美国“净化网络” 剑指中共      >-009fcc?logoWidth=1" title="张菁：美国“净化网络” 剑指中共  " alt="张菁：美国“净化网络” 剑指中共  "></a></p>
-<p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918274.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美对孔子学院宣战 中共挂“免战牌”     >-009fcc?logoWidth=1" title="美对孔子学院宣战 中共挂“免战牌”  " alt="美对孔子学院宣战 中共挂“免战牌”  "></a></p>
-<p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国高铁15年内“大跃进”债务或翻倍至10万>-009fcc?logoWidth=1" title="中国高铁15年内“大跃进”债务或翻倍至10万亿  " alt="中国高铁15年内“大跃进”债务或翻倍至10万亿  "></a></p>
+<p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918301.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员提案 要求中共偿还1.6万亿美元债券 >-009fcc?logoWidth=1" title="美议员提案 要求中共偿还1.6万亿美元债券  " alt="美议员提案 要求中共偿还1.6万亿美元债券  "></a></p>
 <p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/14/n12330899.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：美连环出击 为何中共难有招架之力   >-009fcc?logoWidth=1" title="分析：美连环出击 为何中共难有招架之力  " alt="分析：美连环出击 为何中共难有招架之力  "></a></p>
 <p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/14/n12331721.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三方动作频 美中台海上争雄         >-009fcc?logoWidth=1" title="三方动作频 美中台海上争雄  " alt="三方动作频 美中台海上争雄  "></a></p>
-<p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918321.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中资银行配合美制裁，港警退休金被逼转移大陆银>-009fcc?logoWidth=1" title="中资银行配合美制裁，港警退休金被逼转移大陆银行  " alt="中资银行配合美制裁，港警退休金被逼转移大陆银行  "></a></p>
+<p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918246.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大饥荒已经形成？习近平高调反浪费三大背景  >-009fcc?logoWidth=1" title="大饥荒已经形成？习近平高调反浪费三大背景  " alt="大饥荒已经形成？习近平高调反浪费三大背景  "></a></p>
+<p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918274.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美对孔子学院宣战 中共挂“免战牌”     >-009fcc?logoWidth=1" title="美对孔子学院宣战 中共挂“免战牌”  " alt="美对孔子学院宣战 中共挂“免战牌”  "></a></p>
 <p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/14/n12332058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：赖小民贪腐18亿 中共大厦将倒塌  >-009fcc?logoWidth=1" title="王友群：赖小民贪腐18亿 中共大厦将倒塌  " alt="王友群：赖小民贪腐18亿 中共大厦将倒塌  "></a></p>
 <p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/14/n12331118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李子柒身边的蝉鸣 抵不过战狼的嗥叫     >-009fcc?logoWidth=1" title="李子柒身边的蝉鸣 抵不过战狼的嗥叫  " alt="李子柒身边的蝉鸣 抵不过战狼的嗥叫  "></a></p>
-<p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102917737.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为什么要杀香港这只“下金蛋的鹅”？   >-009fcc?logoWidth=1" title="中共为什么要杀香港这只“下金蛋的鹅”？  " alt="中共为什么要杀香港这只“下金蛋的鹅”？  "></a></p>
+<p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国高铁15年内“大跃进”债务或翻倍至10万>-009fcc?logoWidth=1" title="中国高铁15年内“大跃进”债务或翻倍至10万亿  " alt="中国高铁15年内“大跃进”债务或翻倍至10万亿  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议精神？“怀念吃粮票”标语再现   >-009fcc?logoWidth=1" title="北戴河会议精神？“怀念吃粮票”标语再现  " alt="北戴河会议精神？“怀念吃粮票”标语再现  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -419,12 +418,12 @@
 <p><strong>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年的腥风血雨，二十多年的凌辱折磨，岁月飞逝，历史见证，迫害善良原本就是违背道义不得民心的...</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;99年中共因法轮功修炼人数超过党员而疯狂镇压，不惜制造一个个谎言，导演天安门自焚案栽赃法轮功，对坚持信仰的学员绑架抄家，用尽酷刑，导致数以百万计的家破人亡、妻离子散！然而中共高估了自己的造假宣传。各国政府纷纷谴责中共暴行，高度肯定法轮功提升道德、净化心灵、强身健体的卓越成效。在国内，声援法轮功的事件此起彼伏。成千上万人为被非法抓捕的学员请愿，演绎了不畏强权反迫害的一幕又一幕。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年过去了。如今法轮功“真善忍”普世价值观，超越民族文化，洪传世界一百多个国家，仅台湾就有八十万人修炼，其主要著作被译成四十多种文字，举世赞誉！而中共江泽民却因罪恶迫害，在海内外被数百万人联署举报，被二十多万人实名起诉。在这场对善良打压中，中共把法制、道德伦理都推向崩溃边缘。民心丧尽、天怒人怨!人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/U6Tmzl" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/bRbnRh" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
 </details>
 
 <div align="center">
 <img src="https://raw.githubusercontent.com/aecffq3870/www/master/t/01.jpg">
-<h1><strong><a href="https://is.gd/U6Tmzl" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
+<h1><strong><a href="https://is.gd/bRbnRh" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/aecffq3870/www/master/t/03.jpg"><br>
@@ -484,12 +483,12 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;于中共无所不在的欺骗洗脑与暴力胁迫下，有多少人放弃了诚实宽厚、仁爱谦和的道德底线，变得见风使舵、落井下石，甚至为一己之私而无恶不作。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;稍微盘点中共的罪恶，让人感到心情无比的沉重。了解了中共，才明白什么叫做罪恶滔天，罄竹难书。</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/U6Tmzl" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/bRbnRh" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aecffq3870/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aecffq3870/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aecffq3870/www/blob/master/README.md?i#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/aecffq3870/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aecffq3870/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aecffq3870/www/master/index.html?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aecffq3870/www/blob/master/README.md?q#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/aecffq3870/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fffffff">git.io/fffffff</a></div>
+<div align="center">短网址: <a href="https://git.io/2zzzz">git.io/2zzzz</a></div>
 
