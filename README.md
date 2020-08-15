@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aecffq3870/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aecffq3870/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b7777">git.io/b7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j88">x.co/j88</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/raaaa">git.io/raaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/6pp">x.co/6pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,15 +39,16 @@
 <p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/14/n12329534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：洪灾触目惊心 北戴河会议没完没了   >-009fcc?logoWidth=1" title="钟原：洪灾触目惊心 北戴河会议没完没了  " alt="钟原：洪灾触目惊心 北戴河会议没完没了  "></a></p>
 <p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/14/n12330929.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/缺钱了？疫情过后 北京颁令禁止小产权房   >-009fcc?logoWidth=1" title="缺钱了？疫情过后 北京颁令禁止小产权房  " alt="缺钱了？疫情过后 北京颁令禁止小产权房  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共渗透美高层 前佩洛西传播总监系央视外国代>-009fcc?logoWidth=1" title="中共渗透美高层 前佩洛西传播总监系央视外国代理人  " alt="中共渗透美高层 前佩洛西传播总监系央视外国代理人  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102917737.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为什么要杀香港这只“下金蛋的鹅”？   >-009fcc?logoWidth=1" title="中共为什么要杀香港这只“下金蛋的鹅”？  " alt="中共为什么要杀香港这只“下金蛋的鹅”？  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102917745.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/指中共故意释放病毒 闫丽梦列出三关键点   >-009fcc?logoWidth=1" title="指中共故意释放病毒 闫丽梦列出三关键点  " alt="指中共故意释放病毒 闫丽梦列出三关键点  "></a></p>
-<p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议精神？“怀念吃粮票”标语再现   >-009fcc?logoWidth=1" title="北戴河会议精神？“怀念吃粮票”标语再现  " alt="北戴河会议精神？“怀念吃粮票”标语再现  "></a></p>
-<p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102917679.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟冻结中共官员10万亿海外资产 江家超万亿>-009fcc?logoWidth=1" title="美拟冻结中共官员10万亿海外资产 江家超万亿  " alt="美拟冻结中共官员10万亿海外资产 江家超万亿  "></a></p>
+<p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918124.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“自愿被窃数据” 美司法部高官剖析TikTo>-009fcc?logoWidth=1" title="“自愿被窃数据” 美司法部高官剖析TikTok安全威胁  " alt="“自愿被窃数据” 美司法部高官剖析TikTok安全威胁  "></a></p>
 <p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/14/n12329504.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/答大纪元记者问 川普批香港侵犯新闻自由   >-009fcc?logoWidth=1" title="答大纪元记者问 川普批香港侵犯新闻自由  " alt="答大纪元记者问 川普批香港侵犯新闻自由  "></a></p>
 <p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/13/n12329022.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：爆料中共常委贪腐 为何缺韩正     >-009fcc?logoWidth=1" title="杨威：爆料中共常委贪腐 为何缺韩正  " alt="杨威：爆料中共常委贪腐 为何缺韩正  "></a></p>
-<p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/13/a102917476.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元入院病例图片流出 疑中毒失去意识   >-009fcc?logoWidth=1" title="崔永元入院病例图片流出 疑中毒失去意识  " alt="崔永元入院病例图片流出 疑中毒失去意识  "></a></p>
+<p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议精神？“怀念吃粮票”标语再现   >-009fcc?logoWidth=1" title="北戴河会议精神？“怀念吃粮票”标语再现  " alt="北戴河会议精神？“怀念吃粮票”标语再现  "></a></p>
 <p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/14/n12331816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张召忠指导公众号改名“战忽局” 引热议   >-009fcc?logoWidth=1" title="张召忠指导公众号改名“战忽局” 引热议  " alt="张召忠指导公众号改名“战忽局” 引热议  "></a></p>
 <p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/13/n12329037.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会议员警告中共高官：北京还未看到美国的真>-009fcc?logoWidth=1" title="美国会议员警告中共高官：北京还未看到美国的真正行动  " alt="美国会议员警告中共高官：北京还未看到美国的真正行动  "></a></p>
+<p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/13/a102917476.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元入院病例图片流出 疑中毒失去意识   >-009fcc?logoWidth=1" title="崔永元入院病例图片流出 疑中毒失去意识  " alt="崔永元入院病例图片流出 疑中毒失去意识  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102917715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台专家分析若美国使出3大招 将会要中共命  >-009fcc?logoWidth=1" title="台专家分析若美国使出3大招 将会要中共命  " alt="台专家分析若美国使出3大招 将会要中共命  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aecffq3870/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aecffq3870/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aecffq3870/www/blob/master/README.md?i#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/aecffq3870/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aecffq3870/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aecffq3870/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aecffq3870/www/blob/master/README.md?a#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/aecffq3870/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/b7777">git.io/b7777</a></div>
+<div align="center">短网址: <a href="https://git.io/raaaa">git.io/raaaa</a></div>
 
