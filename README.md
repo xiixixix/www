@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/vqlmzp3474/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/vqlmzp3474/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ztttt">git.io/ztttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/4445">x.co/4445</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ckkkk">git.io/ckkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aea">x.co/aea</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/vqlmzp3474/ntdtv/blob/master/gb/2020/08/15/a102918481.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/VPN翻墙将判死刑？北戴河新政外软内硬，习近>-009fcc?logoWidth=1" title="VPN翻墙将判死刑？北戴河新政外软内硬，习近平五大误区  " alt="VPN翻墙将判死刑？北戴河新政外软内硬，习近平五大误区  "></a></p>
 <p><a href="https://github.com/vqlmzp3474/ntdtv/blob/master/gb/2020/08/14/a102918435.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/没谈就崩了？美中8月15日贸易会谈无限期推迟>-009fcc?logoWidth=1" title="没谈就崩了？美中8月15日贸易会谈无限期推迟  " alt="没谈就崩了？美中8月15日贸易会谈无限期推迟  "></a></p>
 <p><a href="https://github.com/vqlmzp3474/ntdtv/blob/master/gb/2020/08/14/a102918343.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/私人钱包也姓党？中国数字人民币试点全面铺开 >-009fcc?logoWidth=1" title="私人钱包也姓党？中国数字人民币试点全面铺开  " alt="私人钱包也姓党？中国数字人民币试点全面铺开  "></a></p>
+<p><a href="https://github.com/vqlmzp3474/ntdtv/blob/master/gb/2020/08/15/a102918702.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/响应习近平新政 一餐饮店推“称体重点餐”  >-009fcc?logoWidth=1" title="响应习近平新政 一餐饮店推“称体重点餐”  " alt="响应习近平新政 一餐饮店推“称体重点餐”  "></a></p>
 <p><a href="https://github.com/vqlmzp3474/ntdtv/blob/master/gb/2020/08/15/a102918706.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国拦截4艘伊朗油轮 扣押逾110万桶石油 >-009fcc?logoWidth=1" title="美国拦截4艘伊朗油轮 扣押逾110万桶石油  " alt="美国拦截4艘伊朗油轮 扣押逾110万桶石油  "></a></p>
 <p><a href="https://github.com/vqlmzp3474/ntdtv/blob/master/gb/2020/08/15/a102918612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台海战云密布 专家：中共若强攻 必是死路一条>-009fcc?logoWidth=1" title="台海战云密布 专家：中共若强攻 必是死路一条  " alt="台海战云密布 专家：中共若强攻 必是死路一条  "></a></p>
 <p><a href="https://github.com/vqlmzp3474/ntdtv/blob/master/gb/2020/08/15/a102918611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何强行火化他们的遗体（8）      >-009fcc?logoWidth=1" title="中共为何强行火化他们的遗体（8）  " alt="中共为何强行火化他们的遗体（8）  "></a></p>
 <p><a href="https://github.com/vqlmzp3474/ntdtv/blob/master/gb/2020/08/15/a102918602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东疫情再现 北京、湖北患者接连“复阳”  >-009fcc?logoWidth=1" title="广东疫情再现 北京、湖北患者接连“复阳”  " alt="广东疫情再现 北京、湖北患者接连“复阳”  "></a></p>
-<p><a href="https://github.com/vqlmzp3474/ntdtv/blob/master/gb/2020/08/15/a102918547.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情延烧 冲绳6指标全达最高属“爆炸性扩大”>-009fcc?logoWidth=1" title="疫情延烧 冲绳6指标全达最高属“爆炸性扩大”  " alt="疫情延烧 冲绳6指标全达最高属“爆炸性扩大”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/vqlmzp3474/djy/blob/master/gb/20/8/14/n12331597.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不再称一尊 习梦断北戴河？         >-009fcc?logoWidth=1" title="不再称一尊 习梦断北戴河？  " alt="不再称一尊 习梦断北戴河？  "></a></p>
 <p><a href="https://github.com/vqlmzp3474/djy/blob/master/gb/20/8/14/n12331677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：压力空前 中共急释执行贸易协议信号  >-009fcc?logoWidth=1" title="杨威：压力空前 中共急释执行贸易协议信号  " alt="杨威：压力空前 中共急释执行贸易协议信号  "></a></p>
@@ -39,17 +39,14 @@
 <p><a href="https://github.com/vqlmzp3474/djy/blob/master/gb/20/8/15/n12332414.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习当局的五大误判              >-009fcc?logoWidth=1" title="习当局的五大误判  " alt="习当局的五大误判  "></a></p>
 <p><a href="https://github.com/vqlmzp3474/djy/blob/master/gb/20/8/15/n12332726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：美第二波制裁很快到来 包含制裁红二代 >-009fcc?logoWidth=1" title="港媒：美第二波制裁很快到来 包含制裁红二代  " alt="港媒：美第二波制裁很快到来 包含制裁红二代  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/vqlmzp3474/ntdtv/blob/master/gb/2020/08/14/a102917988.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习一尊的地位、连任三届的梦想，在北戴河会议上>-009fcc?logoWidth=1" title="习一尊的地位、连任三届的梦想，在北戴河会议上被妥协了？  " alt="习一尊的地位、连任三届的梦想，在北戴河会议上被妥协了？  "></a></p>
+<p><a href="https://github.com/vqlmzp3474/ntdtv/blob/master/gb/2020/08/15/a102918723.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共航母冒黑烟的内幕！美国为什么猛打台湾牌？>-009fcc?logoWidth=1" title="中共航母冒黑烟的内幕！美国为什么猛打台湾牌？  " alt="中共航母冒黑烟的内幕！美国为什么猛打台湾牌？  "></a></p>
 <p><a href="https://github.com/vqlmzp3474/ntdtv/blob/master/gb/2020/08/15/a102918644.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美推超级大炮 白俄抗暴记：警车辗人     >-009fcc?logoWidth=1" title="美推超级大炮 白俄抗暴记：警车辗人  " alt="美推超级大炮 白俄抗暴记：警车辗人  "></a></p>
-<p><a href="https://github.com/vqlmzp3474/ntdtv/blob/master/gb/2020/08/15/a102918579.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会提议案追讨1.6万亿满清债务 中共到底>-009fcc?logoWidth=1" title="美国会提议案追讨1.6万亿满清债务 中共到底该不该还  " alt="美国会提议案追讨1.6万亿满清债务 中共到底该不该还  "></a></p>
 <p><a href="https://github.com/vqlmzp3474/djy/blob/master/gb/20/8/14/n12331747.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张菁：美国“净化网络” 剑指中共      >-009fcc?logoWidth=1" title="张菁：美国“净化网络” 剑指中共  " alt="张菁：美国“净化网络” 剑指中共  "></a></p>
 <p><a href="https://github.com/vqlmzp3474/djy/blob/master/gb/20/8/14/n12330899.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：美连环出击 为何中共难有招架之力   >-009fcc?logoWidth=1" title="分析：美连环出击 为何中共难有招架之力  " alt="分析：美连环出击 为何中共难有招架之力  "></a></p>
-<p><a href="https://github.com/vqlmzp3474/ntdtv/blob/master/gb/2020/08/14/a102917832.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平栗战书被打黑枪 敏感时刻谁在放料？  >-009fcc?logoWidth=1" title="习近平栗战书被打黑枪 敏感时刻谁在放料？  " alt="习近平栗战书被打黑枪 敏感时刻谁在放料？  "></a></p>
-<p><a href="https://github.com/vqlmzp3474/ntdtv/blob/master/gb/2020/08/14/a102918216.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共在台海连续军演 美部署最先进B--2轰炸机>-009fcc?logoWidth=1" title="中共在台海连续军演 美部署最先进B-2轰炸机应对  " alt="中共在台海连续军演 美部署最先进B-2轰炸机应对  "></a></p>
+<p><a href="https://github.com/vqlmzp3474/ntdtv/blob/master/gb/2020/08/15/a102918679.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美博弈中 美国当前有一个致命弱点     >-009fcc?logoWidth=1" title="中美博弈中 美国当前有一个致命弱点  " alt="中美博弈中 美国当前有一个致命弱点  "></a></p>
 <p><a href="https://github.com/vqlmzp3474/djy/blob/master/gb/20/8/14/n12331721.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三方动作频 美中台海上争雄         >-009fcc?logoWidth=1" title="三方动作频 美中台海上争雄  " alt="三方动作频 美中台海上争雄  "></a></p>
 <p><a href="https://github.com/vqlmzp3474/djy/blob/master/gb/20/8/14/n12332058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：赖小民贪腐18亿 中共大厦将倒塌  >-009fcc?logoWidth=1" title="王友群：赖小民贪腐18亿 中共大厦将倒塌  " alt="王友群：赖小民贪腐18亿 中共大厦将倒塌  "></a></p>
-<p><a href="https://github.com/vqlmzp3474/ntdtv/blob/master/gb/2020/08/14/a102918301.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员提案 要求中共偿还1.6万亿美元债券 >-009fcc?logoWidth=1" title="美议员提案 要求中共偿还1.6万亿美元债券  " alt="美议员提案 要求中共偿还1.6万亿美元债券  "></a></p>
-<p><a href="https://github.com/vqlmzp3474/ntdtv/blob/master/gb/2020/08/14/a102918246.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大饥荒已经形成？习近平高调反浪费三大背景  >-009fcc?logoWidth=1" title="大饥荒已经形成？习近平高调反浪费三大背景  " alt="大饥荒已经形成？习近平高调反浪费三大背景  "></a></p>
+<p><a href="https://github.com/vqlmzp3474/ntdtv/blob/master/gb/2020/08/15/a102918579.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会提议案追讨1.6万亿满清债务 中共到底>-009fcc?logoWidth=1" title="美国会提议案追讨1.6万亿满清债务 中共到底该不该还  " alt="美国会提议案追讨1.6万亿满清债务 中共到底该不该还  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/vqlmzp3474/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vqlmzp3474/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/vqlmzp3474/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vqlmzp3474/www/blob/master/README.md?e#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/vqlmzp3474/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/vqlmzp3474/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vqlmzp3474/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/vqlmzp3474/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vqlmzp3474/www/blob/master/README.md?h#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/vqlmzp3474/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ztttt">git.io/ztttt</a></div>
+<div align="center">短网址: <a href="https://git.io/ckkkk">git.io/ckkkk</a></div>
 
