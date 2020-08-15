@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aecffq3870/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aecffq3870/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mssss">git.io/mssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/cpp">x.co/cpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/guuuu">git.io/guuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3335">x.co/3335</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918343.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/私人钱包也姓党？中国数字人民币试点全面铺开 >-009fcc?logoWidth=1" title="私人钱包也姓党？中国数字人民币试点全面铺开  " alt="私人钱包也姓党？中国数字人民币试点全面铺开  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918216.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共在台海连续军演 美部署最先进B--2轰炸机>-009fcc?logoWidth=1" title="中共在台海连续军演 美部署最先进B-2轰炸机应对  " alt="中共在台海连续军演 美部署最先进B-2轰炸机应对  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/15/a102918547.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情延烧 冲绳6指标全达最高属“爆炸性扩大”>-009fcc?logoWidth=1" title="疫情延烧 冲绳6指标全达最高属“爆炸性扩大”  " alt="疫情延烧 冲绳6指标全达最高属“爆炸性扩大”  "></a></p>
-<p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/15/a102918548.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/紧张局势升级 美国向台湾出售66架F--16战>-009fcc?logoWidth=1" title="紧张局势升级 美国向台湾出售66架F-16战机  " alt="紧张局势升级 美国向台湾出售66架F-16战机  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/15/a102918545.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山大退休教授孙文广失踪近两年 生死未明   >-009fcc?logoWidth=1" title="山大退休教授孙文广失踪近两年 生死未明  " alt="山大退休教授孙文广失踪近两年 生死未明  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/15/a102918546.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一日内 山东高密绑架四十六名法轮功学员   >-009fcc?logoWidth=1" title="一日内 山东高密绑架四十六名法轮功学员  " alt="一日内 山东高密绑架四十六名法轮功学员  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/15/a102918521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/以色列阿联酋将建交 欧盟表示欢迎 库什纳料有>-009fcc?logoWidth=1" title="以色列阿联酋将建交 欧盟表示欢迎 库什纳料有国家跟进  " alt="以色列阿联酋将建交 欧盟表示欢迎 库什纳料有国家跟进  "></a></p>
+<p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/15/a102918524.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港府打压传媒 卢俊宇：加速制裁       >-009fcc?logoWidth=1" title="港府打压传媒 卢俊宇：加速制裁  " alt="港府打压传媒 卢俊宇：加速制裁  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/14/n12331597.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不再称一尊 习梦断北戴河？         >-009fcc?logoWidth=1" title="不再称一尊 习梦断北戴河？  " alt="不再称一尊 习梦断北戴河？  "></a></p>
 <p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/14/n12331816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张召忠顾问公众号改名“战忽局” 引热议   >-009fcc?logoWidth=1" title="张召忠顾问公众号改名“战忽局” 引热议  " alt="张召忠顾问公众号改名“战忽局” 引热议  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aecffq3870/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aecffq3870/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aecffq3870/www/blob/master/README.md?c#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/aecffq3870/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aecffq3870/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aecffq3870/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aecffq3870/www/blob/master/README.md?q#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/aecffq3870/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mssss">git.io/mssss</a></div>
+<div align="center">短网址: <a href="https://git.io/guuuu">git.io/guuuu</a></div>
 
