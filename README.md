@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/miarbj3813/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/miarbj3813/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d6666">git.io/d6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ndd">x.co/ndd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bgggg">git.io/bgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p4p">x.co/p4p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,13 +39,12 @@
 <p><a href="https://github.com/miarbj3813/djy/blob/master/gb/20/8/15/n12332414.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习当局的五大误判              >-009fcc?logoWidth=1" title="习当局的五大误判  " alt="习当局的五大误判  "></a></p>
 <p><a href="https://github.com/miarbj3813/djy/blob/master/gb/20/8/15/n12332993.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京喊节粮 各地出怪招 网民吐槽      >-009fcc?logoWidth=1" title="北京喊节粮 各地出怪招 网民吐槽  " alt="北京喊节粮 各地出怪招 网民吐槽  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/miarbj3813/djy/blob/master/gb/20/8/14/n12329605.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共九大威胁 利用网红当外宣？       >-009fcc?logoWidth=1" title="中共九大威胁 利用网红当外宣？  " alt="中共九大威胁 利用网红当外宣？  "></a></p>
 <p><a href="https://github.com/miarbj3813/ntdtv/blob/master/gb/2020/08/15/a102918602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东疫情再现 北京、湖北患者接连“复阳”  >-009fcc?logoWidth=1" title="广东疫情再现 北京、湖北患者接连“复阳”  " alt="广东疫情再现 北京、湖北患者接连“复阳”  "></a></p>
 <p><a href="https://github.com/miarbj3813/ntdtv/blob/master/gb/2020/08/15/a102918548.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/紧张局势升级 美国向台湾出售66架F--16战>-009fcc?logoWidth=1" title="紧张局势升级 美国向台湾出售66架F-16战机  " alt="紧张局势升级 美国向台湾出售66架F-16战机  "></a></p>
+<p><a href="https://github.com/miarbj3813/djy/blob/master/gb/20/8/14/n12329605.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共九大威胁 利用网红当外宣？       >-009fcc?logoWidth=1" title="中共九大威胁 利用网红当外宣？  " alt="中共九大威胁 利用网红当外宣？  "></a></p>
 <p><a href="https://github.com/miarbj3813/djy/blob/master/gb/20/8/14/n12331514.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆智库专家：中共把美国视为头号敌人    >-009fcc?logoWidth=1" title="大陆智库专家：中共把美国视为头号敌人  " alt="大陆智库专家：中共把美国视为头号敌人  "></a></p>
-<p><a href="https://github.com/miarbj3813/djy/blob/master/gb/20/8/14/n12332058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：赖小民贪腐18亿 中共大厦将倒塌  >-009fcc?logoWidth=1" title="王友群：赖小民贪腐18亿 中共大厦将倒塌  " alt="王友群：赖小民贪腐18亿 中共大厦将倒塌  "></a></p>
 <p><a href="https://github.com/miarbj3813/ntdtv/blob/master/gb/2020/08/15/a102918723.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共航母冒黑烟的内幕！美国为什么猛打台湾牌？>-009fcc?logoWidth=1" title="中共航母冒黑烟的内幕！美国为什么猛打台湾牌？  " alt="中共航母冒黑烟的内幕！美国为什么猛打台湾牌？  "></a></p>
-<p><a href="https://github.com/miarbj3813/djy/blob/master/gb/20/8/14/n12331721.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三方动作频 美中台海上争雄         >-009fcc?logoWidth=1" title="三方动作频 美中台海上争雄  " alt="三方动作频 美中台海上争雄  "></a></p>
+<p><a href="https://github.com/miarbj3813/djy/blob/master/gb/20/8/14/n12332058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：赖小民贪腐18亿 中共大厦将倒塌  >-009fcc?logoWidth=1" title="王友群：赖小民贪腐18亿 中共大厦将倒塌  " alt="王友群：赖小民贪腐18亿 中共大厦将倒塌  "></a></p>
 <p><a href="https://github.com/miarbj3813/djy/blob/master/gb/20/8/14/n12330899.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：美连环出击 为何中共难有招架之力   >-009fcc?logoWidth=1" title="分析：美连环出击 为何中共难有招架之力  " alt="分析：美连环出击 为何中共难有招架之力  "></a></p>
 <p><a href="https://github.com/miarbj3813/ntdtv/blob/master/gb/2020/08/15/a102918457.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:中共南北夹击台海 七航母黄雀在后！“老>-009fcc?logoWidth=1" title="文昭:中共南北夹击台海 七航母黄雀在后！“老人战团”施压习近平  " alt="文昭:中共南北夹击台海 七航母黄雀在后！“老人战团”施压习近平  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -485,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/miarbj3813/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/miarbj3813/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/miarbj3813/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/miarbj3813/www/blob/master/README.md?m#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/miarbj3813/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/miarbj3813/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/miarbj3813/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/miarbj3813/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/miarbj3813/www/blob/master/README.md?d#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/miarbj3813/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/d6666">git.io/d6666</a></div>
+<div align="center">短网址: <a href="https://git.io/bgggg">git.io/bgggg</a></div>
 
