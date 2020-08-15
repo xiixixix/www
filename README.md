@@ -10,11 +10,11 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aecffq3870/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aecffq3870/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pzzzz">git.io/pzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9944">x.co/9944</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fcccc">git.io/fcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3399">x.co/3399</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/15/a102918525.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/权斗汹涌 习梦断北戴河？传中共制定八精神  >-009fcc?logoWidth=1" title="权斗汹涌 习梦断北戴河？传中共制定八精神  " alt="权斗汹涌 习梦断北戴河？传中共制定八精神  "></a></p>
+<p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/15/a102918525.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/权斗汹涌 习梦断北戴河？中共新定八精神曝光 >-009fcc?logoWidth=1" title="权斗汹涌 习梦断北戴河？中共新定八精神曝光  " alt="权斗汹涌 习梦断北戴河？中共新定八精神曝光  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/15/a102918481.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/VPN翻墙将判死刑？北戴河新政外软内硬，习近>-009fcc?logoWidth=1" title="VPN翻墙将判死刑？北戴河新政外软内硬，习近平五大误区  " alt="VPN翻墙将判死刑？北戴河新政外软内硬，习近平五大误区  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918435.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/没谈就崩了？美中8月15日贸易会谈无限期推迟>-009fcc?logoWidth=1" title="没谈就崩了？美中8月15日贸易会谈无限期推迟  " alt="没谈就崩了？美中8月15日贸易会谈无限期推迟  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918343.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/私人钱包也姓党？中国数字人民币试点全面铺开 >-009fcc?logoWidth=1" title="私人钱包也姓党？中国数字人民币试点全面铺开  " alt="私人钱包也姓党？中国数字人民币试点全面铺开  "></a></p>
@@ -40,14 +40,13 @@
 <p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/14/n12331785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加速倒车？大陆惊现“怀念粮票时代”标语   >-009fcc?logoWidth=1" title="加速倒车？大陆惊现“怀念粮票时代”标语  " alt="加速倒车？大陆惊现“怀念粮票时代”标语  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102917988.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习一尊的地位、连任三届的梦想，在北戴河会议上>-009fcc?logoWidth=1" title="习一尊的地位、连任三届的梦想，在北戴河会议上被妥协了？  " alt="习一尊的地位、连任三届的梦想，在北戴河会议上被妥协了？  "></a></p>
-<p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/14/n12331747.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张菁：美国“净化网络” 剑指中共      >-009fcc?logoWidth=1" title="张菁：美国“净化网络” 剑指中共  " alt="张菁：美国“净化网络” 剑指中共  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918301.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员提案 要求中共偿还1.6万亿美元债券 >-009fcc?logoWidth=1" title="美议员提案 要求中共偿还1.6万亿美元债券  " alt="美议员提案 要求中共偿还1.6万亿美元债券  "></a></p>
+<p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/14/n12331747.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张菁：美国“净化网络” 剑指中共      >-009fcc?logoWidth=1" title="张菁：美国“净化网络” 剑指中共  " alt="张菁：美国“净化网络” 剑指中共  "></a></p>
 <p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/14/n12330899.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：美连环出击 为何中共难有招架之力   >-009fcc?logoWidth=1" title="分析：美连环出击 为何中共难有招架之力  " alt="分析：美连环出击 为何中共难有招架之力  "></a></p>
-<p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/14/n12331721.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三方动作频 美中台海上争雄         >-009fcc?logoWidth=1" title="三方动作频 美中台海上争雄  " alt="三方动作频 美中台海上争雄  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918246.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大饥荒已经形成？习近平高调反浪费三大背景  >-009fcc?logoWidth=1" title="大饥荒已经形成？习近平高调反浪费三大背景  " alt="大饥荒已经形成？习近平高调反浪费三大背景  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918274.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美对孔子学院宣战 中共挂“免战牌”     >-009fcc?logoWidth=1" title="美对孔子学院宣战 中共挂“免战牌”  " alt="美对孔子学院宣战 中共挂“免战牌”  "></a></p>
+<p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/14/n12331721.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三方动作频 美中台海上争雄         >-009fcc?logoWidth=1" title="三方动作频 美中台海上争雄  " alt="三方动作频 美中台海上争雄  "></a></p>
 <p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/14/n12332058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：赖小民贪腐18亿 中共大厦将倒塌  >-009fcc?logoWidth=1" title="王友群：赖小民贪腐18亿 中共大厦将倒塌  " alt="王友群：赖小民贪腐18亿 中共大厦将倒塌  "></a></p>
-<p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/14/n12331118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李子柒身边的蝉鸣 抵不过战狼的嗥叫     >-009fcc?logoWidth=1" title="李子柒身边的蝉鸣 抵不过战狼的嗥叫  " alt="李子柒身边的蝉鸣 抵不过战狼的嗥叫  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国高铁15年内“大跃进”债务或翻倍至10万>-009fcc?logoWidth=1" title="中国高铁15年内“大跃进”债务或翻倍至10万亿  " alt="中国高铁15年内“大跃进”债务或翻倍至10万亿  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议精神？“怀念吃粮票”标语再现   >-009fcc?logoWidth=1" title="北戴河会议精神？“怀念吃粮票”标语再现  " alt="北戴河会议精神？“怀念吃粮票”标语再现  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aecffq3870/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aecffq3870/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aecffq3870/www/blob/master/README.md?j#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/aecffq3870/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aecffq3870/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aecffq3870/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aecffq3870/www/blob/master/README.md?x#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/aecffq3870/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/pzzzz">git.io/pzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/fcccc">git.io/fcccc</a></div>
 
