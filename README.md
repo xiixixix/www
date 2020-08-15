@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/miarbj3813/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/miarbj3813/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cpppp">git.io/cpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppy">x.co/ppy</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yzzzz">git.io/yzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aam">x.co/aam</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -37,7 +37,7 @@
 <p><a href="https://github.com/miarbj3813/djy/blob/master/gb/20/8/14/n12330929.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/缺钱了？疫情过后 北京颁令禁止小产权房   >-009fcc?logoWidth=1" title="缺钱了？疫情过后 北京颁令禁止小产权房  " alt="缺钱了？疫情过后 北京颁令禁止小产权房  "></a></p>
 <p><a href="https://github.com/miarbj3813/djy/blob/master/gb/20/8/14/n12329397.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微信健康码国际版将监控延伸海外       >-009fcc?logoWidth=1" title="微信健康码国际版将监控延伸海外  " alt="微信健康码国际版将监控延伸海外  "></a></p>
 <p><a href="https://github.com/miarbj3813/djy/blob/master/gb/20/8/15/n12332414.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习当局的五大误判              >-009fcc?logoWidth=1" title="习当局的五大误判  " alt="习当局的五大误判  "></a></p>
-<p><a href="https://github.com/miarbj3813/djy/blob/master/gb/20/8/15/n12333087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾高雄市长首次补选 陈其迈67万票当选  >-009fcc?logoWidth=1" title="台湾高雄市长首次补选 陈其迈67万票当选  " alt="台湾高雄市长首次补选 陈其迈67万票当选  "></a></p>
+<p><a href="https://github.com/miarbj3813/djy/blob/master/gb/20/8/15/n12333087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾高雄市长补选 陈其迈67万票当选    >-009fcc?logoWidth=1" title="台湾高雄市长补选 陈其迈67万票当选  " alt="台湾高雄市长补选 陈其迈67万票当选  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/miarbj3813/ntdtv/blob/master/gb/2020/08/15/a102918802.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情多严峻？高校“封闭管理”惹质疑   >-009fcc?logoWidth=1" title="北京疫情多严峻？高校“封闭管理”惹质疑  " alt="北京疫情多严峻？高校“封闭管理”惹质疑  "></a></p>
 <p><a href="https://github.com/miarbj3813/djy/blob/master/gb/20/8/14/n12331785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加速倒车？大陆惊现“怀念粮票时代”标语   >-009fcc?logoWidth=1" title="加速倒车？大陆惊现“怀念粮票时代”标语  " alt="加速倒车？大陆惊现“怀念粮票时代”标语  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/miarbj3813/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/miarbj3813/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/miarbj3813/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/miarbj3813/www/blob/master/README.md?y#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/miarbj3813/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/miarbj3813/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/miarbj3813/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/miarbj3813/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/miarbj3813/www/blob/master/README.md?x#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/miarbj3813/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/cpppp">git.io/cpppp</a></div>
+<div align="center">短网址: <a href="https://git.io/yzzzz">git.io/yzzzz</a></div>
 
