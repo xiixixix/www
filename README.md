@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aecffq3870/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aecffq3870/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pgggg">git.io/pgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/afa">x.co/afa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ryyyy">git.io/ryyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pjp">x.co/pjp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,7 +21,7 @@
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102917988.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习一尊的地位、连任三届的梦想，在北戴河会议上>-009fcc?logoWidth=1" title="习一尊的地位、连任三届的梦想，在北戴河会议上被妥协了？  " alt="习一尊的地位、连任三届的梦想，在北戴河会议上被妥协了？  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102917832.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平栗战书被打黑枪 敏感时刻谁在放料？  >-009fcc?logoWidth=1" title="习近平栗战书被打黑枪 敏感时刻谁在放料？  " alt="习近平栗战书被打黑枪 敏感时刻谁在放料？  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/10/a102915239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/没谈就崩了？美中贸易会谈无限期推迟     >-009fcc?logoWidth=1" title="没谈就崩了？美中贸易会谈无限期推迟  " alt="没谈就崩了？美中贸易会谈无限期推迟  "></a></p>
-<p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国高铁15年内“大跃进” 债务或翻倍至10>-009fcc?logoWidth=1" title="中国高铁15年内“大跃进” 债务或翻倍至10万亿  " alt="中国高铁15年内“大跃进” 债务或翻倍至10万亿  "></a></p>
+<p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国高铁15年内“大跃进”债务或翻倍至10万>-009fcc?logoWidth=1" title="中国高铁15年内“大跃进”债务或翻倍至10万亿  " alt="中国高铁15年内“大跃进”债务或翻倍至10万亿  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共借机和谈被拒%3F 美中贸易会谈或推迟   >-009fcc?logoWidth=1" title="中共借机和谈被拒? 美中贸易会谈或推迟  " alt="中共借机和谈被拒? 美中贸易会谈或推迟  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江第4号洪水过境重庆 江水直接灌进主城区 >-009fcc?logoWidth=1" title="长江第4号洪水过境重庆 江水直接灌进主城区  " alt="长江第4号洪水过境重庆 江水直接灌进主城区  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918352.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/TikTok违规收集用户数据 多国启动调查 >-009fcc?logoWidth=1" title="TikTok违规收集用户数据 多国启动调查  " alt="TikTok违规收集用户数据 多国启动调查  "></a></p>
@@ -40,9 +40,9 @@
 <p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/14/n12330929.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/缺钱了？疫情过后 北京颁令禁止小产权房   >-009fcc?logoWidth=1" title="缺钱了？疫情过后 北京颁令禁止小产权房  " alt="缺钱了？疫情过后 北京颁令禁止小产权房  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共渗透美高层 前佩洛西传播总监系央视外国代>-009fcc?logoWidth=1" title="中共渗透美高层 前佩洛西传播总监系央视外国代理人  " alt="中共渗透美高层 前佩洛西传播总监系央视外国代理人  "></a></p>
+<p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918321.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中资银行配合美制裁，港警退休金被逼转移大陆银>-009fcc?logoWidth=1" title="中资银行配合美制裁，港警退休金被逼转移大陆银行  " alt="中资银行配合美制裁，港警退休金被逼转移大陆银行  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102917737.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为什么要杀香港这只“下金蛋的鹅”？   >-009fcc?logoWidth=1" title="中共为什么要杀香港这只“下金蛋的鹅”？  " alt="中共为什么要杀香港这只“下金蛋的鹅”？  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102917745.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/指中共故意释放病毒 闫丽梦列出三关键点   >-009fcc?logoWidth=1" title="指中共故意释放病毒 闫丽梦列出三关键点  " alt="指中共故意释放病毒 闫丽梦列出三关键点  "></a></p>
-<p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918124.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“自愿被窃数据” 美司法部高官剖析TikTo>-009fcc?logoWidth=1" title="“自愿被窃数据” 美司法部高官剖析TikTok安全威胁  " alt="“自愿被窃数据” 美司法部高官剖析TikTok安全威胁  "></a></p>
 <p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/14/n12329504.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/答大纪元记者问 川普批香港侵犯新闻自由   >-009fcc?logoWidth=1" title="答大纪元记者问 川普批香港侵犯新闻自由  " alt="答大纪元记者问 川普批香港侵犯新闻自由  "></a></p>
 <p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/13/n12329022.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：爆料中共常委贪腐 为何缺韩正     >-009fcc?logoWidth=1" title="杨威：爆料中共常委贪腐 为何缺韩正  " alt="杨威：爆料中共常委贪腐 为何缺韩正  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议精神？“怀念吃粮票”标语再现   >-009fcc?logoWidth=1" title="北戴河会议精神？“怀念吃粮票”标语再现  " alt="北戴河会议精神？“怀念吃粮票”标语再现  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aecffq3870/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aecffq3870/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aecffq3870/www/blob/master/README.md?l#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/aecffq3870/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aecffq3870/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aecffq3870/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aecffq3870/www/blob/master/README.md?o#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/aecffq3870/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/pgggg">git.io/pgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/ryyyy">git.io/ryyyy</a></div>
 
