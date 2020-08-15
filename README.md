@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aecffq3870/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aecffq3870/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/u5555">git.io/u5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3338">x.co/3338</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g7777">git.io/g7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3pp">x.co/3pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,7 +26,7 @@
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共借机和谈被拒%3F 美中贸易会谈或推迟   >-009fcc?logoWidth=1" title="中共借机和谈被拒? 美中贸易会谈或推迟  " alt="中共借机和谈被拒? 美中贸易会谈或推迟  "></a></p>
 <p><a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/2020/08/14/a102918356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江第4号洪水过境重庆 江水直接灌进主城区 >-009fcc?logoWidth=1" title="长江第4号洪水过境重庆 江水直接灌进主城区  " alt="长江第4号洪水过境重庆 江水直接灌进主城区  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/14/n12329605.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共9大威胁 利用网红当外宣？       >-009fcc?logoWidth=1" title="中共9大威胁 利用网红当外宣？  " alt="中共9大威胁 利用网红当外宣？  "></a></p>
+<p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/14/n12329605.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共九大威胁 利用网红当外宣？       >-009fcc?logoWidth=1" title="中共九大威胁 利用网红当外宣？  " alt="中共九大威胁 利用网红当外宣？  "></a></p>
 <p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/14/n12331514.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆智库专家：中共把美国视为头号敌人    >-009fcc?logoWidth=1" title="大陆智库专家：中共把美国视为头号敌人  " alt="大陆智库专家：中共把美国视为头号敌人  "></a></p>
 <p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/14/n12329397.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微信健康码国际版将监控延伸海外       >-009fcc?logoWidth=1" title="微信健康码国际版将监控延伸海外  " alt="微信健康码国际版将监控延伸海外  "></a></p>
 <p><a href="https://github.com/aecffq3870/djy/blob/master/gb/20/8/14/n12330425.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：中南海激烈对决 曾庆红悬了？    >-009fcc?logoWidth=1" title="李正宽：中南海激烈对决 曾庆红悬了？  " alt="李正宽：中南海激烈对决 曾庆红悬了？  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aecffq3870/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aecffq3870/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aecffq3870/www/blob/master/README.md?s#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/aecffq3870/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aecffq3870/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aecffq3870/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aecffq3870/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aecffq3870/www/blob/master/README.md?h#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/aecffq3870/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/u5555">git.io/u5555</a></div>
+<div align="center">短网址: <a href="https://git.io/g7777">git.io/g7777</a></div>
 
