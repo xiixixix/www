@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/vqlmzp3474/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/vqlmzp3474/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ytttt">git.io/ytttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/344">x.co/344</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d8888">git.io/d8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppf">x.co/ppf</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,10 +40,10 @@
 <p><a href="https://github.com/vqlmzp3474/djy/blob/master/gb/20/8/14/n12331785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加速倒车？大陆惊现“怀念粮票时代”标语   >-009fcc?logoWidth=1" title="加速倒车？大陆惊现“怀念粮票时代”标语  " alt="加速倒车？大陆惊现“怀念粮票时代”标语  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/vqlmzp3474/ntdtv/blob/master/gb/2020/08/14/a102917988.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习一尊的地位、连任三届的梦想，在北戴河会议上>-009fcc?logoWidth=1" title="习一尊的地位、连任三届的梦想，在北戴河会议上被妥协了？  " alt="习一尊的地位、连任三届的梦想，在北戴河会议上被妥协了？  "></a></p>
-<p><a href="https://github.com/vqlmzp3474/ntdtv/blob/master/gb/2020/08/14/a102917832.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平栗战书被打黑枪 敏感时刻谁在放料？  >-009fcc?logoWidth=1" title="习近平栗战书被打黑枪 敏感时刻谁在放料？  " alt="习近平栗战书被打黑枪 敏感时刻谁在放料？  "></a></p>
+<p><a href="https://github.com/vqlmzp3474/ntdtv/blob/master/gb/2020/08/15/a102918644.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美推超级大炮 白俄抗暴记：警车辗人     >-009fcc?logoWidth=1" title="美推超级大炮 白俄抗暴记：警车辗人  " alt="美推超级大炮 白俄抗暴记：警车辗人  "></a></p>
 <p><a href="https://github.com/vqlmzp3474/djy/blob/master/gb/20/8/14/n12331747.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张菁：美国“净化网络” 剑指中共      >-009fcc?logoWidth=1" title="张菁：美国“净化网络” 剑指中共  " alt="张菁：美国“净化网络” 剑指中共  "></a></p>
 <p><a href="https://github.com/vqlmzp3474/djy/blob/master/gb/20/8/14/n12330899.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：美连环出击 为何中共难有招架之力   >-009fcc?logoWidth=1" title="分析：美连环出击 为何中共难有招架之力  " alt="分析：美连环出击 为何中共难有招架之力  "></a></p>
-<p><a href="https://github.com/vqlmzp3474/ntdtv/blob/master/gb/2020/08/15/a102918545.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山大退休教授孙文广失踪近两年 生死未明   >-009fcc?logoWidth=1" title="山大退休教授孙文广失踪近两年 生死未明  " alt="山大退休教授孙文广失踪近两年 生死未明  "></a></p>
+<p><a href="https://github.com/vqlmzp3474/ntdtv/blob/master/gb/2020/08/14/a102917832.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平栗战书被打黑枪 敏感时刻谁在放料？  >-009fcc?logoWidth=1" title="习近平栗战书被打黑枪 敏感时刻谁在放料？  " alt="习近平栗战书被打黑枪 敏感时刻谁在放料？  "></a></p>
 <p><a href="https://github.com/vqlmzp3474/djy/blob/master/gb/20/8/14/n12331721.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三方动作频 美中台海上争雄         >-009fcc?logoWidth=1" title="三方动作频 美中台海上争雄  " alt="三方动作频 美中台海上争雄  "></a></p>
 <p><a href="https://github.com/vqlmzp3474/djy/blob/master/gb/20/8/14/n12332058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：赖小民贪腐18亿 中共大厦将倒塌  >-009fcc?logoWidth=1" title="王友群：赖小民贪腐18亿 中共大厦将倒塌  " alt="王友群：赖小民贪腐18亿 中共大厦将倒塌  "></a></p>
 <p><a href="https://github.com/vqlmzp3474/ntdtv/blob/master/gb/2020/08/14/a102918301.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员提案 要求中共偿还1.6万亿美元债券 >-009fcc?logoWidth=1" title="美议员提案 要求中共偿还1.6万亿美元债券  " alt="美议员提案 要求中共偿还1.6万亿美元债券  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/vqlmzp3474/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vqlmzp3474/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/vqlmzp3474/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vqlmzp3474/www/blob/master/README.md?u#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/vqlmzp3474/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/vqlmzp3474/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vqlmzp3474/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/vqlmzp3474/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vqlmzp3474/www/blob/master/README.md?v#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/vqlmzp3474/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ytttt">git.io/ytttt</a></div>
+<div align="center">短网址: <a href="https://git.io/d8888">git.io/d8888</a></div>
 
