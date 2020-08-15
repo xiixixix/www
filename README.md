@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/miarbj3813/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/miarbj3813/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/xqqqq">git.io/xqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/npp">x.co/npp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d9999">git.io/d9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3aa">x.co/3aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/miarbj3813/ntdtv/blob/master/gb/2020/08/15/a102918525.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/权斗汹涌 习梦断北戴河？中共新定八精神曝光 >-009fcc?logoWidth=1" title="权斗汹涌 习梦断北戴河？中共新定八精神曝光  " alt="权斗汹涌 习梦断北戴河？中共新定八精神曝光  "></a></p>
 <p><a href="https://github.com/miarbj3813/ntdtv/blob/master/gb/2020/08/15/a102918509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乐山大佛佛脚被水淹 曾数次闭眼流泪显灵(视频>-009fcc?logoWidth=1" title="乐山大佛佛脚被水淹 曾数次闭眼流泪显灵(视频)  " alt="乐山大佛佛脚被水淹 曾数次闭眼流泪显灵(视频)  "></a></p>
 <p><a href="https://github.com/miarbj3813/ntdtv/blob/master/gb/2020/08/15/a102918942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/参与迫害法轮功 山东省逾两千人遭厄运    >-009fcc?logoWidth=1" title="参与迫害法轮功 山东省逾两千人遭厄运  " alt="参与迫害法轮功 山东省逾两千人遭厄运  "></a></p>
+<p><a href="https://github.com/miarbj3813/ntdtv/blob/master/gb/2020/08/15/a102918932.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德国田园之乡上阿玛高：远离瘟疫与尘嚣    >-009fcc?logoWidth=1" title="德国田园之乡上阿玛高：远离瘟疫与尘嚣  " alt="德国田园之乡上阿玛高：远离瘟疫与尘嚣  "></a></p>
 <p><a href="https://github.com/miarbj3813/ntdtv/blob/master/gb/2020/08/15/a102918894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/资深媒体人:在美挂五星血旗 有违立国之本  >-009fcc?logoWidth=1" title="资深媒体人:在美挂五星血旗 有违立国之本  " alt="资深媒体人:在美挂五星血旗 有违立国之本  "></a></p>
 <p><a href="https://github.com/miarbj3813/ntdtv/blob/master/gb/2020/08/15/a102918892.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/安理会拒延长伊朗武器禁运 美国将行动    >-009fcc?logoWidth=1" title="安理会拒延长伊朗武器禁运 美国将行动  " alt="安理会拒延长伊朗武器禁运 美国将行动  "></a></p>
 <p><a href="https://github.com/miarbj3813/ntdtv/blob/master/gb/2020/08/15/a102918866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余文生律师被捕近千日后首次会见律师     >-009fcc?logoWidth=1" title="余文生律师被捕近千日后首次会见律师  " alt="余文生律师被捕近千日后首次会见律师  "></a></p>
-<p><a href="https://github.com/miarbj3813/ntdtv/blob/master/gb/2020/08/15/a102918853.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台3名前立委助理沦共谍 窃蔡英文病历和法轮功>-009fcc?logoWidth=1" title="台3名前立委助理沦共谍 窃蔡英文病历和法轮功信息  " alt="台3名前立委助理沦共谍 窃蔡英文病历和法轮功信息  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/miarbj3813/djy/blob/master/gb/20/8/14/n12331597.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不再称一尊 习梦断北戴河？         >-009fcc?logoWidth=1" title="不再称一尊 习梦断北戴河？  " alt="不再称一尊 习梦断北戴河？  "></a></p>
 <p><a href="https://github.com/miarbj3813/djy/blob/master/gb/20/8/15/n12332726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美第二波制裁或很快到来 包含制裁红二代   >-009fcc?logoWidth=1" title="美第二波制裁或很快到来 包含制裁红二代  " alt="美第二波制裁或很快到来 包含制裁红二代  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/miarbj3813/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/miarbj3813/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/miarbj3813/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/miarbj3813/www/blob/master/README.md?m#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/miarbj3813/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/miarbj3813/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/miarbj3813/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/miarbj3813/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/miarbj3813/www/blob/master/README.md?o#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/miarbj3813/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/xqqqq">git.io/xqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/d9999">git.io/d9999</a></div>
 
