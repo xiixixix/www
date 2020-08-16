@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/esygwc319/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/esygwc319/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/zhhhh">git.io/zhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2777">x.co/2777</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e8888">git.io/e8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a5a">x.co/a5a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/16/a102919221.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元有新情况？ 工作室罕见发公告遭封杀  >-009fcc?logoWidth=1" title="崔永元有新情况？ 工作室罕见发公告遭封杀  " alt="崔永元有新情况？ 工作室罕见发公告遭封杀  "></a></p>
+<p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/16/a102919218.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高官寻欢淫乱被偷拍 花400多万没摆平 >-009fcc?logoWidth=1" title="中共高官寻欢淫乱被偷拍 花400多万没摆平  " alt="中共高官寻欢淫乱被偷拍 花400多万没摆平  "></a></p>
 <p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/06/a102912474.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新唐人深度报导纪录片《大疫袭来》      >-009fcc?logoWidth=1" title="新唐人深度报导纪录片《大疫袭来》  " alt="新唐人深度报导纪录片《大疫袭来》  "></a></p>
 <p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/15/a102918697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/权斗汹涌 习近平梦断北戴河？        >-009fcc?logoWidth=1" title="权斗汹涌 习近平梦断北戴河？  " alt="权斗汹涌 习近平梦断北戴河？  "></a></p>
 <p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/15/a102918778.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“里根号”航母重返南海 与B--1B轰炸机联合>-009fcc?logoWidth=1" title="“里根号”航母重返南海 与B-1B轰炸机联合演习  " alt="“里根号”航母重返南海 与B-1B轰炸机联合演习  "></a></p>
 <p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/15/a102918765.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：美国拟对红二代实施制裁        >-009fcc?logoWidth=1" title="港媒：美国拟对红二代实施制裁  " alt="港媒：美国拟对红二代实施制裁  "></a></p>
-<p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/15/a102918694.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共和谈被拒 美中贸易会谈推迟       >-009fcc?logoWidth=1" title="中共和谈被拒 美中贸易会谈推迟  " alt="中共和谈被拒 美中贸易会谈推迟  "></a></p>
-<p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/15/a102918525.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/权斗汹涌 习梦断北戴河？中共新定八精神曝光 >-009fcc?logoWidth=1" title="权斗汹涌 习梦断北戴河？中共新定八精神曝光  " alt="权斗汹涌 习梦断北戴河？中共新定八精神曝光  "></a></p>
 <p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/16/a102919176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又是王沪宁馊主意？中国小学课本现“习语录” >-009fcc?logoWidth=1" title="又是王沪宁馊主意？中国小学课本现“习语录”  " alt="又是王沪宁馊主意？中国小学课本现“习语录”  "></a></p>
 <p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/16/a102919206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒 全球超过2124万例确诊逾76万人>-009fcc?logoWidth=1" title="中共病毒 全球超过2124万例确诊逾76万人丧生  " alt="中共病毒 全球超过2124万例确诊逾76万人丧生  "></a></p>
 <p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/16/a102919185.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本货轮模里西斯触礁漏油 船身断裂成两半  >-009fcc?logoWidth=1" title="日本货轮模里西斯触礁漏油 船身断裂成两半  " alt="日本货轮模里西斯触礁漏油 船身断裂成两半  "></a></p>
@@ -489,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/esygwc319/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/esygwc319/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/esygwc319/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/esygwc319/www/blob/master/README.md?d#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/esygwc319/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/esygwc319/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/esygwc319/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/esygwc319/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/esygwc319/www/blob/master/README.md?r#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/esygwc319/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/zhhhh">git.io/zhhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/e8888">git.io/e8888</a></div>
 
