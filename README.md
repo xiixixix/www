@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cnhybi398/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cnhybi398/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/777777">git.io/777777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppm">x.co/ppm</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/issss">git.io/issss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aav">x.co/aav</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,7 +40,6 @@
 <p><a href="https://github.com/cnhybi398/djy/blob/master/gb/20/8/15/n12333949.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张慧东：中共为何高调宣传节约粮食      >-009fcc?logoWidth=1" title="张慧东：中共为何高调宣传节约粮食  " alt="张慧东：中共为何高调宣传节约粮食  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/cnhybi398/ntdtv/blob/master/gb/2020/08/16/a102919285.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国惊现神秘病毒麦田圈！          >-009fcc?logoWidth=1" title="英国惊现神秘病毒麦田圈！  " alt="英国惊现神秘病毒麦田圈！  "></a></p>
-<p><a href="https://github.com/cnhybi398/ntdtv/blob/master/gb/2020/08/15/a102918986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共援俄逾百吨大米 陆媒却鼓励民众“恢复饥饿>-009fcc?logoWidth=1" title="中共援俄逾百吨大米 陆媒却鼓励民众“恢复饥饿感”  " alt="中共援俄逾百吨大米 陆媒却鼓励民众“恢复饥饿感”  "></a></p>
 <p><a href="https://github.com/cnhybi398/ntdtv/blob/master/gb/2020/08/16/a102919168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普追讨1.6兆美元？中共好尴尬！/通俄门解>-009fcc?logoWidth=1" title="川普追讨1.6兆美元？中共好尴尬！/通俄门解秘：英间谍也涉入， FBI前律师承认造假  " alt="川普追讨1.6兆美元？中共好尴尬！/通俄门解秘：英间谍也涉入， FBI前律师承认造假  "></a></p>
 <p><a href="https://github.com/cnhybi398/djy/blob/master/gb/20/8/15/n12333999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/掸封尘：谁是“全宇宙最幸福的仆人”？    >-009fcc?logoWidth=1" title="掸封尘：谁是“全宇宙最幸福的仆人”？  " alt="掸封尘：谁是“全宇宙最幸福的仆人”？  "></a></p>
 <p><a href="https://github.com/cnhybi398/djy/blob/master/gb/20/8/15/n12333565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传北戴河会议仍在开 中共高层会讨论啥问题？ >-009fcc?logoWidth=1" title="传北戴河会议仍在开 中共高层会讨论啥问题？  " alt="传北戴河会议仍在开 中共高层会讨论啥问题？  "></a></p>
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cnhybi398/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cnhybi398/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cnhybi398/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cnhybi398/www/blob/master/README.md?e#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cnhybi398/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cnhybi398/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cnhybi398/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cnhybi398/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cnhybi398/www/blob/master/README.md?e#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cnhybi398/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/777777">git.io/777777</a></div>
+<div align="center">短网址: <a href="https://git.io/issss">git.io/issss</a></div>
 
