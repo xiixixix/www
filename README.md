@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cnhybi398/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cnhybi398/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/issss">git.io/issss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aav">x.co/aav</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/6666666">git.io/6666666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/bpp">x.co/bpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/cnhybi398/ntdtv/blob/master/gb/2020/08/16/a102919344.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台海战事箭在弦 美挺台军售升级       >-009fcc?logoWidth=1" title="台海战事箭在弦 美挺台军售升级  " alt="台海战事箭在弦 美挺台军售升级  "></a></p>
 <p><a href="https://github.com/cnhybi398/ntdtv/blob/master/gb/2020/08/16/a102919294.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/深圳突发疫情 检测点人龙一眼看不到头    >-009fcc?logoWidth=1" title="深圳突发疫情 检测点人龙一眼看不到头  " alt="深圳突发疫情 检测点人龙一眼看不到头  "></a></p>
 <p><a href="https://github.com/cnhybi398/ntdtv/blob/master/gb/2020/08/16/a102919274.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议仍在开？ 13大难题个个无解   >-009fcc?logoWidth=1" title="北戴河会议仍在开？ 13大难题个个无解  " alt="北戴河会议仍在开？ 13大难题个个无解  "></a></p>
 <p><a href="https://github.com/cnhybi398/ntdtv/blob/master/gb/2020/08/16/a102919221.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元有新情况？ 工作室罕见发公告遭封杀  >-009fcc?logoWidth=1" title="崔永元有新情况？ 工作室罕见发公告遭封杀  " alt="崔永元有新情况？ 工作室罕见发公告遭封杀  "></a></p>
 <p><a href="https://github.com/cnhybi398/ntdtv/blob/master/gb/2020/08/16/a102919218.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高官寻欢被偷拍 花400多万没摆平   >-009fcc?logoWidth=1" title="中共高官寻欢被偷拍 花400多万没摆平  " alt="中共高官寻欢被偷拍 花400多万没摆平  "></a></p>
 <p><a href="https://github.com/cnhybi398/ntdtv/blob/master/gb/2020/08/06/a102912474.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新唐人深度报导纪录片《大疫袭来》      >-009fcc?logoWidth=1" title="新唐人深度报导纪录片《大疫袭来》  " alt="新唐人深度报导纪录片《大疫袭来》  "></a></p>
-<p><a href="https://github.com/cnhybi398/ntdtv/blob/master/gb/2020/08/15/a102918697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/权斗汹涌 习近平梦断北戴河？        >-009fcc?logoWidth=1" title="权斗汹涌 习近平梦断北戴河？  " alt="权斗汹涌 习近平梦断北戴河？  "></a></p>
 <p><a href="https://github.com/cnhybi398/ntdtv/blob/master/gb/2020/08/16/a102919296.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国成立UFO专案小组 锁定中共空中间谍  >-009fcc?logoWidth=1" title="美国成立UFO专案小组 锁定中共空中间谍  " alt="美国成立UFO专案小组 锁定中共空中间谍  "></a></p>
 <p><a href="https://github.com/cnhybi398/ntdtv/blob/master/gb/2020/08/16/a102919276.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阿里巴巴也悬了？ 川普在考虑是否封杀    >-009fcc?logoWidth=1" title="阿里巴巴也悬了？ 川普在考虑是否封杀  " alt="阿里巴巴也悬了？ 川普在考虑是否封杀  "></a></p>
 <p><a href="https://github.com/cnhybi398/ntdtv/blob/master/gb/2020/08/16/a102919176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又是王沪宁馊主意？中国小学课本现“习语录” >-009fcc?logoWidth=1" title="又是王沪宁馊主意？中国小学课本现“习语录”  " alt="又是王沪宁馊主意？中国小学课本现“习语录”  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cnhybi398/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cnhybi398/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cnhybi398/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cnhybi398/www/blob/master/README.md?e#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cnhybi398/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cnhybi398/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cnhybi398/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cnhybi398/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cnhybi398/www/blob/master/README.md?y#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cnhybi398/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/issss">git.io/issss</a></div>
+<div align="center">短网址: <a href="https://git.io/6666666">git.io/6666666</a></div>
 
