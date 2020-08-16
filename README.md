@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/esygwc319/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/esygwc319/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tpppp">git.io/tpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3338">x.co/3338</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tgggg">git.io/tgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3222">x.co/3222</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/15/a102918694.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共和谈被拒 美中贸易会谈推迟       >-009fcc?logoWidth=1" title="中共和谈被拒 美中贸易会谈推迟  " alt="中共和谈被拒 美中贸易会谈推迟  "></a></p>
 <p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/15/a102918525.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/权斗汹涌 习梦断北戴河？中共新定八精神曝光 >-009fcc?logoWidth=1" title="权斗汹涌 习梦断北戴河？中共新定八精神曝光  " alt="权斗汹涌 习梦断北戴河？中共新定八精神曝光  "></a></p>
 <p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/15/a102918509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乐山大佛佛脚被水淹 曾数次闭眼流泪显灵(视频>-009fcc?logoWidth=1" title="乐山大佛佛脚被水淹 曾数次闭眼流泪显灵(视频)  " alt="乐山大佛佛脚被水淹 曾数次闭眼流泪显灵(视频)  "></a></p>
+<p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/10/a102915239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乐山大佛佛脚被水淹 曾数次闭眼流泪显灵(视频>-009fcc?logoWidth=1" title="乐山大佛佛脚被水淹 曾数次闭眼流泪显灵(视频)  " alt="乐山大佛佛脚被水淹 曾数次闭眼流泪显灵(视频)  "></a></p>
 <p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/15/a102919060.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国商会：逾五成会员拟离开香港 数字仍在增加>-009fcc?logoWidth=1" title="美国商会：逾五成会员拟离开香港 数字仍在增加  " alt="美国商会：逾五成会员拟离开香港 数字仍在增加  "></a></p>
 <p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/15/a102919052.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/8.15川普总统召开新闻发布会（中文同声翻译>-009fcc?logoWidth=1" title="8.15川普总统召开新闻发布会（中文同声翻译）  " alt="8.15川普总统召开新闻发布会（中文同声翻译）  "></a></p>
 <p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/15/a102919032.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为塔山计划自造芯片？内部人士：比登天还难 >-009fcc?logoWidth=1" title="华为塔山计划自造芯片？内部人士：比登天还难  " alt="华为塔山计划自造芯片？内部人士：比登天还难  "></a></p>
 <p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/15/a102919022.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/厦门飞机冲上马路 官称“正常维修”（视频） >-009fcc?logoWidth=1" title="厦门飞机冲上马路 官称“正常维修”（视频）  " alt="厦门飞机冲上马路 官称“正常维修”（视频）  "></a></p>
-<p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/15/a102918942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/参与迫害法轮功 山东省逾两千人遭厄运    >-009fcc?logoWidth=1" title="参与迫害法轮功 山东省逾两千人遭厄运  " alt="参与迫害法轮功 山东省逾两千人遭厄运  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/esygwc319/djy/blob/master/gb/20/8/15/n12333794.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共罕见急速回应川普90天剥离抖音  >-009fcc?logoWidth=1" title="钟原：中共罕见急速回应川普90天剥离抖音  " alt="钟原：中共罕见急速回应川普90天剥离抖音  "></a></p>
 <p><a href="https://github.com/esygwc319/djy/blob/master/gb/20/8/15/n12332726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美第二波制裁或很快到来 包含制裁红二代   >-009fcc?logoWidth=1" title="美第二波制裁或很快到来 包含制裁红二代  " alt="美第二波制裁或很快到来 包含制裁红二代  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/esygwc319/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/esygwc319/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/esygwc319/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/esygwc319/www/blob/master/README.md?e#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/esygwc319/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/esygwc319/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/esygwc319/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/esygwc319/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/esygwc319/www/blob/master/README.md?c#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/esygwc319/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/tpppp">git.io/tpppp</a></div>
+<div align="center">短网址: <a href="https://git.io/tgggg">git.io/tgggg</a></div>
 
