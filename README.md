@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cbxkcm306/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cbxkcm306/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nssss">git.io/nssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/4pp">x.co/4pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qbbbb">git.io/qbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp4">x.co/pp4</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -19,16 +19,16 @@
 <p><a href="https://github.com/cbxkcm306/ntdtv/blob/master/gb/2020/08/16/a102919274.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议仍在开？ 13大难题个个无解   >-009fcc?logoWidth=1" title="北戴河会议仍在开？ 13大难题个个无解  " alt="北戴河会议仍在开？ 13大难题个个无解  "></a></p>
 <p><a href="https://github.com/cbxkcm306/ntdtv/blob/master/gb/2020/08/16/a102919221.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元有新情况？ 工作室罕见发公告遭封杀  >-009fcc?logoWidth=1" title="崔永元有新情况？ 工作室罕见发公告遭封杀  " alt="崔永元有新情况？ 工作室罕见发公告遭封杀  "></a></p>
 <p><a href="https://github.com/cbxkcm306/ntdtv/blob/master/gb/2020/08/16/a102919218.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高官寻欢被偷拍 花400多万没摆平   >-009fcc?logoWidth=1" title="中共高官寻欢被偷拍 花400多万没摆平  " alt="中共高官寻欢被偷拍 花400多万没摆平  "></a></p>
+<p><a href="https://github.com/cbxkcm306/ntdtv/blob/master/gb/2020/08/16/a102919451.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白俄罗斯争议大选爆示威潮 独裁者向俄国寻援助>-009fcc?logoWidth=1" title="白俄罗斯争议大选爆示威潮 独裁者向俄国寻援助  " alt="白俄罗斯争议大选爆示威潮 独裁者向俄国寻援助  "></a></p>
 <p><a href="https://github.com/cbxkcm306/ntdtv/blob/master/gb/2020/08/16/a102919428.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阿利安5型火箭送两枚通讯卫星上轨道     >-009fcc?logoWidth=1" title="阿利安5型火箭送两枚通讯卫星上轨道  " alt="阿利安5型火箭送两枚通讯卫星上轨道  "></a></p>
 <p><a href="https://github.com/cbxkcm306/ntdtv/blob/master/gb/2020/08/16/a102919394.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大白鲨猛咬妻子 澳洲男挥拳痛击 勇救妻命  >-009fcc?logoWidth=1" title="大白鲨猛咬妻子 澳洲男挥拳痛击 勇救妻命  " alt="大白鲨猛咬妻子 澳洲男挥拳痛击 勇救妻命  "></a></p>
 <p><a href="https://github.com/cbxkcm306/ntdtv/blob/master/gb/2020/08/16/a102919372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胞弟罗伯特去世享年72岁 川普：我永远怀念他>-009fcc?logoWidth=1" title="胞弟罗伯特去世享年72岁 川普：我永远怀念他  " alt="胞弟罗伯特去世享年72岁 川普：我永远怀念他  "></a></p>
 <p><a href="https://github.com/cbxkcm306/ntdtv/blob/master/gb/2020/08/16/a102919359.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院发言人要求立即停止迫害法轮功    >-009fcc?logoWidth=1" title="美国务院发言人要求立即停止迫害法轮功  " alt="美国务院发言人要求立即停止迫害法轮功  "></a></p>
-<p><a href="https://github.com/cbxkcm306/ntdtv/blob/master/gb/2020/08/16/a102919318.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/斑鸠夫妇豪车上筑巢 迪拜王子一个动作获热赞 >-009fcc?logoWidth=1" title="斑鸠夫妇豪车上筑巢 迪拜王子一个动作获热赞  " alt="斑鸠夫妇豪车上筑巢 迪拜王子一个动作获热赞  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/cbxkcm306/djy/blob/master/gb/20/8/14/n12332073.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中石油密件曝海外党组织转地下        >-009fcc?logoWidth=1" title="中石油密件曝海外党组织转地下  " alt="中石油密件曝海外党组织转地下  "></a></p>
 <p><a href="https://github.com/cbxkcm306/djy/blob/master/gb/20/8/15/n12333794.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共罕见急速回应川普90天剥离抖音  >-009fcc?logoWidth=1" title="钟原：中共罕见急速回应川普90天剥离抖音  " alt="钟原：中共罕见急速回应川普90天剥离抖音  "></a></p>
+<p><a href="https://github.com/cbxkcm306/djy/blob/master/gb/20/8/16/n12334682.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/向中产下手？业主：中共是土匪起家      >-009fcc?logoWidth=1" title="向中产下手？业主：中共是土匪起家  " alt="向中产下手？业主：中共是土匪起家  "></a></p>
 <p><a href="https://github.com/cbxkcm306/djy/blob/master/gb/20/8/15/n12334056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/通俄门证人将认罪 揭川普被告内幕？     >-009fcc?logoWidth=1" title="通俄门证人将认罪 揭川普被告内幕？  " alt="通俄门证人将认罪 揭川普被告内幕？  "></a></p>
-<p><a href="https://github.com/cbxkcm306/djy/blob/master/gb/20/8/6/n12312005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纪录片《大疫袭来》 寻找人类命运的答案   >-009fcc?logoWidth=1" title="纪录片《大疫袭来》 寻找人类命运的答案  " alt="纪录片《大疫袭来》 寻找人类命运的答案  "></a></p>
 <p><a href="https://github.com/cbxkcm306/djy/blob/master/gb/20/8/16/n12334334.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：高智晟律师失踪三年 中共怕什么？   >-009fcc?logoWidth=1" title="田云：高智晟律师失踪三年 中共怕什么？  " alt="田云：高智晟律师失踪三年 中共怕什么？  "></a></p>
 <p><a href="https://github.com/cbxkcm306/djy/blob/master/gb/20/8/15/n12334079.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台涉共谍案 曝光中共秘探法轮功情报黑幕   >-009fcc?logoWidth=1" title="台涉共谍案 曝光中共秘探法轮功情报黑幕  " alt="台涉共谍案 曝光中共秘探法轮功情报黑幕  "></a></p>
 <p><a href="https://github.com/cbxkcm306/djy/blob/master/gb/20/8/15/n12334196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：“怀念吃粮票的时代”传递了什么信息？ >-009fcc?logoWidth=1" title="袁斌：“怀念吃粮票的时代”传递了什么信息？  " alt="袁斌：“怀念吃粮票的时代”传递了什么信息？  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cbxkcm306/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cbxkcm306/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cbxkcm306/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cbxkcm306/www/blob/master/README.md?k#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cbxkcm306/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cbxkcm306/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cbxkcm306/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cbxkcm306/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cbxkcm306/www/blob/master/README.md?a#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cbxkcm306/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/nssss">git.io/nssss</a></div>
+<div align="center">短网址: <a href="https://git.io/qbbbb">git.io/qbbbb</a></div>
 
