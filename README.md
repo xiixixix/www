@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/esygwc319/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/esygwc319/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mmmmmmmm">git.io/mmmmmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/4445">x.co/4445</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/sssss">git.io/sssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j66">x.co/j66</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/esygwc319/djy/blob/master/gb/20/8/15/n12333250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老访民：只“挂号”不“治病”是何制度？   >-009fcc?logoWidth=1" title="老访民：只“挂号”不“治病”是何制度？  " alt="老访民：只“挂号”不“治病”是何制度？  "></a></p>
 <p><a href="https://github.com/esygwc319/djy/blob/master/gb/20/8/14/n12332058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：赖小民贪腐18亿 中共大厦将倒塌  >-009fcc?logoWidth=1" title="王友群：赖小民贪腐18亿 中共大厦将倒塌  " alt="王友群：赖小民贪腐18亿 中共大厦将倒塌  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/15/a102918858.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与中共间谍机构合作 美智库布鲁金斯学会受查 >-009fcc?logoWidth=1" title="与中共间谍机构合作 美智库布鲁金斯学会受查  " alt="与中共间谍机构合作 美智库布鲁金斯学会受查  "></a></p>
 <p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/15/a102918879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/小心货币监控你%3F%3F数字人民币急飇      >-009fcc?logoWidth=1" title="小心货币监控你??数字人民币急飇  " alt="小心货币监控你??数字人民币急飇  "></a></p>
 <p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/15/a102918802.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情多严峻？高校“封闭管理”惹质疑   >-009fcc?logoWidth=1" title="北京疫情多严峻？高校“封闭管理”惹质疑  " alt="北京疫情多严峻？高校“封闭管理”惹质疑  "></a></p>
 <p><a href="https://github.com/esygwc319/djy/blob/master/gb/20/8/15/n12332484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传美推超级大炮 白俄罗斯抗暴记       >-009fcc?logoWidth=1" title="传美推超级大炮 白俄罗斯抗暴记  " alt="传美推超级大炮 白俄罗斯抗暴记  "></a></p>
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/esygwc319/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/esygwc319/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/esygwc319/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/esygwc319/www/blob/master/README.md?m#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/esygwc319/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/esygwc319/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/esygwc319/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/esygwc319/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/esygwc319/www/blob/master/README.md?h#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/esygwc319/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/mmmmmmmm">git.io/mmmmmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/sssss">git.io/sssss</a></div>
 
