@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cbxkcm306/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cbxkcm306/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/neeee">git.io/neeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/8pp">x.co/8pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ktttt">git.io/ktttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9pp">x.co/9pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -38,15 +38,14 @@
 <p><a href="https://github.com/cbxkcm306/djy/blob/master/gb/20/8/16/n12334400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海80后女官搞权钱色交易 被政务开除   >-009fcc?logoWidth=1" title="上海80后女官搞权钱色交易 被政务开除  " alt="上海80后女官搞权钱色交易 被政务开除  "></a></p>
 <p><a href="https://github.com/cbxkcm306/djy/blob/master/gb/20/8/16/n12334243.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：北京市委第二书记刘仁被整死之谜   >-009fcc?logoWidth=1" title="王友群：北京市委第二书记刘仁被整死之谜  " alt="王友群：北京市委第二书记刘仁被整死之谜  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/cbxkcm306/djy/blob/master/gb/20/8/15/n12333765.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国经济数据惨淡 洪患不断 复苏之路艰难  >-009fcc?logoWidth=1" title="中国经济数据惨淡 洪患不断 复苏之路艰难  " alt="中国经济数据惨淡 洪患不断 复苏之路艰难  "></a></p>
 <p><a href="https://github.com/cbxkcm306/ntdtv/blob/master/gb/2020/08/16/a102919420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议没完没了 13大难题个个无解   >-009fcc?logoWidth=1" title="北戴河会议没完没了 13大难题个个无解  " alt="北戴河会议没完没了 13大难题个个无解  "></a></p>
 <p><a href="https://github.com/cbxkcm306/ntdtv/blob/master/gb/2020/08/06/a102912474.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新唐人深度报导纪录片《大疫袭来》      >-009fcc?logoWidth=1" title="新唐人深度报导纪录片《大疫袭来》  " alt="新唐人深度报导纪录片《大疫袭来》  "></a></p>
 <p><a href="https://github.com/cbxkcm306/ntdtv/blob/master/gb/2020/08/16/a102919296.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国成立UFO专案小组 锁定中共空中间谍  >-009fcc?logoWidth=1" title="美国成立UFO专案小组 锁定中共空中间谍  " alt="美国成立UFO专案小组 锁定中共空中间谍  "></a></p>
 <p><a href="https://github.com/cbxkcm306/djy/blob/master/gb/20/8/15/n12334133.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/还会禁哪些中国科技公司？川普：正考虑    >-009fcc?logoWidth=1" title="还会禁哪些中国科技公司？川普：正考虑  " alt="还会禁哪些中国科技公司？川普：正考虑  "></a></p>
 <p><a href="https://github.com/cbxkcm306/djy/blob/master/gb/20/8/15/n12333949.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张慧东：中共为何高调宣传节约粮食      >-009fcc?logoWidth=1" title="张慧东：中共为何高调宣传节约粮食  " alt="张慧东：中共为何高调宣传节约粮食  "></a></p>
 <p><a href="https://github.com/cbxkcm306/ntdtv/blob/master/gb/2020/08/16/a102919168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普追讨1.6兆美元？中共好尴尬！/通俄门解>-009fcc?logoWidth=1" title="川普追讨1.6兆美元？中共好尴尬！/通俄门解秘：英间谍也涉入， FBI前律师承认造假  " alt="川普追讨1.6兆美元？中共好尴尬！/通俄门解秘：英间谍也涉入， FBI前律师承认造假  "></a></p>
-<p><a href="https://github.com/cbxkcm306/djy/blob/master/gb/20/8/15/n12333999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/掸封尘：谁是“全宇宙最幸福的仆人”？    >-009fcc?logoWidth=1" title="掸封尘：谁是“全宇宙最幸福的仆人”？  " alt="掸封尘：谁是“全宇宙最幸福的仆人”？  "></a></p>
-<p><a href="https://github.com/cbxkcm306/djy/blob/master/gb/20/8/16/n12334375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习要求节约粮食 分析：中共内忧外患严重   >-009fcc?logoWidth=1" title="习要求节约粮食 分析：中共内忧外患严重  " alt="习要求节约粮食 分析：中共内忧外患严重  "></a></p>
+<p><a href="https://github.com/cbxkcm306/djy/blob/master/gb/20/8/16/n12334713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共曝军演片子 美军机离大陆最近93公里  >-009fcc?logoWidth=1" title="中共曝军演片子 美军机离大陆最近93公里  " alt="中共曝军演片子 美军机离大陆最近93公里  "></a></p>
+<p><a href="https://github.com/cbxkcm306/djy/blob/master/gb/20/8/15/n12333765.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国经济数据惨淡 洪患不断 复苏之路艰难  >-009fcc?logoWidth=1" title="中国经济数据惨淡 洪患不断 复苏之路艰难  " alt="中国经济数据惨淡 洪患不断 复苏之路艰难  "></a></p>
 <p><a href="https://github.com/cbxkcm306/ntdtv/blob/master/gb/2020/08/14/a102917988.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习一尊的地位、连任三届的梦想，在北戴河会议上>-009fcc?logoWidth=1" title="习一尊的地位、连任三届的梦想，在北戴河会议上被妥协了？  " alt="习一尊的地位、连任三届的梦想，在北戴河会议上被妥协了？  "></a></p>
 <p><a href="https://github.com/cbxkcm306/ntdtv/blob/master/gb/2020/08/15/a102918481.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/VPN翻墙将判死刑？北戴河新政外软内硬，习近>-009fcc?logoWidth=1" title="VPN翻墙将判死刑？北戴河新政外软内硬，习近平五大误区  " alt="VPN翻墙将判死刑？北戴河新政外软内硬，习近平五大误区  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -486,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cbxkcm306/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cbxkcm306/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cbxkcm306/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cbxkcm306/www/blob/master/README.md?h#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cbxkcm306/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cbxkcm306/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cbxkcm306/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cbxkcm306/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cbxkcm306/www/blob/master/README.md?q#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cbxkcm306/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/neeee">git.io/neeee</a></div>
+<div align="center">短网址: <a href="https://git.io/ktttt">git.io/ktttt</a></div>
 
