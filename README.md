@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cbxkcm306/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cbxkcm306/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/djjjj">git.io/djjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/faa">x.co/faa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nssss">git.io/nssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/4pp">x.co/4pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,8 +27,8 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/cbxkcm306/djy/blob/master/gb/20/8/14/n12332073.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中石油密件曝海外党组织转地下        >-009fcc?logoWidth=1" title="中石油密件曝海外党组织转地下  " alt="中石油密件曝海外党组织转地下  "></a></p>
 <p><a href="https://github.com/cbxkcm306/djy/blob/master/gb/20/8/15/n12333794.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共罕见急速回应川普90天剥离抖音  >-009fcc?logoWidth=1" title="钟原：中共罕见急速回应川普90天剥离抖音  " alt="钟原：中共罕见急速回应川普90天剥离抖音  "></a></p>
-<p><a href="https://github.com/cbxkcm306/djy/blob/master/gb/20/8/16/n12334682.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/向中产下手？业主：中共是土匪起家      >-009fcc?logoWidth=1" title="向中产下手？业主：中共是土匪起家  " alt="向中产下手？业主：中共是土匪起家  "></a></p>
 <p><a href="https://github.com/cbxkcm306/djy/blob/master/gb/20/8/15/n12334056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/通俄门证人将认罪 揭川普被告内幕？     >-009fcc?logoWidth=1" title="通俄门证人将认罪 揭川普被告内幕？  " alt="通俄门证人将认罪 揭川普被告内幕？  "></a></p>
+<p><a href="https://github.com/cbxkcm306/djy/blob/master/gb/20/8/6/n12312005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纪录片《大疫袭来》 寻找人类命运的答案   >-009fcc?logoWidth=1" title="纪录片《大疫袭来》 寻找人类命运的答案  " alt="纪录片《大疫袭来》 寻找人类命运的答案  "></a></p>
 <p><a href="https://github.com/cbxkcm306/djy/blob/master/gb/20/8/16/n12334334.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：高智晟律师失踪三年 中共怕什么？   >-009fcc?logoWidth=1" title="田云：高智晟律师失踪三年 中共怕什么？  " alt="田云：高智晟律师失踪三年 中共怕什么？  "></a></p>
 <p><a href="https://github.com/cbxkcm306/djy/blob/master/gb/20/8/15/n12334079.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台涉共谍案 曝光中共秘探法轮功情报黑幕   >-009fcc?logoWidth=1" title="台涉共谍案 曝光中共秘探法轮功情报黑幕  " alt="台涉共谍案 曝光中共秘探法轮功情报黑幕  "></a></p>
 <p><a href="https://github.com/cbxkcm306/djy/blob/master/gb/20/8/15/n12334196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：“怀念吃粮票的时代”传递了什么信息？ >-009fcc?logoWidth=1" title="袁斌：“怀念吃粮票的时代”传递了什么信息？  " alt="袁斌：“怀念吃粮票的时代”传递了什么信息？  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cbxkcm306/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cbxkcm306/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cbxkcm306/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cbxkcm306/www/blob/master/README.md?g#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cbxkcm306/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cbxkcm306/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cbxkcm306/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cbxkcm306/www/master/index.html?u">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cbxkcm306/www/blob/master/README.md?k#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cbxkcm306/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/djjjj">git.io/djjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/nssss">git.io/nssss</a></div>
 
