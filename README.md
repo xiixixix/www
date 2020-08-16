@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/esygwc319/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/esygwc319/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tgggg">git.io/tgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3222">x.co/3222</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hjjjj">git.io/hjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/7pp">x.co/7pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,10 +41,10 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/15/a102918612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台海战云密布 专家：中共若强攻 必是死路一条>-009fcc?logoWidth=1" title="台海战云密布 专家：中共若强攻 必是死路一条  " alt="台海战云密布 专家：中共若强攻 必是死路一条  "></a></p>
 <p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/15/a102918802.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情多严峻？高校“封闭管理”惹质疑   >-009fcc?logoWidth=1" title="北京疫情多严峻？高校“封闭管理”惹质疑  " alt="北京疫情多严峻？高校“封闭管理”惹质疑  "></a></p>
-<p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/15/a102918602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东疫情再现 北京、湖北患者接连“复阳”  >-009fcc?logoWidth=1" title="广东疫情再现 北京、湖北患者接连“复阳”  " alt="广东疫情再现 北京、湖北患者接连“复阳”  "></a></p>
+<p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/15/a102919035.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/佚名：致习近平的一封公开信         >-009fcc?logoWidth=1" title="佚名：致习近平的一封公开信  " alt="佚名：致习近平的一封公开信  "></a></p>
 <p><a href="https://github.com/esygwc319/djy/blob/master/gb/20/8/15/n12332484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传美推超级大炮 白俄罗斯抗暴记       >-009fcc?logoWidth=1" title="传美推超级大炮 白俄罗斯抗暴记  " alt="传美推超级大炮 白俄罗斯抗暴记  "></a></p>
 <p><a href="https://github.com/esygwc319/djy/blob/master/gb/20/8/15/n12332961.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：美中贸易会谈推迟 谁掌主动权？    >-009fcc?logoWidth=1" title="田云：美中贸易会谈推迟 谁掌主动权？  " alt="田云：美中贸易会谈推迟 谁掌主动权？  "></a></p>
-<p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/15/a102918548.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/紧张局势升级 美国向台湾出售66架F--16战>-009fcc?logoWidth=1" title="紧张局势升级 美国向台湾出售66架F-16战机  " alt="紧张局势升级 美国向台湾出售66架F-16战机  "></a></p>
+<p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/15/a102919043.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/在平型关大捷和百团大战中共军弟兄们在哪里%3F >-009fcc?logoWidth=1" title="在平型关大捷和百团大战中共军弟兄们在哪里? |  " alt="在平型关大捷和百团大战中共军弟兄们在哪里? |  "></a></p>
 <p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/15/a102918723.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共航母冒黑烟的内幕！美国为什么猛打台湾牌？>-009fcc?logoWidth=1" title="中共航母冒黑烟的内幕！美国为什么猛打台湾牌？  " alt="中共航母冒黑烟的内幕！美国为什么猛打台湾牌？  "></a></p>
 <p><a href="https://github.com/esygwc319/djy/blob/master/gb/20/8/15/n12332249.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普颁令 字节跳动90天内分拆TikTok资>-009fcc?logoWidth=1" title="川普颁令 字节跳动90天内分拆TikTok资产  " alt="川普颁令 字节跳动90天内分拆TikTok资产  "></a></p>
 <p><a href="https://github.com/esygwc319/djy/blob/master/gb/20/8/15/n12332993.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京喊节粮 各地出怪招 网民吐槽      >-009fcc?logoWidth=1" title="北京喊节粮 各地出怪招 网民吐槽  " alt="北京喊节粮 各地出怪招 网民吐槽  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/esygwc319/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/esygwc319/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/esygwc319/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/esygwc319/www/blob/master/README.md?c#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/esygwc319/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/esygwc319/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/esygwc319/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/esygwc319/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/esygwc319/www/blob/master/README.md?g#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/esygwc319/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/tgggg">git.io/tgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/hjjjj">git.io/hjjjj</a></div>
 
