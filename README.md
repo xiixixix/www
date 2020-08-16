@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/esygwc319/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/esygwc319/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/khhhh">git.io/khhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/raa">x.co/raa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ceeee">git.io/ceeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pcp">x.co/pcp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,14 +40,13 @@
 <p><a href="https://github.com/esygwc319/djy/blob/master/gb/20/8/15/n12333949.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张慧东：中共为何高调宣传节约粮食      >-009fcc?logoWidth=1" title="张慧东：中共为何高调宣传节约粮食  " alt="张慧东：中共为何高调宣传节约粮食  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/16/a102919285.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国惊现神秘病毒麦田圈！          >-009fcc?logoWidth=1" title="英国惊现神秘病毒麦田圈！  " alt="英国惊现神秘病毒麦田圈！  "></a></p>
-<p><a href="https://github.com/esygwc319/djy/blob/master/gb/20/8/15/n12333565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传北戴河会议仍在开 中共高层会讨论啥问题？ >-009fcc?logoWidth=1" title="传北戴河会议仍在开 中共高层会讨论啥问题？  " alt="传北戴河会议仍在开 中共高层会讨论啥问题？  "></a></p>
 <p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/14/a102917988.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习一尊的地位、连任三届的梦想，在北戴河会议上>-009fcc?logoWidth=1" title="习一尊的地位、连任三届的梦想，在北戴河会议上被妥协了？  " alt="习一尊的地位、连任三届的梦想，在北戴河会议上被妥协了？  "></a></p>
-<p><a href="https://github.com/esygwc319/djy/blob/master/gb/20/8/15/n12332270.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/警惕失业型经济复苏             >-009fcc?logoWidth=1" title="警惕失业型经济复苏  " alt="警惕失业型经济复苏  "></a></p>
-<p><a href="https://github.com/esygwc319/djy/blob/master/gb/20/8/15/n12332726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美第二波制裁或很快到来 包含制裁红二代   >-009fcc?logoWidth=1" title="美第二波制裁或很快到来 包含制裁红二代  " alt="美第二波制裁或很快到来 包含制裁红二代  "></a></p>
+<p><a href="https://github.com/esygwc319/djy/blob/master/gb/20/8/15/n12333999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/掸封尘：谁是“全宇宙最幸福的仆人”？    >-009fcc?logoWidth=1" title="掸封尘：谁是“全宇宙最幸福的仆人”？  " alt="掸封尘：谁是“全宇宙最幸福的仆人”？  "></a></p>
+<p><a href="https://github.com/esygwc319/djy/blob/master/gb/20/8/15/n12333565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传北戴河会议仍在开 中共高层会讨论啥问题？ >-009fcc?logoWidth=1" title="传北戴河会议仍在开 中共高层会讨论啥问题？  " alt="传北戴河会议仍在开 中共高层会讨论啥问题？  "></a></p>
 <p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/15/a102919032.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为塔山计划自造芯片？内部人士：比登天还难 >-009fcc?logoWidth=1" title="华为塔山计划自造芯片？内部人士：比登天还难  " alt="华为塔山计划自造芯片？内部人士：比登天还难  "></a></p>
 <p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/15/a102919081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平抓“舌尖浪费”的背后         >-009fcc?logoWidth=1" title="习近平抓“舌尖浪费”的背后  " alt="习近平抓“舌尖浪费”的背后  "></a></p>
-<p><a href="https://github.com/esygwc319/djy/blob/master/gb/20/8/15/n12332757.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/以国家安全为重 川普禁微信令并非针对华人  >-009fcc?logoWidth=1" title="以国家安全为重 川普禁微信令并非针对华人  " alt="以国家安全为重 川普禁微信令并非针对华人  "></a></p>
-<p><a href="https://github.com/esygwc319/djy/blob/master/gb/20/8/15/n12332484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传美推超级大炮 白俄罗斯抗暴记       >-009fcc?logoWidth=1" title="传美推超级大炮 白俄罗斯抗暴记  " alt="传美推超级大炮 白俄罗斯抗暴记  "></a></p>
+<p><a href="https://github.com/esygwc319/djy/blob/master/gb/20/8/15/n12332270.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/警惕失业型经济复苏             >-009fcc?logoWidth=1" title="警惕失业型经济复苏  " alt="警惕失业型经济复苏  "></a></p>
+<p><a href="https://github.com/esygwc319/djy/blob/master/gb/20/8/15/n12333954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/禁微信影响iPhone销售？川普如此回答  >-009fcc?logoWidth=1" title="禁微信影响iPhone销售？川普如此回答  " alt="禁微信影响iPhone销售？川普如此回答  "></a></p>
 <p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/16/a102919272.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台海危机成海边演练，最新款F--16战机成中共>-009fcc?logoWidth=1" title="台海危机成海边演练，最新款F-16战机成中共砸脚的石头，美国国务院重话反击  " alt="台海危机成海边演练，最新款F-16战机成中共砸脚的石头，美国国务院重话反击  "></a></p>
 <p><a href="https://github.com/esygwc319/ntdtv/blob/master/gb/2020/08/15/a102919043.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/在平型关大捷和百团大战中共军弟兄们在哪里%3F >-009fcc?logoWidth=1" title="在平型关大捷和百团大战中共军弟兄们在哪里? |  " alt="在平型关大捷和百团大战中共军弟兄们在哪里? |  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/esygwc319/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/esygwc319/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/esygwc319/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/esygwc319/www/blob/master/README.md?r#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/esygwc319/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/esygwc319/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/esygwc319/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/esygwc319/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/esygwc319/www/blob/master/README.md?o#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/esygwc319/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/khhhh">git.io/khhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/ceeee">git.io/ceeee</a></div>
 
