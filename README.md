@@ -10,19 +10,20 @@
 <div align="center">
 <a target="_blank" href="https://github.com/euqyhe3158/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/euqyhe3158/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/buuuu">git.io/buuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aza">x.co/aza</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ppppppp">git.io/ppppppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/caa">x.co/caa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/17/a102919641.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平《求是》发文 承认经济面临“重大考验”>-009fcc?logoWidth=1" title="习近平《求是》发文 承认经济面临“重大考验”  " alt="习近平《求是》发文 承认经济面临“重大考验”  "></a></p>
 <p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒挖出中国医生论文 中共病毒或2012年已>-009fcc?logoWidth=1" title="美媒挖出中国医生论文 中共病毒或2012年已出现  " alt="美媒挖出中国医生论文 中共病毒或2012年已出现  "></a></p>
 <p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919518.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共骤降稀土出口 俄速启动竞争性生产    >-009fcc?logoWidth=1" title="中共骤降稀土出口 俄速启动竞争性生产  " alt="中共骤降稀土出口 俄速启动竞争性生产  "></a></p>
 <p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/路透曝中美贸易会晤推迟内幕:北京需更多买买买>-009fcc?logoWidth=1" title="路透曝中美贸易会晤推迟内幕:北京需更多买买买  " alt="路透曝中美贸易会晤推迟内幕:北京需更多买买买  "></a></p>
 <p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919344.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台海战事箭在弦 美挺台军售升级       >-009fcc?logoWidth=1" title="台海战事箭在弦 美挺台军售升级  " alt="台海战事箭在弦 美挺台军售升级  "></a></p>
-<p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919294.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/深圳突发疫情 检测点人龙一眼看不到头(视频)>-009fcc?logoWidth=1" title="深圳突发疫情 检测点人龙一眼看不到头(视频)  " alt="深圳突发疫情 检测点人龙一眼看不到头(视频)  "></a></p>
+<p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/17/a102919665.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传身体亮红灯 安倍晋三赴医院“健康检查”  >-009fcc?logoWidth=1" title="传身体亮红灯 安倍晋三赴医院“健康检查”  " alt="传身体亮红灯 安倍晋三赴医院“健康检查”  "></a></p>
+<p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/17/a102919666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟剑华：林郑民调零分 习式战狼外交失败   >-009fcc?logoWidth=1" title="钟剑华：林郑民调零分 习式战狼外交失败  " alt="钟剑华：林郑民调零分 习式战狼外交失败  "></a></p>
+<p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/17/a102919667.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒《国家评论》：中共按需取器官 更多证据浮>-009fcc?logoWidth=1" title="美媒《国家评论》：中共按需取器官 更多证据浮现  " alt="美媒《国家评论》：中共按需取器官 更多证据浮现  "></a></p>
 <p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/10/a102915239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/深圳突发疫情 检测点人龙一眼看不到头    >-009fcc?logoWidth=1" title="深圳突发疫情 检测点人龙一眼看不到头  " alt="深圳突发疫情 检测点人龙一眼看不到头  "></a></p>
 <p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/剔除北京因素 川普令字节跳动剥离TikTok>-009fcc?logoWidth=1" title="剔除北京因素 川普令字节跳动剥离TikTok  " alt="剔除北京因素 川普令字节跳动剥离TikTok  "></a></p>
-<p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919577.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共重回“韬光养晦”？ 表态不先在南海开火 >-009fcc?logoWidth=1" title="中共重回“韬光养晦”？ 表态不先在南海开火  " alt="中共重回“韬光养晦”？ 表态不先在南海开火  "></a></p>
-<p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919552.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约华人时代广场声援香港 抗议中共暴政   >-009fcc?logoWidth=1" title="纽约华人时代广场声援香港 抗议中共暴政  " alt="纽约华人时代广场声援香港 抗议中共暴政  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/euqyhe3158/djy/blob/master/gb/20/8/16/n12335640.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：北戴河会议没完 军权之争浮水面    >-009fcc?logoWidth=1" title="杨威：北戴河会议没完 军权之争浮水面  " alt="杨威：北戴河会议没完 军权之争浮水面  "></a></p>
 <p><a href="https://github.com/euqyhe3158/djy/blob/master/gb/20/8/16/n12335592.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抗共大事记：美中海上增兵 科技风暴欲来(8/>-009fcc?logoWidth=1" title="抗共大事记：美中海上增兵 科技风暴欲来(8/10-8/16)  " alt="抗共大事记：美中海上增兵 科技风暴欲来(8/10-8/16)  "></a></p>
@@ -38,16 +39,17 @@
 <p><a href="https://github.com/euqyhe3158/djy/blob/master/gb/20/8/16/n12335875.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南落马高官 系冒名参加高考 终生用假名  >-009fcc?logoWidth=1" title="湖南落马高官 系冒名参加高考 终生用假名  " alt="湖南落马高官 系冒名参加高考 终生用假名  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/euqyhe3158/djy/blob/master/gb/20/8/16/n12335590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒再宣“恢复饥饿感” 学者：从白岩松做起 >-009fcc?logoWidth=1" title="陆媒再宣“恢复饥饿感” 学者：从白岩松做起  " alt="陆媒再宣“恢复饥饿感” 学者：从白岩松做起  "></a></p>
+<p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/15/a102919035.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/佚名：致习近平的一封公开信         >-009fcc?logoWidth=1" title="佚名：致习近平的一封公开信  " alt="佚名：致习近平的一封公开信  "></a></p>
 <p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王沪宁又出馊主意？中国小学课本现“习语录” >-009fcc?logoWidth=1" title="王沪宁又出馊主意？中国小学课本现“习语录”  " alt="王沪宁又出馊主意？中国小学课本现“习语录”  "></a></p>
 <p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919218.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高官寻欢被偷拍 花400多万没摆平   >-009fcc?logoWidth=1" title="中共高官寻欢被偷拍 花400多万没摆平  " alt="中共高官寻欢被偷拍 花400多万没摆平  "></a></p>
 <p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919221.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元有新情况？ 工作室罕见发公告遭封杀  >-009fcc?logoWidth=1" title="崔永元有新情况？ 工作室罕见发公告遭封杀  " alt="崔永元有新情况？ 工作室罕见发公告遭封杀  "></a></p>
-<p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/15/a102918986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共援俄逾百吨大米 陆媒却鼓励民众“恢复饥饿>-009fcc?logoWidth=1" title="中共援俄逾百吨大米 陆媒却鼓励民众“恢复饥饿感”  " alt="中共援俄逾百吨大米 陆媒却鼓励民众“恢复饥饿感”  "></a></p>
 <p><a href="https://github.com/euqyhe3158/djy/blob/master/gb/20/8/15/n12332290.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中共骚扰近邻 四处树敌 西方联合抗共 >-009fcc?logoWidth=1" title="分析：中共骚扰近邻 四处树敌 西方联合抗共  " alt="分析：中共骚扰近邻 四处树敌 西方联合抗共  "></a></p>
 <p><a href="https://github.com/euqyhe3158/djy/blob/master/gb/20/8/14/n12332073.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中石油密件曝海外党组织转地下        >-009fcc?logoWidth=1" title="中石油密件曝海外党组织转地下  " alt="中石油密件曝海外党组织转地下  "></a></p>
+<p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/15/a102918986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共援俄逾百吨大米 陆媒却鼓励民众“恢复饥饿>-009fcc?logoWidth=1" title="中共援俄逾百吨大米 陆媒却鼓励民众“恢复饥饿感”  " alt="中共援俄逾百吨大米 陆媒却鼓励民众“恢复饥饿感”  "></a></p>
 <p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/这3种喝茶方式无异于“自杀” 长期这样的话神>-009fcc?logoWidth=1" title="这3种喝茶方式无异于“自杀” 长期这样的话神仙都难救  " alt="这3种喝茶方式无异于“自杀” 长期这样的话神仙都难救  "></a></p>
 <p><a href="https://github.com/euqyhe3158/djy/blob/master/gb/20/8/16/n12335712.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：经济欠佳 人民币汇率如何保住“7”？ >-009fcc?logoWidth=1" title="分析：经济欠佳 人民币汇率如何保住“7”？  " alt="分析：经济欠佳 人民币汇率如何保住“7”？  "></a></p>
 <p><a href="https://github.com/euqyhe3158/djy/blob/master/gb/20/8/16/n12335848.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共掀节粮运动 多省推“光盘行动” 派监督员>-009fcc?logoWidth=1" title="中共掀节粮运动 多省推“光盘行动” 派监督员督查  " alt="中共掀节粮运动 多省推“光盘行动” 派监督员督查  "></a></p>
-<p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919285.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国惊现神秘病毒麦田圈！          >-009fcc?logoWidth=1" title="英国惊现神秘病毒麦田圈！  " alt="英国惊现神秘病毒麦田圈！  "></a></p>
+<p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919294.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/深圳突发疫情 检测点人龙一眼看不到头(视频)>-009fcc?logoWidth=1" title="深圳突发疫情 检测点人龙一眼看不到头(视频)  " alt="深圳突发疫情 检测点人龙一眼看不到头(视频)  "></a></p>
 <p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议没完没了 13大难题个个无解   >-009fcc?logoWidth=1" title="北戴河会议没完没了 13大难题个个无解  " alt="北戴河会议没完没了 13大难题个个无解  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -487,7 +489,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/euqyhe3158/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/euqyhe3158/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/euqyhe3158/www/blob/master/README.md?a#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/euqyhe3158/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/euqyhe3158/www/blob/master/README.md?t#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/euqyhe3158/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/buuuu">git.io/buuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/ppppppp">git.io/ppppppp</a></div>
 
