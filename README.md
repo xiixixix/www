@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rppzif378/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rppzif378/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a5555">git.io/a5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa8">x.co/aa8</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/znnnn">git.io/znnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/psp">x.co/psp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/17/a102919849.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军机持续迫近广东 大军压境中共出奇沉默  >-009fcc?logoWidth=1" title="美军机持续迫近广东 大军压境中共出奇沉默  " alt="美军机持续迫近广东 大军压境中共出奇沉默  "></a></p>
 <p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/17/a102919850.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共80后女淫官搞权色交易被开除 网民议论 >-009fcc?logoWidth=1" title="中共80后女淫官搞权色交易被开除 网民议论  " alt="中共80后女淫官搞权色交易被开除 网民议论  "></a></p>
 <p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/17/a102919796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美战斧导弹拟部署日本 党媒称大半个中国在射程>-009fcc?logoWidth=1" title="美战斧导弹拟部署日本 党媒称大半个中国在射程内  " alt="美战斧导弹拟部署日本 党媒称大半个中国在射程内  "></a></p>
+<p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/17/a102920279.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江第5号洪水形成 三峡大坝开8孔泄洪   >-009fcc?logoWidth=1" title="长江第5号洪水形成 三峡大坝开8孔泄洪  " alt="长江第5号洪水形成 三峡大坝开8孔泄洪  "></a></p>
 <p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/17/a102920243.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/摘除五星血旗活动 在旧金山华埠启动     >-009fcc?logoWidth=1" title="摘除五星血旗活动 在旧金山华埠启动  " alt="摘除五星血旗活动 在旧金山华埠启动  "></a></p>
 <p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/17/a102920211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/封微信可能影响iPhone销量？川普：随便 >-009fcc?logoWidth=1" title="封微信可能影响iPhone销量？川普：随便  " alt="封微信可能影响iPhone销量？川普：随便  "></a></p>
 <p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/17/a102920212.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平为何要求民众节食？陆媒揭中共外汇储备危>-009fcc?logoWidth=1" title="习近平为何要求民众节食？陆媒揭中共外汇储备危机  " alt="习近平为何要求民众节食？陆媒揭中共外汇储备危机  "></a></p>
 <p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/17/a102920207.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钉死华为？美扩大制裁切断第三方采购渠道   >-009fcc?logoWidth=1" title="钉死华为？美扩大制裁切断第三方采购渠道  " alt="钉死华为？美扩大制裁切断第三方采购渠道  "></a></p>
-<p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/17/a102920199.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/力帆破产与邵阳禁摩引发百姓抗暴       >-009fcc?logoWidth=1" title="力帆破产与邵阳禁摩引发百姓抗暴  " alt="力帆破产与邵阳禁摩引发百姓抗暴  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/17/n12337766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：北戴河会议似结束 暂未见大动作    >-009fcc?logoWidth=1" title="钟原：北戴河会议似结束 暂未见大动作  " alt="钟原：北戴河会议似结束 暂未见大动作  "></a></p>
 <p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/17/n12336456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共银保监会主席：今年银行坏帐或大增    >-009fcc?logoWidth=1" title="中共银保监会主席：今年银行坏帐或大增  " alt="中共银保监会主席：今年银行坏帐或大增  "></a></p>
@@ -483,8 +483,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rppzif378/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rppzif378/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rppzif378/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rppzif378/www/blob/master/README.md?g#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/rppzif378/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rppzif378/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rppzif378/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rppzif378/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rppzif378/www/blob/master/README.md?u#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/rppzif378/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/a5555">git.io/a5555</a></div>
+<div align="center">短网址: <a href="https://git.io/znnnn">git.io/znnnn</a></div>
 
