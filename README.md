@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cdvemh343/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cdvemh343/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kdddd">git.io/kdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/maa">x.co/maa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/i3333">git.io/i3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pzp">x.co/pzp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/cdvemh343/ntdtv/blob/master/gb/2020/08/17/a102919807.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议还没开完 习遇“围攻”      >-009fcc?logoWidth=1" title="北戴河会议还没开完 习遇“围攻”  " alt="北戴河会议还没开完 习遇“围攻”  "></a></p>
 <p><a href="https://github.com/cdvemh343/ntdtv/blob/master/gb/2020/08/17/a102919796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美战斧导弹拟部署日本 党媒称大半个中国在射程>-009fcc?logoWidth=1" title="美战斧导弹拟部署日本 党媒称大半个中国在射程内  " alt="美战斧导弹拟部署日本 党媒称大半个中国在射程内  "></a></p>
 <p><a href="https://github.com/cdvemh343/ntdtv/blob/master/gb/2020/08/17/a102919689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台媒：北戴河会议还在开 习近平遇围攻    >-009fcc?logoWidth=1" title="台媒：北戴河会议还在开 习近平遇围攻  " alt="台媒：北戴河会议还在开 习近平遇围攻  "></a></p>
 <p><a href="https://github.com/cdvemh343/ntdtv/blob/master/gb/2020/08/17/a102919675.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两栖装甲车下水测试 一头扎进长江沉没 (>-009fcc?logoWidth=1" title="中共两栖装甲车下水测试 一头扎进长江沉没 (视频)  " alt="中共两栖装甲车下水测试 一头扎进长江沉没 (视频)  "></a></p>
 <p><a href="https://github.com/cdvemh343/ntdtv/blob/master/gb/2020/08/17/a102919641.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平《求是》发文 承认经济面临“重大考验”>-009fcc?logoWidth=1" title="习近平《求是》发文 承认经济面临“重大考验”  " alt="习近平《求是》发文 承认经济面临“重大考验”  "></a></p>
 <p><a href="https://github.com/cdvemh343/ntdtv/blob/master/gb/2020/08/16/a102919532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒挖出中国医生论文 中共病毒或2012年已>-009fcc?logoWidth=1" title="美媒挖出中国医生论文 中共病毒或2012年已出现  " alt="美媒挖出中国医生论文 中共病毒或2012年已出现  "></a></p>
-<p><a href="https://github.com/cdvemh343/ntdtv/blob/master/gb/2020/08/16/a102919518.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共骤降稀土出口 俄速启动竞争性生产    >-009fcc?logoWidth=1" title="中共骤降稀土出口 俄速启动竞争性生产  " alt="中共骤降稀土出口 俄速启动竞争性生产  "></a></p>
 <p><a href="https://github.com/cdvemh343/ntdtv/blob/master/gb/2020/08/17/a102919894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞士大使馆庆祝和中共建交 微博评论区大翻车 >-009fcc?logoWidth=1" title="瑞士大使馆庆祝和中共建交 微博评论区大翻车  " alt="瑞士大使馆庆祝和中共建交 微博评论区大翻车  "></a></p>
 <p><a href="https://github.com/cdvemh343/ntdtv/blob/master/gb/2020/08/17/a102919849.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军机持续迫近广东 大军压境中共出奇沉默  >-009fcc?logoWidth=1" title="美军机持续迫近广东 大军压境中共出奇沉默  " alt="美军机持续迫近广东 大军压境中共出奇沉默  "></a></p>
 <p><a href="https://github.com/cdvemh343/ntdtv/blob/master/gb/2020/08/17/a102919850.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共80后女淫官搞权色交易被开除 网民议论 >-009fcc?logoWidth=1" title="中共80后女淫官搞权色交易被开除 网民议论  " alt="中共80后女淫官搞权色交易被开除 网民议论  "></a></p>
@@ -40,13 +40,12 @@
 <p><a href="https://github.com/cdvemh343/djy/blob/master/gb/20/8/16/n12335136.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆山寨口罩涌入 美一线医护心惊      >-009fcc?logoWidth=1" title="大陆山寨口罩涌入 美一线医护心惊  " alt="大陆山寨口罩涌入 美一线医护心惊  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/cdvemh343/djy/blob/master/gb/20/8/16/n12335590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒再宣“恢复饥饿感” 学者：从白岩松做起 >-009fcc?logoWidth=1" title="陆媒再宣“恢复饥饿感” 学者：从白岩松做起  " alt="陆媒再宣“恢复饥饿感” 学者：从白岩松做起  "></a></p>
-<p><a href="https://github.com/cdvemh343/djy/blob/master/gb/20/8/16/n12335697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/以阿全面建交 美国剑指中共         >-009fcc?logoWidth=1" title="以阿全面建交 美国剑指中共  " alt="以阿全面建交 美国剑指中共  "></a></p>
 <p><a href="https://github.com/cdvemh343/ntdtv/blob/master/gb/2020/08/17/a102919699.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国粮食短缺又遇灾！龙卷风突袭黑龙江    >-009fcc?logoWidth=1" title="中国粮食短缺又遇灾！龙卷风突袭黑龙江  " alt="中国粮食短缺又遇灾！龙卷风突袭黑龙江  "></a></p>
-<p><a href="https://github.com/cdvemh343/djy/blob/master/gb/20/8/16/n12335349.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阿根廷40万联署 反对政府与中共合作养猪业 >-009fcc?logoWidth=1" title="阿根廷40万联署 反对政府与中共合作养猪业  " alt="阿根廷40万联署 反对政府与中共合作养猪业  "></a></p>
-<p><a href="https://github.com/cdvemh343/djy/blob/master/gb/20/8/16/n12335875.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南落马高官 系冒名参加高考 终生用假名  >-009fcc?logoWidth=1" title="湖南落马高官 系冒名参加高考 终生用假名  " alt="湖南落马高官 系冒名参加高考 终生用假名  "></a></p>
+<p><a href="https://github.com/cdvemh343/djy/blob/master/gb/20/8/16/n12335697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/以阿全面建交 美国剑指中共         >-009fcc?logoWidth=1" title="以阿全面建交 美国剑指中共  " alt="以阿全面建交 美国剑指中共  "></a></p>
+<p><a href="https://github.com/cdvemh343/djy/blob/master/gb/20/8/17/n12336535.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：周强是湖南在逃首富最大保护伞？   >-009fcc?logoWidth=1" title="陈思敏：周强是湖南在逃首富最大保护伞？  " alt="陈思敏：周强是湖南在逃首富最大保护伞？  "></a></p>
 <p><a href="https://github.com/cdvemh343/ntdtv/blob/master/gb/2020/08/17/a102919811.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/以阿协议为何如此重要？中东问题一次搞懂   >-009fcc?logoWidth=1" title="以阿协议为何如此重要？中东问题一次搞懂  " alt="以阿协议为何如此重要？中东问题一次搞懂  "></a></p>
 <p><a href="https://github.com/cdvemh343/ntdtv/blob/master/gb/2020/08/17/a102919721.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/数字币大规模测试背后 中共有何算计%3F    >-009fcc?logoWidth=1" title="数字币大规模测试背后 中共有何算计?  " alt="数字币大规模测试背后 中共有何算计?  "></a></p>
-<p><a href="https://github.com/cdvemh343/djy/blob/master/gb/20/8/16/n12335359.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反种族主义的种族主义者           >-009fcc?logoWidth=1" title="反种族主义的种族主义者  " alt="反种族主义的种族主义者  "></a></p>
+<p><a href="https://github.com/cdvemh343/djy/blob/master/gb/20/8/16/n12335349.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阿根廷40万联署 反对政府与中共合作养猪业 >-009fcc?logoWidth=1" title="阿根廷40万联署 反对政府与中共合作养猪业  " alt="阿根廷40万联署 反对政府与中共合作养猪业  "></a></p>
 <p><a href="https://github.com/cdvemh343/djy/blob/master/gb/20/8/16/n12334670.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：透视中共的“国际循环”        >-009fcc?logoWidth=1" title="王赫：透视中共的“国际循环”  " alt="王赫：透视中共的“国际循环”  "></a></p>
 <p><a href="https://github.com/cdvemh343/ntdtv/blob/master/gb/2020/08/16/a102919350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/这3种喝茶方式无异于“自杀” 长期这样的话神>-009fcc?logoWidth=1" title="这3种喝茶方式无异于“自杀” 长期这样的话神仙都难救  " alt="这3种喝茶方式无异于“自杀” 长期这样的话神仙都难救  "></a></p>
 <p><a href="https://github.com/cdvemh343/ntdtv/blob/master/gb/2020/08/17/a102919735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川暴雨连连 积水现血腥味红色液体     >-009fcc?logoWidth=1" title="四川暴雨连连 积水现血腥味红色液体  " alt="四川暴雨连连 积水现血腥味红色液体  "></a></p>
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cdvemh343/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cdvemh343/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cdvemh343/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cdvemh343/www/blob/master/README.md?g#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cdvemh343/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cdvemh343/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cdvemh343/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cdvemh343/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cdvemh343/www/blob/master/README.md?x#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cdvemh343/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kdddd">git.io/kdddd</a></div>
+<div align="center">短网址: <a href="https://git.io/i3333">git.io/i3333</a></div>
 
