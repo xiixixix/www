@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/euqyhe3158/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/euqyhe3158/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/j8888">git.io/j8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa9">x.co/aa9</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iqqqq">git.io/iqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/qaa">x.co/qaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -19,11 +19,11 @@
 <p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/路透曝中美贸易会晤推迟内幕:北京需更多买买买>-009fcc?logoWidth=1" title="路透曝中美贸易会晤推迟内幕:北京需更多买买买  " alt="路透曝中美贸易会晤推迟内幕:北京需更多买买买  "></a></p>
 <p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919344.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台海战事箭在弦 美挺台军售升级       >-009fcc?logoWidth=1" title="台海战事箭在弦 美挺台军售升级  " alt="台海战事箭在弦 美挺台军售升级  "></a></p>
 <p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919294.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/深圳突发疫情 检测点人龙一眼看不到头(视频)>-009fcc?logoWidth=1" title="深圳突发疫情 检测点人龙一眼看不到头(视频)  " alt="深圳突发疫情 检测点人龙一眼看不到头(视频)  "></a></p>
+<p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/10/a102915239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/深圳突发疫情 检测点人龙一眼看不到头    >-009fcc?logoWidth=1" title="深圳突发疫情 检测点人龙一眼看不到头  " alt="深圳突发疫情 检测点人龙一眼看不到头  "></a></p>
 <p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919577.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共重回“韬光养晦”？ 表态不先在南海开火 >-009fcc?logoWidth=1" title="中共重回“韬光养晦”？ 表态不先在南海开火  " alt="中共重回“韬光养晦”？ 表态不先在南海开火  "></a></p>
+<p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/坚守法治挺执法人员 川普获纽约市警工会背书 >-009fcc?logoWidth=1" title="坚守法治挺执法人员 川普获纽约市警工会背书  " alt="坚守法治挺执法人员 川普获纽约市警工会背书  "></a></p>
 <p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈其迈胜选谢票立承诺 韩国瑜助选国民党反效果>-009fcc?logoWidth=1" title="陈其迈胜选谢票立承诺 韩国瑜助选国民党反效果  " alt="陈其迈胜选谢票立承诺 韩国瑜助选国民党反效果  "></a></p>
 <p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919514.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朱牧民加国会作证：国安法危及所有人     >-009fcc?logoWidth=1" title="朱牧民加国会作证：国安法危及所有人  " alt="朱牧民加国会作证：国安法危及所有人  "></a></p>
-<p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919481.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约两千华人房东上街 抗议延长驱逐令    >-009fcc?logoWidth=1" title="纽约两千华人房东上街 抗议延长驱逐令  " alt="纽约两千华人房东上街 抗议延长驱逐令  "></a></p>
-<p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919451.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白俄罗斯争议大选爆示威潮 独裁者向俄国寻援助>-009fcc?logoWidth=1" title="白俄罗斯争议大选爆示威潮 独裁者向俄国寻援助  " alt="白俄罗斯争议大选爆示威潮 独裁者向俄国寻援助  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/euqyhe3158/djy/blob/master/gb/20/8/16/n12335592.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抗共大事记：美中海上增兵 科技风暴欲来(8/>-009fcc?logoWidth=1" title="抗共大事记：美中海上增兵 科技风暴欲来(8/10-8/16)  " alt="抗共大事记：美中海上增兵 科技风暴欲来(8/10-8/16)  "></a></p>
 <p><a href="https://github.com/euqyhe3158/djy/blob/master/gb/20/8/16/n12335640.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：北戴河会议没完 军权之争浮水面    >-009fcc?logoWidth=1" title="杨威：北戴河会议没完 军权之争浮水面  " alt="杨威：北戴河会议没完 军权之争浮水面  "></a></p>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/euqyhe3158/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/euqyhe3158/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/euqyhe3158/www/blob/master/README.md?r#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/euqyhe3158/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/euqyhe3158/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/euqyhe3158/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/euqyhe3158/www/blob/master/README.md?c#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/euqyhe3158/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/j8888">git.io/j8888</a></div>
+<div align="center">短网址: <a href="https://git.io/iqqqq">git.io/iqqqq</a></div>
 
