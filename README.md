@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cdvemh343/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cdvemh343/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f8888">git.io/f8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a4a">x.co/a4a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/scccc">git.io/scccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pnp">x.co/pnp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/cdvemh343/ntdtv/blob/master/gb/2020/08/17/a102919641.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平《求是》发文 承认经济面临“重大考验”>-009fcc?logoWidth=1" title="习近平《求是》发文 承认经济面临“重大考验”  " alt="习近平《求是》发文 承认经济面临“重大考验”  "></a></p>
 <p><a href="https://github.com/cdvemh343/ntdtv/blob/master/gb/2020/08/16/a102919532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒挖出中国医生论文 中共病毒或2012年已>-009fcc?logoWidth=1" title="美媒挖出中国医生论文 中共病毒或2012年已出现  " alt="美媒挖出中国医生论文 中共病毒或2012年已出现  "></a></p>
 <p><a href="https://github.com/cdvemh343/ntdtv/blob/master/gb/2020/08/16/a102919518.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共骤降稀土出口 俄速启动竞争性生产    >-009fcc?logoWidth=1" title="中共骤降稀土出口 俄速启动竞争性生产  " alt="中共骤降稀土出口 俄速启动竞争性生产  "></a></p>
+<p><a href="https://github.com/cdvemh343/ntdtv/blob/master/gb/2020/08/17/a102919894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞士大使馆庆祝和中共建交 微博评论区大翻车 >-009fcc?logoWidth=1" title="瑞士大使馆庆祝和中共建交 微博评论区大翻车  " alt="瑞士大使馆庆祝和中共建交 微博评论区大翻车  "></a></p>
 <p><a href="https://github.com/cdvemh343/ntdtv/blob/master/gb/2020/08/17/a102919849.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军机持续迫近广东 大军压境中共出奇沉默  >-009fcc?logoWidth=1" title="美军机持续迫近广东 大军压境中共出奇沉默  " alt="美军机持续迫近广东 大军压境中共出奇沉默  "></a></p>
 <p><a href="https://github.com/cdvemh343/ntdtv/blob/master/gb/2020/08/17/a102919850.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共80后女淫官搞权色交易被开除 网民议论 >-009fcc?logoWidth=1" title="中共80后女淫官搞权色交易被开除 网民议论  " alt="中共80后女淫官搞权色交易被开除 网民议论  "></a></p>
 <p><a href="https://github.com/cdvemh343/ntdtv/blob/master/gb/2020/08/17/a102919833.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美两党议员再推新法 制衡中共在南美扩张   >-009fcc?logoWidth=1" title="美两党议员再推新法 制衡中共在南美扩张  " alt="美两党议员再推新法 制衡中共在南美扩张  "></a></p>
 <p><a href="https://github.com/cdvemh343/ntdtv/blob/master/gb/2020/08/17/a102919775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/18公斤大鱼飞出水面 澳男胸口被撞击身亡  >-009fcc?logoWidth=1" title="18公斤大鱼飞出水面 澳男胸口被撞击身亡  " alt="18公斤大鱼飞出水面 澳男胸口被撞击身亡  "></a></p>
-<p><a href="https://github.com/cdvemh343/ntdtv/blob/master/gb/2020/08/17/a102919786.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港疫情持续升温 传警务处长邓炳强疑染疫  >-009fcc?logoWidth=1" title="香港疫情持续升温 传警务处长邓炳强疑染疫  " alt="香港疫情持续升温 传警务处长邓炳强疑染疫  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/cdvemh343/djy/blob/master/gb/20/8/16/n12335640.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：北戴河会议没完 军权之争浮水面    >-009fcc?logoWidth=1" title="杨威：北戴河会议没完 军权之争浮水面  " alt="杨威：北戴河会议没完 军权之争浮水面  "></a></p>
 <p><a href="https://github.com/cdvemh343/djy/blob/master/gb/20/8/17/n12336117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乾元：中共加速推DCEP数字货币的背后用心 >-009fcc?logoWidth=1" title="乾元：中共加速推DCEP数字货币的背后用心  " alt="乾元：中共加速推DCEP数字货币的背后用心  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/cdvemh343/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cdvemh343/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cdvemh343/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cdvemh343/www/blob/master/README.md?k#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cdvemh343/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/cdvemh343/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cdvemh343/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cdvemh343/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cdvemh343/www/blob/master/README.md?r#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/cdvemh343/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/f8888">git.io/f8888</a></div>
+<div align="center">短网址: <a href="https://git.io/scccc">git.io/scccc</a></div>
 
