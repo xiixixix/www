@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rppzif378/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rppzif378/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ziiii">git.io/ziiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/raa">x.co/raa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eaaaa">git.io/eaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u33">x.co/u33</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,14 +40,12 @@
 <p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/17/n12338131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/社科院称5年后缺1.3亿吨粮 实际恐更严重 >-009fcc?logoWidth=1" title="社科院称5年后缺1.3亿吨粮 实际恐更严重  " alt="社科院称5年后缺1.3亿吨粮 实际恐更严重  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/17/a102919928.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾吁罢免习近平 党校退休教授蔡霞被开除党籍 >-009fcc?logoWidth=1" title="曾吁罢免习近平 党校退休教授蔡霞被开除党籍  " alt="曾吁罢免习近平 党校退休教授蔡霞被开除党籍  "></a></p>
-<p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/17/n12337715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/监控升级？深圳超市要求“现金支付实名制”  >-009fcc?logoWidth=1" title="监控升级？深圳超市要求“现金支付实名制”  " alt="监控升级？深圳超市要求“现金支付实名制”  "></a></p>
-<p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/17/n12336866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：张玉环27年冤狱仅是江西当局之罪？  >-009fcc?logoWidth=1" title="田云：张玉环27年冤狱仅是江西当局之罪？  " alt="田云：张玉环27年冤狱仅是江西当局之罪？  "></a></p>
 <p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/16/a102919581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/活摘器官仍在继续 中国医生宣称：可现场观看活>-009fcc?logoWidth=1" title="活摘器官仍在继续 中国医生宣称：可现场观看活供体  " alt="活摘器官仍在继续 中国医生宣称：可现场观看活供体  "></a></p>
-<p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/17/n12337914.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强王沪宁现身 北戴河会议已结束？    >-009fcc?logoWidth=1" title="李克强王沪宁现身 北戴河会议已结束？  " alt="李克强王沪宁现身 北戴河会议已结束？  "></a></p>
-<p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/17/n12336258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共北戴河会议的异音曝光          >-009fcc?logoWidth=1" title="中共北戴河会议的异音曝光  " alt="中共北戴河会议的异音曝光  "></a></p>
+<p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/17/n12337715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/监控升级？深圳超市要求“现金支付实名制”  >-009fcc?logoWidth=1" title="监控升级？深圳超市要求“现金支付实名制”  " alt="监控升级？深圳超市要求“现金支付实名制”  "></a></p>
+<p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/16/n12335111.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美升级“灭共行动” 中共叛逃内斗好戏登场  >-009fcc?logoWidth=1" title="美升级“灭共行动” 中共叛逃内斗好戏登场  " alt="美升级“灭共行动” 中共叛逃内斗好戏登场  "></a></p>
 <p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/15/a102919035.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/佚名：致习近平的一封公开信         >-009fcc?logoWidth=1" title="佚名：致习近平的一封公开信  " alt="佚名：致习近平的一封公开信  "></a></p>
-<p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/17/n12337205.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川官员将邻居锁家中暴打10分钟 引众怒  >-009fcc?logoWidth=1" title="四川官员将邻居锁家中暴打10分钟 引众怒  " alt="四川官员将邻居锁家中暴打10分钟 引众怒  "></a></p>
-<p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/16/n12335590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒再宣“恢复饥饿感” 学者：从白岩松做起 >-009fcc?logoWidth=1" title="陆媒再宣“恢复饥饿感” 学者：从白岩松做起  " alt="陆媒再宣“恢复饥饿感” 学者：从白岩松做起  "></a></p>
+<p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/17/n12336866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：张玉环27年冤狱仅是江西当局之罪？  >-009fcc?logoWidth=1" title="田云：张玉环27年冤狱仅是江西当局之罪？  " alt="田云：张玉环27年冤狱仅是江西当局之罪？  "></a></p>
+<p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/17/n12337914.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强王沪宁现身 北戴河会议已结束？    >-009fcc?logoWidth=1" title="李克强王沪宁现身 北戴河会议已结束？  " alt="李克强王沪宁现身 北戴河会议已结束？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -485,8 +483,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rppzif378/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rppzif378/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rppzif378/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rppzif378/www/blob/master/README.md?a#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/rppzif378/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rppzif378/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rppzif378/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rppzif378/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rppzif378/www/blob/master/README.md?z#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/rppzif378/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ziiii">git.io/ziiii</a></div>
+<div align="center">短网址: <a href="https://git.io/eaaaa">git.io/eaaaa</a></div>
 
