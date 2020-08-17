@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rppzif378/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rppzif378/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qmmmm">git.io/qmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppq">x.co/ppq</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rbbbb">git.io/rbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/6aa">x.co/6aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,16 +40,14 @@
 <p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/16/n12335590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/饿着好还是粮不够 陆媒热捧“恢复饥饿感”  >-009fcc?logoWidth=1" title="饿着好还是粮不够 陆媒热捧“恢复饥饿感”  " alt="饿着好还是粮不够 陆媒热捧“恢复饥饿感”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/16/n12335590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒再宣“恢复饥饿感” 学者：从白岩松做起 >-009fcc?logoWidth=1" title="陆媒再宣“恢复饥饿感” 学者：从白岩松做起  " alt="陆媒再宣“恢复饥饿感” 学者：从白岩松做起  "></a></p>
-<p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/17/a102919775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/18公斤大鱼飞出水面 澳男胸口被撞击身亡  >-009fcc?logoWidth=1" title="18公斤大鱼飞出水面 澳男胸口被撞击身亡  " alt="18公斤大鱼飞出水面 澳男胸口被撞击身亡  "></a></p>
-<p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/17/a102919740.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共何时武力侵台？美退休将军推演：或明年1月>-009fcc?logoWidth=1" title="中共何时武力侵台？美退休将军推演：或明年1月  " alt="中共何时武力侵台？美退休将军推演：或明年1月  "></a></p>
+<p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/15/a102919035.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/佚名：致习近平的一封公开信         >-009fcc?logoWidth=1" title="佚名：致习近平的一封公开信  " alt="佚名：致习近平的一封公开信  "></a></p>
 <p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/16/n12335697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/以阿全面建交 美国剑指中共         >-009fcc?logoWidth=1" title="以阿全面建交 美国剑指中共  " alt="以阿全面建交 美国剑指中共  "></a></p>
 <p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/17/n12336842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上任仅一年多 云南省政府副秘书长孙赟落马  >-009fcc?logoWidth=1" title="上任仅一年多 云南省政府副秘书长孙赟落马  " alt="上任仅一年多 云南省政府副秘书长孙赟落马  "></a></p>
-<p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/16/a102919350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/对身体有害的3种喝茶方式 长期这样的话后果很>-009fcc?logoWidth=1" title="对身体有害的3种喝茶方式 长期这样的话后果很严重  " alt="对身体有害的3种喝茶方式 长期这样的话后果很严重  "></a></p>
-<p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/17/a102919728.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普“双胞”弟病逝 国人需饥饿感？     >-009fcc?logoWidth=1" title="川普“双胞”弟病逝 国人需饥饿感？  " alt="川普“双胞”弟病逝 国人需饥饿感？  "></a></p>
+<p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/17/a102919775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/18公斤大鱼飞出水面 澳男胸口被撞击身亡  >-009fcc?logoWidth=1" title="18公斤大鱼飞出水面 澳男胸口被撞击身亡  " alt="18公斤大鱼飞出水面 澳男胸口被撞击身亡  "></a></p>
 <p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/17/n12337034.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东南亚现突变中共病毒“传播速度快十倍”   >-009fcc?logoWidth=1" title="东南亚现突变中共病毒“传播速度快十倍”  " alt="东南亚现突变中共病毒“传播速度快十倍”  "></a></p>
 <p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/17/n12336516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普“双胞”弟病逝 中国人需饥饿感？    >-009fcc?logoWidth=1" title="川普“双胞”弟病逝 中国人需饥饿感？  " alt="川普“双胞”弟病逝 中国人需饥饿感？  "></a></p>
-<p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/17/a102919641.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平《求是》发文 承认经济面临“重大考验”>-009fcc?logoWidth=1" title="习近平《求是》发文 承认经济面临“重大考验”  " alt="习近平《求是》发文 承认经济面临“重大考验”  "></a></p>
-<p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/17/a102919699.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国粮食短缺又遇灾！龙卷风突袭黑龙江    >-009fcc?logoWidth=1" title="中国粮食短缺又遇灾！龙卷风突袭黑龙江  " alt="中国粮食短缺又遇灾！龙卷风突袭黑龙江  "></a></p>
+<p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/17/a102919740.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共何时武力侵台？美退休将军推演：或明年1月>-009fcc?logoWidth=1" title="中共何时武力侵台？美退休将军推演：或明年1月  " alt="中共何时武力侵台？美退休将军推演：或明年1月  "></a></p>
+<p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/16/a102919350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/对身体有害的3种喝茶方式 长期这样的话后果很>-009fcc?logoWidth=1" title="对身体有害的3种喝茶方式 长期这样的话后果很严重  " alt="对身体有害的3种喝茶方式 长期这样的话后果很严重  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rppzif378/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rppzif378/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rppzif378/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rppzif378/www/blob/master/README.md?d#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/rppzif378/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rppzif378/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rppzif378/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rppzif378/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rppzif378/www/blob/master/README.md?j#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/rppzif378/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qmmmm">git.io/qmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/rbbbb">git.io/rbbbb</a></div>
 
