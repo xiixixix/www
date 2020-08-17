@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rppzif378/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rppzif378/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fcccc">git.io/fcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2666">x.co/2666</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ppppp">git.io/ppppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/668">x.co/668</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,24 +20,24 @@
 <p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/17/a102919849.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军机持续迫近广东 大军压境中共出奇沉默  >-009fcc?logoWidth=1" title="美军机持续迫近广东 大军压境中共出奇沉默  " alt="美军机持续迫近广东 大军压境中共出奇沉默  "></a></p>
 <p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/17/a102919850.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共80后女淫官搞权色交易被开除 网民议论 >-009fcc?logoWidth=1" title="中共80后女淫官搞权色交易被开除 网民议论  " alt="中共80后女淫官搞权色交易被开除 网民议论  "></a></p>
 <p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/17/a102919796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美战斧导弹拟部署日本 党媒称大半个中国在射程>-009fcc?logoWidth=1" title="美战斧导弹拟部署日本 党媒称大半个中国在射程内  " alt="美战斧导弹拟部署日本 党媒称大半个中国在射程内  "></a></p>
-<p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/17/a102920166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/确诊病例再现  深圳以抗疫之名实施付钞实名制>-009fcc?logoWidth=1" title="确诊病例再现  深圳以抗疫之名实施付钞实名制  " alt="确诊病例再现  深圳以抗疫之名实施付钞实名制  "></a></p>
 <p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/17/a102920211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/封微信可能影响iPhone销量？川普：随便 >-009fcc?logoWidth=1" title="封微信可能影响iPhone销量？川普：随便  " alt="封微信可能影响iPhone销量？川普：随便  "></a></p>
 <p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/17/a102920212.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平为何要求民众节食？陆媒揭中共外汇储备危>-009fcc?logoWidth=1" title="习近平为何要求民众节食？陆媒揭中共外汇储备危机  " alt="习近平为何要求民众节食？陆媒揭中共外汇储备危机  "></a></p>
 <p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/17/a102920207.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钉死华为？美扩大制裁切断第三方采购渠道   >-009fcc?logoWidth=1" title="钉死华为？美扩大制裁切断第三方采购渠道  " alt="钉死华为？美扩大制裁切断第三方采购渠道  "></a></p>
 <p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/17/a102920149.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共引进人才“排头兵计划”和“百人计划”揭秘>-009fcc?logoWidth=1" title="中共引进人才“排头兵计划”和“百人计划”揭秘  " alt="中共引进人才“排头兵计划”和“百人计划”揭秘  "></a></p>
+<p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/17/a102920173.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白俄罗斯20万人集会反极权 央视称民众撑政府>-009fcc?logoWidth=1" title="白俄罗斯20万人集会反极权 央视称民众撑政府  " alt="白俄罗斯20万人集会反极权 央视称民众撑政府  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/17/n12337766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：北戴河会议似结束 暂未见大动作    >-009fcc?logoWidth=1" title="钟原：北戴河会议似结束 暂未见大动作  " alt="钟原：北戴河会议似结束 暂未见大动作  "></a></p>
 <p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/17/n12336456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共银保监会主席：今年银行坏帐或大增    >-009fcc?logoWidth=1" title="中共银保监会主席：今年银行坏帐或大增  " alt="中共银保监会主席：今年银行坏帐或大增  "></a></p>
 <p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/17/n12336117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乾元：中共加速推DCEP数字货币背后用心  >-009fcc?logoWidth=1" title="乾元：中共加速推DCEP数字货币背后用心  " alt="乾元：中共加速推DCEP数字货币背后用心  "></a></p>
-<p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/16/n12335669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习批粮食浪费倡节约 专家：粮食早已现危机  >-009fcc?logoWidth=1" title="习批粮食浪费倡节约 专家：粮食早已现危机  " alt="习批粮食浪费倡节约 专家：粮食早已现危机  "></a></p>
+<p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/17/n12337640.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普再出手 加强限制华为获美技术和芯片   >-009fcc?logoWidth=1" title="川普再出手 加强限制华为获美技术和芯片  " alt="川普再出手 加强限制华为获美技术和芯片  "></a></p>
 <p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/17/n12336448.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞被开除党籍剥夺退休待遇 网民炮轰中共  >-009fcc?logoWidth=1" title="蔡霞被开除党籍剥夺退休待遇 网民炮轰中共  " alt="蔡霞被开除党籍剥夺退休待遇 网民炮轰中共  "></a></p>
 <p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/12/n12326588.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外事排头兵和百人计划揭秘        >-009fcc?logoWidth=1" title="中共外事排头兵和百人计划揭秘  " alt="中共外事排头兵和百人计划揭秘  "></a></p>
-<p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/17/n12338131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/社科院称5年后缺1.3亿吨粮 实际恐更严重 >-009fcc?logoWidth=1" title="社科院称5年后缺1.3亿吨粮 实际恐更严重  " alt="社科院称5年后缺1.3亿吨粮 实际恐更严重  "></a></p>
+<p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/16/n12335669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习批粮食浪费倡节约 专家：粮食早已现危机  >-009fcc?logoWidth=1" title="习批粮食浪费倡节约 专家：粮食早已现危机  " alt="习批粮食浪费倡节约 专家：粮食早已现危机  "></a></p>
 <p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/11/n12322176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中领馆操控CSSA 长臂威胁世界      >-009fcc?logoWidth=1" title="中领馆操控CSSA 长臂威胁世界  " alt="中领馆操控CSSA 长臂威胁世界  "></a></p>
 <p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/17/n12336450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞士驻华大使馆发微博 网民留言“大翻车”  >-009fcc?logoWidth=1" title="瑞士驻华大使馆发微博 网民留言“大翻车”  " alt="瑞士驻华大使馆发微博 网民留言“大翻车”  "></a></p>
+<p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/17/n12338131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/社科院称5年后缺1.3亿吨粮 实际恐更严重 >-009fcc?logoWidth=1" title="社科院称5年后缺1.3亿吨粮 实际恐更严重  " alt="社科院称5年后缺1.3亿吨粮 实际恐更严重  "></a></p>
 <p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/17/n12337715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/监控升级？深圳超市要求“现金支付实名制”  >-009fcc?logoWidth=1" title="监控升级？深圳超市要求“现金支付实名制”  " alt="监控升级？深圳超市要求“现金支付实名制”  "></a></p>
 <p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/17/n12336866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：张玉环27年冤狱仅是江西当局之罪？  >-009fcc?logoWidth=1" title="田云：张玉环27年冤狱仅是江西当局之罪？  " alt="田云：张玉环27年冤狱仅是江西当局之罪？  "></a></p>
-<p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/17/n12337914.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强王沪宁现身 北戴河会议已结束？    >-009fcc?logoWidth=1" title="李克强王沪宁现身 北戴河会议已结束？  " alt="李克强王沪宁现身 北戴河会议已结束？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rppzif378/djy/blob/master/gb/20/8/17/n12336258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共北戴河会议的异音曝光          >-009fcc?logoWidth=1" title="中共北戴河会议的异音曝光  " alt="中共北戴河会议的异音曝光  "></a></p>
 <p><a href="https://github.com/rppzif378/ntdtv/blob/master/gb/2020/08/17/a102919928.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾吁罢免习近平 党校退休教授蔡霞被开除党籍 >-009fcc?logoWidth=1" title="曾吁罢免习近平 党校退休教授蔡霞被开除党籍  " alt="曾吁罢免习近平 党校退休教授蔡霞被开除党籍  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rppzif378/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rppzif378/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rppzif378/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rppzif378/www/blob/master/README.md?s#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/rppzif378/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/rppzif378/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rppzif378/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rppzif378/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rppzif378/www/blob/master/README.md?z#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/rppzif378/www/blob/master/README.md?w%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/fcccc">git.io/fcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/ppppp">git.io/ppppp</a></div>
 
