@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/euqyhe3158/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/euqyhe3158/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bffff">git.io/bffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/mdd">x.co/mdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kdddd">git.io/kdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/fpp">x.co/fpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,18 +39,18 @@
 <p><a href="https://github.com/euqyhe3158/djy/blob/master/gb/20/8/16/n12335875.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南落马高官 系冒名参加高考 终生用假名  >-009fcc?logoWidth=1" title="湖南落马高官 系冒名参加高考 终生用假名  " alt="湖南落马高官 系冒名参加高考 终生用假名  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/euqyhe3158/djy/blob/master/gb/20/8/16/n12335590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒再宣“恢复饥饿感” 学者：从白岩松做起 >-009fcc?logoWidth=1" title="陆媒再宣“恢复饥饿感” 学者：从白岩松做起  " alt="陆媒再宣“恢复饥饿感” 学者：从白岩松做起  "></a></p>
+<p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919393.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话：胡锡进的中国梦超出人类智商  >-009fcc?logoWidth=1" title="外交部大实话：胡锡进的中国梦超出人类智商  " alt="外交部大实话：胡锡进的中国梦超出人类智商  "></a></p>
 <p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/15/a102919035.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/佚名：致习近平的一封公开信         >-009fcc?logoWidth=1" title="佚名：致习近平的一封公开信  " alt="佚名：致习近平的一封公开信  "></a></p>
 <p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王沪宁又出馊主意？中国小学课本现“习语录” >-009fcc?logoWidth=1" title="王沪宁又出馊主意？中国小学课本现“习语录”  " alt="王沪宁又出馊主意？中国小学课本现“习语录”  "></a></p>
 <p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919218.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高官寻欢被偷拍 花400多万没摆平   >-009fcc?logoWidth=1" title="中共高官寻欢被偷拍 花400多万没摆平  " alt="中共高官寻欢被偷拍 花400多万没摆平  "></a></p>
-<p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919221.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元有新情况？ 工作室罕见发公告遭封杀  >-009fcc?logoWidth=1" title="崔永元有新情况？ 工作室罕见发公告遭封杀  " alt="崔永元有新情况？ 工作室罕见发公告遭封杀  "></a></p>
 <p><a href="https://github.com/euqyhe3158/djy/blob/master/gb/20/8/15/n12332290.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中共骚扰近邻 四处树敌 西方联合抗共 >-009fcc?logoWidth=1" title="分析：中共骚扰近邻 四处树敌 西方联合抗共  " alt="分析：中共骚扰近邻 四处树敌 西方联合抗共  "></a></p>
 <p><a href="https://github.com/euqyhe3158/djy/blob/master/gb/20/8/14/n12332073.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中石油密件曝海外党组织转地下        >-009fcc?logoWidth=1" title="中石油密件曝海外党组织转地下  " alt="中石油密件曝海外党组织转地下  "></a></p>
+<p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919221.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元有新情况？ 工作室罕见发公告遭封杀  >-009fcc?logoWidth=1" title="崔永元有新情况？ 工作室罕见发公告遭封杀  " alt="崔永元有新情况？ 工作室罕见发公告遭封杀  "></a></p>
 <p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/15/a102918986.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共援俄逾百吨大米 陆媒却鼓励民众“恢复饥饿>-009fcc?logoWidth=1" title="中共援俄逾百吨大米 陆媒却鼓励民众“恢复饥饿感”  " alt="中共援俄逾百吨大米 陆媒却鼓励民众“恢复饥饿感”  "></a></p>
-<p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/这3种喝茶方式无异于“自杀” 长期这样的话神>-009fcc?logoWidth=1" title="这3种喝茶方式无异于“自杀” 长期这样的话神仙都难救  " alt="这3种喝茶方式无异于“自杀” 长期这样的话神仙都难救  "></a></p>
 <p><a href="https://github.com/euqyhe3158/djy/blob/master/gb/20/8/16/n12335712.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：经济欠佳 人民币汇率如何保住“7”？ >-009fcc?logoWidth=1" title="分析：经济欠佳 人民币汇率如何保住“7”？  " alt="分析：经济欠佳 人民币汇率如何保住“7”？  "></a></p>
 <p><a href="https://github.com/euqyhe3158/djy/blob/master/gb/20/8/16/n12335848.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共掀节粮运动 多省推“光盘行动” 派监督员>-009fcc?logoWidth=1" title="中共掀节粮运动 多省推“光盘行动” 派监督员督查  " alt="中共掀节粮运动 多省推“光盘行动” 派监督员督查  "></a></p>
+<p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/这3种喝茶方式无异于“自杀” 长期这样的话神>-009fcc?logoWidth=1" title="这3种喝茶方式无异于“自杀” 长期这样的话神仙都难救  " alt="这3种喝茶方式无异于“自杀” 长期这样的话神仙都难救  "></a></p>
 <p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919294.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/深圳突发疫情 检测点人龙一眼看不到头(视频)>-009fcc?logoWidth=1" title="深圳突发疫情 检测点人龙一眼看不到头(视频)  " alt="深圳突发疫情 检测点人龙一眼看不到头(视频)  "></a></p>
-<p><a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/2020/08/16/a102919420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议没完没了 13大难题个个无解   >-009fcc?logoWidth=1" title="北戴河会议没完没了 13大难题个个无解  " alt="北戴河会议没完没了 13大难题个个无解  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/euqyhe3158/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/euqyhe3158/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/euqyhe3158/www/blob/master/README.md?j#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/euqyhe3158/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/euqyhe3158/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/euqyhe3158/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/euqyhe3158/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/euqyhe3158/www/blob/master/README.md?e#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/euqyhe3158/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bffff">git.io/bffff</a></div>
+<div align="center">短网址: <a href="https://git.io/kdddd">git.io/kdddd</a></div>
 
