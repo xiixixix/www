@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ucfrfg374/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ucfrfg374/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qiiii">git.io/qiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aua">x.co/aua</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/irrrr">git.io/irrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/7pp">x.co/7pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,7 +28,7 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/14/n12330373.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共操控舆情的七步流程揭秘         >-009fcc?logoWidth=1" title="中共操控舆情的七步流程揭秘  " alt="中共操控舆情的七步流程揭秘  "></a></p>
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12337766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：北戴河会议似结束 暂未见大动作    >-009fcc?logoWidth=1" title="钟原：北戴河会议似结束 暂未见大动作  " alt="钟原：北戴河会议似结束 暂未见大动作  "></a></p>
-<p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/18/n12339413.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海公安局长龚道安被调查 曾是孟建柱手下  >-009fcc?logoWidth=1" title="上海公安局长龚道安被调查 曾是孟建柱手下  " alt="上海公安局长龚道安被调查 曾是孟建柱手下  "></a></p>
+<p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/18/n12339413.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海公安局长龚道安被查 将掀政法风暴    >-009fcc?logoWidth=1" title="上海公安局长龚道安被查 将掀政法风暴  " alt="上海公安局长龚道安被查 将掀政法风暴  "></a></p>
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/18/n12338803.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云: 蔡霞指中共像黑帮 红二代觉醒令党恐惧>-009fcc?logoWidth=1" title="田云: 蔡霞指中共像黑帮 红二代觉醒令党恐惧  " alt="田云: 蔡霞指中共像黑帮 红二代觉醒令党恐惧  "></a></p>
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12338586.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/37沙特人天津移植器官 牵出内幕知多少   >-009fcc?logoWidth=1" title="37沙特人天津移植器官 牵出内幕知多少  " alt="37沙特人天津移植器官 牵出内幕知多少  "></a></p>
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12337741.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专访长春插播幸存者：不要跟魔鬼中共做交易  >-009fcc?logoWidth=1" title="专访长春插播幸存者：不要跟魔鬼中共做交易  " alt="专访长春插播幸存者：不要跟魔鬼中共做交易  "></a></p>
@@ -40,13 +40,12 @@
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/18/n12339808.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张玉环案遇害男童母亲：没见到孩子最后一面  >-009fcc?logoWidth=1" title="张玉环案遇害男童母亲：没见到孩子最后一面  " alt="张玉环案遇害男童母亲：没见到孩子最后一面  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河经济问题交锋 习李激战        >-009fcc?logoWidth=1" title="北戴河经济问题交锋 习李激战  " alt="北戴河经济问题交锋 习李激战  "></a></p>
-<p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12338501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连湾民众被准下楼 聚集讨说法       >-009fcc?logoWidth=1" title="大连湾民众被准下楼 聚集讨说法  " alt="大连湾民众被准下楼 聚集讨说法  "></a></p>
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/萝卜是养颜长寿药 日本奉为最上等      >-009fcc?logoWidth=1" title="萝卜是养颜长寿药 日本奉为最上等  " alt="萝卜是养颜长寿药 日本奉为最上等  "></a></p>
+<p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12338501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连湾民众被准下楼 聚集讨说法       >-009fcc?logoWidth=1" title="大连湾民众被准下楼 聚集讨说法  " alt="大连湾民众被准下楼 聚集讨说法  "></a></p>
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12338566.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：美军连续强硬动作 中共再认怂     >-009fcc?logoWidth=1" title="沈舟：美军连续强硬动作 中共再认怂  " alt="沈舟：美军连续强硬动作 中共再认怂  "></a></p>
-<p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12337783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上游泄洪 成都金堂水漫二楼         >-009fcc?logoWidth=1" title="上游泄洪 成都金堂水漫二楼  " alt="上游泄洪 成都金堂水漫二楼  "></a></p>
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920377.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/七常委集体失踪，习被逼交权？/蔡霞“被退党”>-009fcc?logoWidth=1" title="七常委集体失踪，习被逼交权？/蔡霞“被退党”因“罢习讲话”？  " alt="七常委集体失踪，习被逼交权？/蔡霞“被退党”因“罢习讲话”？  "></a></p>
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12338626.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美学者：大陆房地产或拖累GDP下滑10   >-009fcc?logoWidth=1" title="美学者：大陆房地产或拖累GDP下滑10  " alt="美学者：大陆房地产或拖累GDP下滑10  "></a></p>
-<p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12338131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/社科院称5年后缺1.3亿吨粮 实际恐更严重 >-009fcc?logoWidth=1" title="社科院称5年后缺1.3亿吨粮 实际恐更严重  " alt="社科院称5年后缺1.3亿吨粮 实际恐更严重  "></a></p>
+<p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12337783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上游泄洪 成都金堂水漫二楼         >-009fcc?logoWidth=1" title="上游泄洪 成都金堂水漫二楼  " alt="上游泄洪 成都金堂水漫二楼  "></a></p>
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920523.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅称休斯顿领馆人员“战友” 党给三等功  >-009fcc?logoWidth=1" title="王毅称休斯顿领馆人员“战友” 党给三等功  " alt="王毅称休斯顿领馆人员“战友” 党给三等功  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -485,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ucfrfg374/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ucfrfg374/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ucfrfg374/www/blob/master/README.md?e#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ucfrfg374/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ucfrfg374/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ucfrfg374/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ucfrfg374/www/blob/master/README.md?u#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ucfrfg374/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qiiii">git.io/qiiii</a></div>
+<div align="center">短网址: <a href="https://git.io/irrrr">git.io/irrrr</a></div>
 
