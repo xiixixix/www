@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ucfrfg374/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ucfrfg374/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dtttt">git.io/dtttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aza">x.co/aza</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kqqqq">git.io/kqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/edd">x.co/edd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -43,7 +43,7 @@
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宠物将被当食物？ 传金正恩下“禁狗”令   >-009fcc?logoWidth=1" title="宠物将被当食物？ 传金正恩下“禁狗”令  " alt="宠物将被当食物？ 传金正恩下“禁狗”令  "></a></p>
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/萝卜是养颜长寿药 日本奉为最上等      >-009fcc?logoWidth=1" title="萝卜是养颜长寿药 日本奉为最上等  " alt="萝卜是养颜长寿药 日本奉为最上等  "></a></p>
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12338501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连湾民众被准下楼 聚集讨说法       >-009fcc?logoWidth=1" title="大连湾民众被准下楼 聚集讨说法  " alt="大连湾民众被准下楼 聚集讨说法  "></a></p>
-<p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12338566.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：美军连续强硬动作 中共再认怂     >-009fcc?logoWidth=1" title="沈舟：美军连续强硬动作 中共再认怂  " alt="沈舟：美军连续强硬动作 中共再认怂  "></a></p>
+<p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12338566.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：美军连续强硬动作 中共转入低调    >-009fcc?logoWidth=1" title="沈舟：美军连续强硬动作 中共转入低调  " alt="沈舟：美军连续强硬动作 中共转入低调  "></a></p>
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920377.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/七常委集体失踪，习被逼交权？/蔡霞“被退党”>-009fcc?logoWidth=1" title="七常委集体失踪，习被逼交权？/蔡霞“被退党”因“罢习讲话”？  " alt="七常委集体失踪，习被逼交权？/蔡霞“被退党”因“罢习讲话”？  "></a></p>
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12338626.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美学者：大陆房地产或拖累GDP下滑10   >-009fcc?logoWidth=1" title="美学者：大陆房地产或拖累GDP下滑10  " alt="美学者：大陆房地产或拖累GDP下滑10  "></a></p>
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12337783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上游泄洪 成都金堂水漫二楼         >-009fcc?logoWidth=1" title="上游泄洪 成都金堂水漫二楼  " alt="上游泄洪 成都金堂水漫二楼  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ucfrfg374/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ucfrfg374/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ucfrfg374/www/blob/master/README.md?t#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ucfrfg374/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ucfrfg374/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ucfrfg374/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ucfrfg374/www/blob/master/README.md?t#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ucfrfg374/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dtttt">git.io/dtttt</a></div>
+<div align="center">短网址: <a href="https://git.io/kqqqq">git.io/kqqqq</a></div>
 
