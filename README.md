@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/lodojv3329/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/lodojv3329/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/77777">git.io/77777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp3">x.co/pp3</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yrrrr">git.io/yrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa8">x.co/aa8</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/18/a102920442.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议结束 习李露面 仍各说各话不同调 >-009fcc?logoWidth=1" title="北戴河会议结束 习李露面 仍各说各话不同调  " alt="北戴河会议结束 习李露面 仍各说各话不同调  "></a></p>
 <p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102920247.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞回应很高兴脱离黑帮 王丹曝其红二代惊人身>-009fcc?logoWidth=1" title="蔡霞回应很高兴脱离黑帮 王丹曝其红二代惊人身世  " alt="蔡霞回应很高兴脱离黑帮 王丹曝其红二代惊人身世  "></a></p>
 <p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102920207.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钉死华为？美扩大制裁切断第三方采购渠道   >-009fcc?logoWidth=1" title="钉死华为？美扩大制裁切断第三方采购渠道  " alt="钉死华为？美扩大制裁切断第三方采购渠道  "></a></p>
 <p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102920173.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白俄罗斯20万人集会反极权 央视称民众撑政府>-009fcc?logoWidth=1" title="白俄罗斯20万人集会反极权 央视称民众撑政府  " alt="白俄罗斯20万人集会反极权 央视称民众撑政府  "></a></p>
 <p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102919899.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲海军遭遇间谍威胁 议员促关闭一间中领馆 >-009fcc?logoWidth=1" title="澳洲海军遭遇间谍威胁 议员促关闭一间中领馆  " alt="澳洲海军遭遇间谍威胁 议员促关闭一间中领馆  "></a></p>
 <p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102919807.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议还没开完 习遇“围攻”      >-009fcc?logoWidth=1" title="北戴河会议还没开完 习遇“围攻”  " alt="北戴河会议还没开完 习遇“围攻”  "></a></p>
-<p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102919894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞士大使馆庆祝和中共建交 微博评论区大翻车 >-009fcc?logoWidth=1" title="瑞士大使馆庆祝和中共建交 微博评论区大翻车  " alt="瑞士大使馆庆祝和中共建交 微博评论区大翻车  "></a></p>
+<p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/18/a102920443.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《珍言真语》袁弓夷：中共权贵家族是世界的毒瘤>-009fcc?logoWidth=1" title="《珍言真语》袁弓夷：中共权贵家族是世界的毒瘤  " alt="《珍言真语》袁弓夷：中共权贵家族是世界的毒瘤  "></a></p>
+<p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/18/a102920433.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“专家”图谋再次关闭美国          >-009fcc?logoWidth=1" title="“专家”图谋再次关闭美国  " alt="“专家”图谋再次关闭美国  "></a></p>
 <p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/18/a102920434.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共疯狂下架敏感书籍 习近平喜爱读物也被禁 >-009fcc?logoWidth=1" title="中共疯狂下架敏感书籍 习近平喜爱读物也被禁  " alt="中共疯狂下架敏感书籍 习近平喜爱读物也被禁  "></a></p>
 <p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/18/a102920387.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“反浪费” 包子掉地上民众争抢买   >-009fcc?logoWidth=1" title="习近平“反浪费” 包子掉地上民众争抢买  " alt="习近平“反浪费” 包子掉地上民众争抢买  "></a></p>
 <p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/18/a102920409.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加州热浪持续来袭 导致19年来首次轮流停电 >-009fcc?logoWidth=1" title="加州热浪持续来袭 导致19年来首次轮流停电  " alt="加州热浪持续来袭 导致19年来首次轮流停电  "></a></p>
-<p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102920196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川洪灾泛滥 长江5号洪水流量将创纪录（视频>-009fcc?logoWidth=1" title="四川洪灾泛滥 长江5号洪水流量将创纪录（视频）  " alt="四川洪灾泛滥 长江5号洪水流量将创纪录（视频）  "></a></p>
-<p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102920223.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共国资委巡视中铁建 董事长坠楼身亡    >-009fcc?logoWidth=1" title="中共国资委巡视中铁建 董事长坠楼身亡  " alt="中共国资委巡视中铁建 董事长坠楼身亡  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12337766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：北戴河会议似结束 暂未见大动作    >-009fcc?logoWidth=1" title="钟原：北戴河会议似结束 暂未见大动作  " alt="钟原：北戴河会议似结束 暂未见大动作  "></a></p>
 <p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12338315.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哪些中企可能被川普禁止？白宫幕僚长解释   >-009fcc?logoWidth=1" title="哪些中企可能被川普禁止？白宫幕僚长解释  " alt="哪些中企可能被川普禁止？白宫幕僚长解释  "></a></p>
@@ -39,19 +39,18 @@
 <p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12338131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/社科院称5年后缺1.3亿吨粮 实际恐更严重 >-009fcc?logoWidth=1" title="社科院称5年后缺1.3亿吨粮 实际恐更严重  " alt="社科院称5年后缺1.3亿吨粮 实际恐更严重  "></a></p>
 <p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12337673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林郑出门须带现金？美制裁威力初探      >-009fcc?logoWidth=1" title="林郑出门须带现金？美制裁威力初探  " alt="林郑出门须带现金？美制裁威力初探  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12337783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上游泄洪 成都金堂水漫二楼         >-009fcc?logoWidth=1" title="上游泄洪 成都金堂水漫二楼  " alt="上游泄洪 成都金堂水漫二楼  "></a></p>
+<p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102920196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川洪灾泛滥 长江5号洪水流量将创纪录（视频>-009fcc?logoWidth=1" title="四川洪灾泛滥 长江5号洪水流量将创纪录（视频）  " alt="四川洪灾泛滥 长江5号洪水流量将创纪录（视频）  "></a></p>
+<p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102919689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台媒：北戴河会议还在开 习近平遇围攻    >-009fcc?logoWidth=1" title="台媒：北戴河会议还在开 习近平遇围攻  " alt="台媒：北戴河会议还在开 习近平遇围攻  "></a></p>
 <p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102920211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/封微信可能影响iPhone销量？川普：随便 >-009fcc?logoWidth=1" title="封微信可能影响iPhone销量？川普：随便  " alt="封微信可能影响iPhone销量？川普：随便  "></a></p>
 <p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102919850.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共80后女淫官搞权色交易被开除 网民议论 >-009fcc?logoWidth=1" title="中共80后女淫官搞权色交易被开除 网民议论  " alt="中共80后女淫官搞权色交易被开除 网民议论  "></a></p>
+<p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12338447.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/出售美机密给中共 前CIA华裔职员被控罪  >-009fcc?logoWidth=1" title="出售美机密给中共 前CIA华裔职员被控罪  " alt="出售美机密给中共 前CIA华裔职员被控罪  "></a></p>
+<p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12337783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上游泄洪 成都金堂水漫二楼         >-009fcc?logoWidth=1" title="上游泄洪 成都金堂水漫二楼  " alt="上游泄洪 成都金堂水漫二楼  "></a></p>
 <p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102920212.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平为何要求民众节食？陆媒揭中共外汇储备危>-009fcc?logoWidth=1" title="习近平为何要求民众节食？陆媒揭中共外汇储备危机  " alt="习近平为何要求民众节食？陆媒揭中共外汇储备危机  "></a></p>
 <p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102919675.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两栖装甲车下水测试 一头扎进长江沉没 (>-009fcc?logoWidth=1" title="中共两栖装甲车下水测试 一头扎进长江沉没 (视频)  " alt="中共两栖装甲车下水测试 一头扎进长江沉没 (视频)  "></a></p>
-<p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12337640.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普再出手 加强限制华为获美技术和芯片   >-009fcc?logoWidth=1" title="川普再出手 加强限制华为获美技术和芯片  " alt="川普再出手 加强限制华为获美技术和芯片  "></a></p>
 <p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12337914.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强王沪宁现身 北戴河会议已结束？    >-009fcc?logoWidth=1" title="李克强王沪宁现身 北戴河会议已结束？  " alt="李克强王沪宁现身 北戴河会议已结束？  "></a></p>
+<p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12337650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/粤医院采购155项产品全进口 指国产不达标 >-009fcc?logoWidth=1" title="粤医院采购155项产品全进口 指国产不达标  " alt="粤医院采购155项产品全进口 指国产不达标  "></a></p>
 <p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/18/a102920336.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/光复香港 时代革命一一袁弓夷洛杉矶演讲   >-009fcc?logoWidth=1" title="光复香港 时代革命一一袁弓夷洛杉矶演讲  " alt="光复香港 时代革命一一袁弓夷洛杉矶演讲  "></a></p>
 <p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102920300.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共提速数字货币试运行 学者解析2大动机  >-009fcc?logoWidth=1" title="中共提速数字货币试运行 学者解析2大动机  " alt="中共提速数字货币试运行 学者解析2大动机  "></a></p>
-<p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12337715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/监控升级？深圳超市要求“现金支付实名制”  >-009fcc?logoWidth=1" title="监控升级？深圳超市要求“现金支付实名制”  " alt="监控升级？深圳超市要求“现金支付实名制”  "></a></p>
-<p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/16/n12335111.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美升级“灭共行动” 中共叛逃内斗好戏登场  >-009fcc?logoWidth=1" title="美升级“灭共行动” 中共叛逃内斗好戏登场  " alt="美升级“灭共行动” 中共叛逃内斗好戏登场  "></a></p>
-<p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102919928.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾吁罢免习近平 党校退休教授蔡霞被开除党籍 >-009fcc?logoWidth=1" title="曾吁罢免习近平 党校退休教授蔡霞被开除党籍  " alt="曾吁罢免习近平 党校退休教授蔡霞被开除党籍  "></a></p>
-<p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102919849.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军机持续迫近广东 大军压境中共出奇沉默  >-009fcc?logoWidth=1" title="美军机持续迫近广东 大军压境中共出奇沉默  " alt="美军机持续迫近广东 大军压境中共出奇沉默  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -489,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/lodojv3329/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lodojv3329/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lodojv3329/www/blob/master/README.md?o#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/lodojv3329/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/lodojv3329/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lodojv3329/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lodojv3329/www/blob/master/README.md?m#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/lodojv3329/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/77777">git.io/77777</a></div>
+<div align="center">短网址: <a href="https://git.io/yrrrr">git.io/yrrrr</a></div>
 
