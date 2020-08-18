@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nsrmna346/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nsrmna346/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rbbbb">git.io/rbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/5aa">x.co/5aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tjjjj">git.io/tjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppr">x.co/ppr</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,10 +39,9 @@
 <p><a href="https://github.com/nsrmna346/djy/blob/master/gb/20/8/18/n12338795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/深圳对市民监控升级引瞩目          >-009fcc?logoWidth=1" title="深圳对市民监控升级引瞩目  " alt="深圳对市民监控升级引瞩目  "></a></p>
 <p><a href="https://github.com/nsrmna346/djy/blob/master/gb/20/8/17/n12338247.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国资委巡视期间 中铁建董事长跳楼身亡    >-009fcc?logoWidth=1" title="国资委巡视期间 中铁建董事长跳楼身亡  " alt="国资委巡视期间 中铁建董事长跳楼身亡  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/nsrmna346/ntdtv/blob/master/gb/2020/08/17/a102920223.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共国资委巡视中铁建 董事长坠楼身亡    >-009fcc?logoWidth=1" title="中共国资委巡视中铁建 董事长坠楼身亡  " alt="中共国资委巡视中铁建 董事长坠楼身亡  "></a></p>
 <p><a href="https://github.com/nsrmna346/ntdtv/blob/master/gb/2020/08/18/a102920523.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅称休斯顿领馆人员“战友” 党给三等功  >-009fcc?logoWidth=1" title="王毅称休斯顿领馆人员“战友” 党给三等功  " alt="王毅称休斯顿领馆人员“战友” 党给三等功  "></a></p>
 <p><a href="https://github.com/nsrmna346/ntdtv/blob/master/gb/2020/08/18/a102920613.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云: 蔡霞指中共像黑帮 红二代觉醒令党恐惧>-009fcc?logoWidth=1" title="田云: 蔡霞指中共像黑帮 红二代觉醒令党恐惧  " alt="田云: 蔡霞指中共像黑帮 红二代觉醒令党恐惧  "></a></p>
-<p><a href="https://github.com/nsrmna346/ntdtv/blob/master/gb/2020/08/18/a102920377.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/七常委集体失踪，习被逼交权？/蔡霞“被退党”>-009fcc?logoWidth=1" title="七常委集体失踪，习被逼交权？/蔡霞“被退党”因“罢习讲话”？  " alt="七常委集体失踪，习被逼交权？/蔡霞“被退党”因“罢习讲话”？  "></a></p>
-<p><a href="https://github.com/nsrmna346/ntdtv/blob/master/gb/2020/08/18/a102920392.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:美国将制裁红二代？白俄罗斯要变天 习近>-009fcc?logoWidth=1" title="文昭:美国将制裁红二代？白俄罗斯要变天 习近平怀疑人生  " alt="文昭:美国将制裁红二代？白俄罗斯要变天 习近平怀疑人生  "></a></p>
 <p><a href="https://github.com/nsrmna346/djy/blob/master/gb/20/8/17/n12336450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞士驻华大使馆发微博 网民留言“大翻车”  >-009fcc?logoWidth=1" title="瑞士驻华大使馆发微博 网民留言“大翻车”  " alt="瑞士驻华大使馆发微博 网民留言“大翻车”  "></a></p>
 <p><a href="https://github.com/nsrmna346/djy/blob/master/gb/20/8/17/n12338131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/社科院称5年后缺1.3亿吨粮 实际恐更严重 >-009fcc?logoWidth=1" title="社科院称5年后缺1.3亿吨粮 实际恐更严重  " alt="社科院称5年后缺1.3亿吨粮 实际恐更严重  "></a></p>
 <p><a href="https://github.com/nsrmna346/ntdtv/blob/master/gb/2020/08/18/a102920387.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“反浪费” 包子掉地上民众争相抢买  >-009fcc?logoWidth=1" title="习近平“反浪费” 包子掉地上民众争相抢买  " alt="习近平“反浪费” 包子掉地上民众争相抢买  "></a></p>
@@ -486,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nsrmna346/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nsrmna346/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nsrmna346/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nsrmna346/www/blob/master/README.md?u#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/nsrmna346/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nsrmna346/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nsrmna346/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nsrmna346/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nsrmna346/www/blob/master/README.md?m#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/nsrmna346/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/rbbbb">git.io/rbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/tjjjj">git.io/tjjjj</a></div>
 
