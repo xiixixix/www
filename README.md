@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ucfrfg374/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ucfrfg374/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kzzzz">git.io/kzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/faa">x.co/faa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dffff">git.io/dffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/zdd">x.co/zdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -31,23 +31,25 @@
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/18/n12339413.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海公安局长龚道安被查 将掀政法风暴    >-009fcc?logoWidth=1" title="上海公安局长龚道安被查 将掀政法风暴  " alt="上海公安局长龚道安被查 将掀政法风暴  "></a></p>
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/18/n12338803.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云: 蔡霞指中共像黑帮 红二代觉醒令党恐惧>-009fcc?logoWidth=1" title="田云: 蔡霞指中共像黑帮 红二代觉醒令党恐惧  " alt="田云: 蔡霞指中共像黑帮 红二代觉醒令党恐惧  "></a></p>
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/18/n12340173.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟建柱三名副部级旧部被抓 或步周永康后尘  >-009fcc?logoWidth=1" title="孟建柱三名副部级旧部被抓 或步周永康后尘  " alt="孟建柱三名副部级旧部被抓 或步周永康后尘  "></a></p>
-<p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12337741.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专访长春插播幸存者：不要跟魔鬼中共做交易  >-009fcc?logoWidth=1" title="专访长春插播幸存者：不要跟魔鬼中共做交易  " alt="专访长春插播幸存者：不要跟魔鬼中共做交易  "></a></p>
+<p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/18/n12339706.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党校教授回应与中共脱钩 陆专家赞其勇敢坦言 >-009fcc?logoWidth=1" title="党校教授回应与中共脱钩 陆专家赞其勇敢坦言  " alt="党校教授回应与中共脱钩 陆专家赞其勇敢坦言  "></a></p>
+<p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/18/n12340389.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共自曝休斯顿领馆人员全被驱逐    >-009fcc?logoWidth=1" title="钟原：中共自曝休斯顿领馆人员全被驱逐  " alt="钟原：中共自曝休斯顿领馆人员全被驱逐  "></a></p>
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12338586.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/37沙特人天津移植器官 牵出内幕知多少   >-009fcc?logoWidth=1" title="37沙特人天津移植器官 牵出内幕知多少  " alt="37沙特人天津移植器官 牵出内幕知多少  "></a></p>
-<p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/11/n12322176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中领馆操控CSSA 长臂威胁世界      >-009fcc?logoWidth=1" title="中领馆操控CSSA 长臂威胁世界  " alt="中领馆操控CSSA 长臂威胁世界  "></a></p>
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/18/n12340466.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/甘肃文县洪水淹4层楼 古镇也被淹      >-009fcc?logoWidth=1" title="甘肃文县洪水淹4层楼 古镇也被淹  " alt="甘肃文县洪水淹4层楼 古镇也被淹  "></a></p>
+<p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/18/n12339871.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒重刊习旧文 学者指或重回计划经济老路  >-009fcc?logoWidth=1" title="党媒重刊习旧文 学者指或重回计划经济老路  " alt="党媒重刊习旧文 学者指或重回计划经济老路  "></a></p>
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/18/n12338707.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒变异 北戴河会后内斗加剧      >-009fcc?logoWidth=1" title="中共病毒变异 北戴河会后内斗加剧  " alt="中共病毒变异 北戴河会后内斗加剧  "></a></p>
-<p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12338272.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会超长结束 习难脱7大困境      >-009fcc?logoWidth=1" title="北戴河会超长结束 习难脱7大困境  " alt="北戴河会超长结束 习难脱7大困境  "></a></p>
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/18/n12339091.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/受美制裁 林郑首度承认使用信用卡受限制   >-009fcc?logoWidth=1" title="受美制裁 林郑首度承认使用信用卡受限制  " alt="受美制裁 林郑首度承认使用信用卡受限制  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/18/n12338795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/深圳对市民监控升级引瞩目          >-009fcc?logoWidth=1" title="深圳对市民监控升级引瞩目  " alt="深圳对市民监控升级引瞩目  "></a></p>
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河经济问题交锋 习李激战        >-009fcc?logoWidth=1" title="北戴河经济问题交锋 习李激战  " alt="北戴河经济问题交锋 习李激战  "></a></p>
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12338247.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国资委巡视期间 中铁建董事长跳楼身亡    >-009fcc?logoWidth=1" title="国资委巡视期间 中铁建董事长跳楼身亡  " alt="国资委巡视期间 中铁建董事长跳楼身亡  "></a></p>
+<p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/18/n12339808.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张玉环案遇害男童母亲：没见到孩子最后一面  >-009fcc?logoWidth=1" title="张玉环案遇害男童母亲：没见到孩子最后一面  " alt="张玉环案遇害男童母亲：没见到孩子最后一面  "></a></p>
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宠物将被当食物？ 传金正恩下“禁狗”令   >-009fcc?logoWidth=1" title="宠物将被当食物？ 传金正恩下“禁狗”令  " alt="宠物将被当食物？ 传金正恩下“禁狗”令  "></a></p>
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/萝卜是养颜长寿药 日本奉为最上等      >-009fcc?logoWidth=1" title="萝卜是养颜长寿药 日本奉为最上等  " alt="萝卜是养颜长寿药 日本奉为最上等  "></a></p>
-<p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/18/n12340572.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/缺粮？陆媒称“吃剩菜暖心” 上海大搞举报  >-009fcc?logoWidth=1" title="缺粮？陆媒称“吃剩菜暖心” 上海大搞举报  " alt="缺粮？陆媒称“吃剩菜暖心” 上海大搞举报  "></a></p>
-<p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/18/n12340754.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京人权人士张宝成案开庭 好友被拒旁听   >-009fcc?logoWidth=1" title="北京人权人士张宝成案开庭 好友被拒旁听  " alt="北京人权人士张宝成案开庭 好友被拒旁听  "></a></p>
-<p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920377.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/七常委集体失踪，习被逼交权？/蔡霞“被退党”>-009fcc?logoWidth=1" title="七常委集体失踪，习被逼交权？/蔡霞“被退党”因“罢习讲话”？  " alt="七常委集体失踪，习被逼交权？/蔡霞“被退党”因“罢习讲话”？  "></a></p>
+<p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12338501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连湾民众被准下楼 聚集讨说法       >-009fcc?logoWidth=1" title="大连湾民众被准下楼 聚集讨说法  " alt="大连湾民众被准下楼 聚集讨说法  "></a></p>
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12338566.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：美军连续强硬动作 中共转入低调    >-009fcc?logoWidth=1" title="沈舟：美军连续强硬动作 中共转入低调  " alt="沈舟：美军连续强硬动作 中共转入低调  "></a></p>
+<p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920377.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/七常委集体失踪，习被逼交权？/蔡霞“被退党”>-009fcc?logoWidth=1" title="七常委集体失踪，习被逼交权？/蔡霞“被退党”因“罢习讲话”？  " alt="七常委集体失踪，习被逼交权？/蔡霞“被退党”因“罢习讲话”？  "></a></p>
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12338626.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美学者：大陆房地产或拖累GDP下滑10   >-009fcc?logoWidth=1" title="美学者：大陆房地产或拖累GDP下滑10  " alt="美学者：大陆房地产或拖累GDP下滑10  "></a></p>
+<p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12337783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上游泄洪 成都金堂水漫二楼         >-009fcc?logoWidth=1" title="上游泄洪 成都金堂水漫二楼  " alt="上游泄洪 成都金堂水漫二楼  "></a></p>
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920643.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国制裁后 林郑与邓炳强被银行暂停服务   >-009fcc?logoWidth=1" title="美国制裁后 林郑与邓炳强被银行暂停服务  " alt="美国制裁后 林郑与邓炳强被银行暂停服务  "></a></p>
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920523.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅称休斯顿领馆人员“战友” 党给三等功  >-009fcc?logoWidth=1" title="王毅称休斯顿领馆人员“战友” 党给三等功  " alt="王毅称休斯顿领馆人员“战友” 党给三等功  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -487,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ucfrfg374/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ucfrfg374/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ucfrfg374/www/blob/master/README.md?f#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ucfrfg374/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ucfrfg374/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ucfrfg374/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ucfrfg374/www/blob/master/README.md?k#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ucfrfg374/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kzzzz">git.io/kzzzz</a></div>
+<div align="center">短网址: <a href="https://git.io/dffff">git.io/dffff</a></div>
 
