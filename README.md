@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ucfrfg374/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ucfrfg374/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/3ffff">git.io/3ffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aae">x.co/aae</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a3333">git.io/a3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p5p">x.co/p5p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920504.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议不平静 郭文贵：京沪曾爆小规模政治>-009fcc?logoWidth=1" title="北戴河会议不平静 郭文贵：京沪曾爆小规模政治动乱  " alt="北戴河会议不平静 郭文贵：京沪曾爆小规模政治动乱  "></a></p>
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美轰炸机逼近防空识别区 防走火台禁飞行员开第>-009fcc?logoWidth=1" title="美轰炸机逼近防空识别区 防走火台禁飞行员开第一枪  " alt="美轰炸机逼近防空识别区 防走火台禁飞行员开第一枪  "></a></p>
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920442.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议结束 习李露面 仍各说各话不同调 >-009fcc?logoWidth=1" title="北戴河会议结束 习李露面 仍各说各话不同调  " alt="北戴河会议结束 习李露面 仍各说各话不同调  "></a></p>
+<p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102921033.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥出访欧洲 多国响应“净网行动”    >-009fcc?logoWidth=1" title="蓬佩奥出访欧洲 多国响应“净网行动”  " alt="蓬佩奥出访欧洲 多国响应“净网行动”  "></a></p>
+<p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102921031.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞被开除党籍 再批中共“政治僵尸”    >-009fcc?logoWidth=1" title="蔡霞被开除党籍 再批中共“政治僵尸”  " alt="蔡霞被开除党籍 再批中共“政治僵尸”  "></a></p>
+<p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102921042.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江5号洪水过境 重庆朝天门门洞全没入水中 >-009fcc?logoWidth=1" title="长江5号洪水过境 重庆朝天门门洞全没入水中  " alt="长江5号洪水过境 重庆朝天门门洞全没入水中  "></a></p>
+<p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102921035.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5G优化视讯传输 让你也能拥有千里眼    >-009fcc?logoWidth=1" title="5G优化视讯传输 让你也能拥有千里眼  " alt="5G优化视讯传输 让你也能拥有千里眼  "></a></p>
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平首次现身灾区 考察“被牺牲”的安徽  >-009fcc?logoWidth=1" title="习近平首次现身灾区 考察“被牺牲”的安徽  " alt="习近平首次现身灾区 考察“被牺牲”的安徽  "></a></p>
-<p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/双面谍马玉清首出庭 司法部文件披露案情细节 >-009fcc?logoWidth=1" title="双面谍马玉清首出庭 司法部文件披露案情细节  " alt="双面谍马玉清首出庭 司法部文件披露案情细节  "></a></p>
-<p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920976.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/女性选举权100周年 川普赦免民权领袖   >-009fcc?logoWidth=1" title="女性选举权100周年 川普赦免民权领袖  " alt="女性选举权100周年 川普赦免民权领袖  "></a></p>
-<p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920952.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国新制裁有多重？专家解析：华为“非死不可”>-009fcc?logoWidth=1" title="美国新制裁有多重？专家解析：华为“非死不可”  " alt="美国新制裁有多重？专家解析：华为“非死不可”  "></a></p>
-<p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920933.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推人民币国际化防美国制裁 专家：空想    >-009fcc?logoWidth=1" title="推人民币国际化防美国制裁 专家：空想  " alt="推人民币国际化防美国制裁 专家：空想  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/14/n12330373.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共操控舆情的七步流程揭秘         >-009fcc?logoWidth=1" title="中共操控舆情的七步流程揭秘  " alt="中共操控舆情的七步流程揭秘  "></a></p>
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/18/n12340693.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：华为是“间谍为” 帮中共监视我们   >-009fcc?logoWidth=1" title="川普：华为是“间谍为” 帮中共监视我们  " alt="川普：华为是“间谍为” 帮中共监视我们  "></a></p>
@@ -487,7 +487,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/ucfrfg374/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ucfrfg374/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ucfrfg374/www/blob/master/README.md?g#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ucfrfg374/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ucfrfg374/www/blob/master/README.md?z#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ucfrfg374/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/3ffff">git.io/3ffff</a></div>
+<div align="center">短网址: <a href="https://git.io/a3333">git.io/a3333</a></div>
 
