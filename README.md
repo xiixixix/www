@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ucfrfg374/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ucfrfg374/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eyyyy">git.io/eyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/6pp">x.co/6pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tyyyy">git.io/tyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j33">x.co/j33</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -37,9 +37,10 @@
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/18/n12339091.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/受美制裁 林郑首度承认使用信用卡受限制   >-009fcc?logoWidth=1" title="受美制裁 林郑首度承认使用信用卡受限制  " alt="受美制裁 林郑首度承认使用信用卡受限制  "></a></p>
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/18/n12338795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/深圳对市民监控升级引瞩目          >-009fcc?logoWidth=1" title="深圳对市民监控升级引瞩目  " alt="深圳对市民监控升级引瞩目  "></a></p>
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12338247.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国资委巡视期间 中铁建董事长跳楼身亡    >-009fcc?logoWidth=1" title="国资委巡视期间 中铁建董事长跳楼身亡  " alt="国资委巡视期间 中铁建董事长跳楼身亡  "></a></p>
-<p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12338501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连湾民众被准下楼 聚集讨说法       >-009fcc?logoWidth=1" title="大连湾民众被准下楼 聚集讨说法  " alt="大连湾民众被准下楼 聚集讨说法  "></a></p>
+<p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/18/n12339808.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张玉环案遇害男童母亲：没见到孩子最后一面  >-009fcc?logoWidth=1" title="张玉环案遇害男童母亲：没见到孩子最后一面  " alt="张玉环案遇害男童母亲：没见到孩子最后一面  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河经济问题交锋 习李激战        >-009fcc?logoWidth=1" title="北戴河经济问题交锋 习李激战  " alt="北戴河经济问题交锋 习李激战  "></a></p>
+<p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12338501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连湾民众被准下楼 聚集讨说法       >-009fcc?logoWidth=1" title="大连湾民众被准下楼 聚集讨说法  " alt="大连湾民众被准下楼 聚集讨说法  "></a></p>
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/萝卜是养颜长寿药 日本奉为最上等      >-009fcc?logoWidth=1" title="萝卜是养颜长寿药 日本奉为最上等  " alt="萝卜是养颜长寿药 日本奉为最上等  "></a></p>
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12338566.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：美军连续强硬动作 中共再认怂     >-009fcc?logoWidth=1" title="沈舟：美军连续强硬动作 中共再认怂  " alt="沈舟：美军连续强硬动作 中共再认怂  "></a></p>
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12337783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上游泄洪 成都金堂水漫二楼         >-009fcc?logoWidth=1" title="上游泄洪 成都金堂水漫二楼  " alt="上游泄洪 成都金堂水漫二楼  "></a></p>
@@ -484,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ucfrfg374/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ucfrfg374/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ucfrfg374/www/blob/master/README.md?t#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ucfrfg374/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ucfrfg374/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ucfrfg374/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ucfrfg374/www/blob/master/README.md?h#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ucfrfg374/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/eyyyy">git.io/eyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/tyyyy">git.io/tyyyy</a></div>
 
