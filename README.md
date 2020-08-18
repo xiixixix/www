@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/lodojv3329/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/lodojv3329/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/u7777">git.io/u7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3222">x.co/3222</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/shhhh">git.io/shhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2666">x.co/2666</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,29 +27,30 @@
 <p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102920281.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/忧粮荒超前部署 大陆媒体鼓吹恢复“饥饿感” >-009fcc?logoWidth=1" title="忧粮荒超前部署 大陆媒体鼓吹恢复“饥饿感”  " alt="忧粮荒超前部署 大陆媒体鼓吹恢复“饥饿感”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12337766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：北戴河会议似结束 暂未见大动作    >-009fcc?logoWidth=1" title="钟原：北戴河会议似结束 暂未见大动作  " alt="钟原：北戴河会议似结束 暂未见大动作  "></a></p>
-<p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12336456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共银保监会主席：今年银行坏帐或大增    >-009fcc?logoWidth=1" title="中共银保监会主席：今年银行坏帐或大增  " alt="中共银保监会主席：今年银行坏帐或大增  "></a></p>
-<p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12336117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乾元：中共加速推DCEP数字货币背后用心  >-009fcc?logoWidth=1" title="乾元：中共加速推DCEP数字货币背后用心  " alt="乾元：中共加速推DCEP数字货币背后用心  "></a></p>
-<p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12337640.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普再出手 加强限制华为获美技术和芯片   >-009fcc?logoWidth=1" title="川普再出手 加强限制华为获美技术和芯片  " alt="川普再出手 加强限制华为获美技术和芯片  "></a></p>
-<p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12336448.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞被开除党籍剥夺退休待遇 网民炮轰中共  >-009fcc?logoWidth=1" title="蔡霞被开除党籍剥夺退休待遇 网民炮轰中共  " alt="蔡霞被开除党籍剥夺退休待遇 网民炮轰中共  "></a></p>
+<p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12338315.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哪些中企可能被川普禁止？白宫幕僚长解释   >-009fcc?logoWidth=1" title="哪些中企可能被川普禁止？白宫幕僚长解释  " alt="哪些中企可能被川普禁止？白宫幕僚长解释  "></a></p>
+<p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12338586.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/37沙特人天津移植器官 牵出内幕知多少   >-009fcc?logoWidth=1" title="37沙特人天津移植器官 牵出内幕知多少  " alt="37沙特人天津移植器官 牵出内幕知多少  "></a></p>
+<p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12338420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：大瘟疫后 我就不跟中方通话了     >-009fcc?logoWidth=1" title="川普：大瘟疫后 我就不跟中方通话了  " alt="川普：大瘟疫后 我就不跟中方通话了  "></a></p>
+<p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12338566.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：美军连续强硬动作 中共再认怂     >-009fcc?logoWidth=1" title="沈舟：美军连续强硬动作 中共再认怂  " alt="沈舟：美军连续强硬动作 中共再认怂  "></a></p>
 <p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/12/n12326588.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外事排头兵和百人计划揭秘        >-009fcc?logoWidth=1" title="中共外事排头兵和百人计划揭秘  " alt="中共外事排头兵和百人计划揭秘  "></a></p>
-<p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/16/n12335669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习批粮食浪费倡节约 专家：粮食早已现危机  >-009fcc?logoWidth=1" title="习批粮食浪费倡节约 专家：粮食早已现危机  " alt="习批粮食浪费倡节约 专家：粮食早已现危机  "></a></p>
+<p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12338501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连湾民众被准下楼 聚集讨说法       >-009fcc?logoWidth=1" title="大连湾民众被准下楼 聚集讨说法  " alt="大连湾民众被准下楼 聚集讨说法  "></a></p>
 <p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/11/n12322176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中领馆操控CSSA 长臂威胁世界      >-009fcc?logoWidth=1" title="中领馆操控CSSA 长臂威胁世界  " alt="中领馆操控CSSA 长臂威胁世界  "></a></p>
 <p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12336450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞士驻华大使馆发微博 网民留言“大翻车”  >-009fcc?logoWidth=1" title="瑞士驻华大使馆发微博 网民留言“大翻车”  " alt="瑞士驻华大使馆发微博 网民留言“大翻车”  "></a></p>
-<p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12337673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林郑出门须带现金？美制裁威力初探      >-009fcc?logoWidth=1" title="林郑出门须带现金？美制裁威力初探  " alt="林郑出门须带现金？美制裁威力初探  "></a></p>
-<p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12337783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上游泄洪 成都金堂水漫二楼         >-009fcc?logoWidth=1" title="上游泄洪 成都金堂水漫二楼  " alt="上游泄洪 成都金堂水漫二楼  "></a></p>
+<p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12338247.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国资委巡视期间 中铁建董事长跳楼身亡    >-009fcc?logoWidth=1" title="国资委巡视期间 中铁建董事长跳楼身亡  " alt="国资委巡视期间 中铁建董事长跳楼身亡  "></a></p>
 <p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12338131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/社科院称5年后缺1.3亿吨粮 实际恐更严重 >-009fcc?logoWidth=1" title="社科院称5年后缺1.3亿吨粮 实际恐更严重  " alt="社科院称5年后缺1.3亿吨粮 实际恐更严重  "></a></p>
+<p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12337673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林郑出门须带现金？美制裁威力初探      >-009fcc?logoWidth=1" title="林郑出门须带现金？美制裁威力初探  " alt="林郑出门须带现金？美制裁威力初探  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102920211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/封微信可能影响iPhone销量？川普：随便 >-009fcc?logoWidth=1" title="封微信可能影响iPhone销量？川普：随便  " alt="封微信可能影响iPhone销量？川普：随便  "></a></p>
 <p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102919850.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共80后女淫官搞权色交易被开除 网民议论 >-009fcc?logoWidth=1" title="中共80后女淫官搞权色交易被开除 网民议论  " alt="中共80后女淫官搞权色交易被开除 网民议论  "></a></p>
+<p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12337783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上游泄洪 成都金堂水漫二楼         >-009fcc?logoWidth=1" title="上游泄洪 成都金堂水漫二楼  " alt="上游泄洪 成都金堂水漫二楼  "></a></p>
+<p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102920212.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平为何要求民众节食？陆媒揭中共外汇储备危>-009fcc?logoWidth=1" title="习近平为何要求民众节食？陆媒揭中共外汇储备危机  " alt="习近平为何要求民众节食？陆媒揭中共外汇储备危机  "></a></p>
 <p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102919675.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两栖装甲车下水测试 一头扎进长江沉没 (>-009fcc?logoWidth=1" title="中共两栖装甲车下水测试 一头扎进长江沉没 (视频)  " alt="中共两栖装甲车下水测试 一头扎进长江沉没 (视频)  "></a></p>
-<p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102920107.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆首款中共病毒疫苗获专利 德专家:疫苗或无长>-009fcc?logoWidth=1" title="陆首款中共病毒疫苗获专利 德专家:疫苗或无长效  " alt="陆首款中共病毒疫苗获专利 德专家:疫苗或无长效  "></a></p>
 <p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12337715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/监控升级？深圳超市要求“现金支付实名制”  >-009fcc?logoWidth=1" title="监控升级？深圳超市要求“现金支付实名制”  " alt="监控升级？深圳超市要求“现金支付实名制”  "></a></p>
 <p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/16/n12335111.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美升级“灭共行动” 中共叛逃内斗好戏登场  >-009fcc?logoWidth=1" title="美升级“灭共行动” 中共叛逃内斗好戏登场  " alt="美升级“灭共行动” 中共叛逃内斗好戏登场  "></a></p>
-<p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102920059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒:中共干涉美大选 “五毛”加强攻击川普 >-009fcc?logoWidth=1" title="美媒:中共干涉美大选 “五毛”加强攻击川普  " alt="美媒:中共干涉美大选 “五毛”加强攻击川普  "></a></p>
-<p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102919928.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾吁罢免习近平 党校退休教授蔡霞被开除党籍 >-009fcc?logoWidth=1" title="曾吁罢免习近平 党校退休教授蔡霞被开除党籍  " alt="曾吁罢免习近平 党校退休教授蔡霞被开除党籍  "></a></p>
+<p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102920300.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共提速数字货币试运行 学者解析2大动机  >-009fcc?logoWidth=1" title="中共提速数字货币试运行 学者解析2大动机  " alt="中共提速数字货币试运行 学者解析2大动机  "></a></p>
 <p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12336866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：张玉环27年冤狱仅是江西当局之罪？  >-009fcc?logoWidth=1" title="田云：张玉环27年冤狱仅是江西当局之罪？  " alt="田云：张玉环27年冤狱仅是江西当局之罪？  "></a></p>
 <p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12337914.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强王沪宁现身 北戴河会议已结束？    >-009fcc?logoWidth=1" title="李克强王沪宁现身 北戴河会议已结束？  " alt="李克强王沪宁现身 北戴河会议已结束？  "></a></p>
+<p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102919928.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾吁罢免习近平 党校退休教授蔡霞被开除党籍 >-009fcc?logoWidth=1" title="曾吁罢免习近平 党校退休教授蔡霞被开除党籍  " alt="曾吁罢免习近平 党校退休教授蔡霞被开除党籍  "></a></p>
 <p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102919849.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军机持续迫近广东 大军压境中共出奇沉默  >-009fcc?logoWidth=1" title="美军机持续迫近广东 大军压境中共出奇沉默  " alt="美军机持续迫近广东 大军压境中共出奇沉默  "></a></p>
-<p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/16/a102919458.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台日军备重大升级 严防中共武力威胁     >-009fcc?logoWidth=1" title="台日军备重大升级 严防中共武力威胁  " alt="台日军备重大升级 严防中共武力威胁  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/lodojv3329/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lodojv3329/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lodojv3329/www/blob/master/README.md?j#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/lodojv3329/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/lodojv3329/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lodojv3329/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lodojv3329/www/blob/master/README.md?u#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/lodojv3329/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/u7777">git.io/u7777</a></div>
+<div align="center">短网址: <a href="https://git.io/shhhh">git.io/shhhh</a></div>
 
