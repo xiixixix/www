@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/lodojv3329/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/lodojv3329/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qtttt">git.io/qtttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/zdd">x.co/zdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jyyyy">git.io/jyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppv">x.co/ppv</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102919899.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲海军遭遇间谍威胁 议员促关闭一间中领馆 >-009fcc?logoWidth=1" title="澳洲海军遭遇间谍威胁 议员促关闭一间中领馆  " alt="澳洲海军遭遇间谍威胁 议员促关闭一间中领馆  "></a></p>
 <p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102919807.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议还没开完 习遇“围攻”      >-009fcc?logoWidth=1" title="北戴河会议还没开完 习遇“围攻”  " alt="北戴河会议还没开完 习遇“围攻”  "></a></p>
 <p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102919894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞士大使馆庆祝和中共建交 微博评论区大翻车 >-009fcc?logoWidth=1" title="瑞士大使馆庆祝和中共建交 微博评论区大翻车  " alt="瑞士大使馆庆祝和中共建交 微博评论区大翻车  "></a></p>
+<p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102920196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川洪灾泛滥 长江5号洪水流量将创纪录（视频>-009fcc?logoWidth=1" title="四川洪灾泛滥 长江5号洪水流量将创纪录（视频）  " alt="四川洪灾泛滥 长江5号洪水流量将创纪录（视频）  "></a></p>
 <p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/10/a102915239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/确诊病例再现 深圳以抗疫之名实施付钞实名制 >-009fcc?logoWidth=1" title="确诊病例再现 深圳以抗疫之名实施付钞实名制  " alt="确诊病例再现 深圳以抗疫之名实施付钞实名制  "></a></p>
 <p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/18/a102920336.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/光复香港 时代革命一一袁弓夷洛杉矶演讲   >-009fcc?logoWidth=1" title="光复香港 时代革命一一袁弓夷洛杉矶演讲  " alt="光复香港 时代革命一一袁弓夷洛杉矶演讲  "></a></p>
 <p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102920281.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/忧粮荒超前部署 大陆媒体鼓吹恢复“饥饿感” >-009fcc?logoWidth=1" title="忧粮荒超前部署 大陆媒体鼓吹恢复“饥饿感”  " alt="忧粮荒超前部署 大陆媒体鼓吹恢复“饥饿感”  "></a></p>
 <p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102920279.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江第5号洪水形成 三峡大坝开8孔泄洪   >-009fcc?logoWidth=1" title="长江第5号洪水形成 三峡大坝开8孔泄洪  " alt="长江第5号洪水形成 三峡大坝开8孔泄洪  "></a></p>
-<p><a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/2020/08/17/a102920243.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/摘除五星血旗活动 在旧金山华埠启动     >-009fcc?logoWidth=1" title="摘除五星血旗活动 在旧金山华埠启动  " alt="摘除五星血旗活动 在旧金山华埠启动  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12337766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：北戴河会议似结束 暂未见大动作    >-009fcc?logoWidth=1" title="钟原：北戴河会议似结束 暂未见大动作  " alt="钟原：北戴河会议似结束 暂未见大动作  "></a></p>
 <p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12336456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共银保监会主席：今年银行坏帐或大增    >-009fcc?logoWidth=1" title="中共银保监会主席：今年银行坏帐或大增  " alt="中共银保监会主席：今年银行坏帐或大增  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/lodojv3329/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lodojv3329/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lodojv3329/www/blob/master/README.md?v#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/lodojv3329/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/lodojv3329/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lodojv3329/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lodojv3329/www/blob/master/README.md?v#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/lodojv3329/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qtttt">git.io/qtttt</a></div>
+<div align="center">短网址: <a href="https://git.io/jyyyy">git.io/jyyyy</a></div>
 
