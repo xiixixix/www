@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ucfrfg374/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ucfrfg374/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g2222">git.io/g2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ypp">x.co/ypp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ytttt">git.io/ytttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/afa">x.co/afa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -23,8 +23,8 @@
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920952.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国新制裁有多重？专家解析：华为“非死不可”>-009fcc?logoWidth=1" title="美国新制裁有多重？专家解析：华为“非死不可”  " alt="美国新制裁有多重？专家解析：华为“非死不可”  "></a></p>
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920911.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞：共产党这个“僵尸政党”必须下台    >-009fcc?logoWidth=1" title="蔡霞：共产党这个“僵尸政党”必须下台  " alt="蔡霞：共产党这个“僵尸政党”必须下台  "></a></p>
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920900.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国大选临近 中共加紧网络攻击和假消息推送 >-009fcc?logoWidth=1" title="美国大选临近 中共加紧网络攻击和假消息推送  " alt="美国大选临近 中共加紧网络攻击和假消息推送  "></a></p>
+<p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共利用“友好协会” 统战渗透欧洲     >-009fcc?logoWidth=1" title="中共利用“友好协会” 统战渗透欧洲  " alt="中共利用“友好协会” 统战渗透欧洲  "></a></p>
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020美国大选倒计时 几个关键日期    >-009fcc?logoWidth=1" title="2020美国大选倒计时 几个关键日期  " alt="2020美国大选倒计时 几个关键日期  "></a></p>
-<p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白俄罗斯抗议持续 “一带一路”支点动摇   >-009fcc?logoWidth=1" title="白俄罗斯抗议持续 “一带一路”支点动摇  " alt="白俄罗斯抗议持续 “一带一路”支点动摇  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/14/n12330373.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共操控舆情的七步流程揭秘         >-009fcc?logoWidth=1" title="中共操控舆情的七步流程揭秘  " alt="中共操控舆情的七步流程揭秘  "></a></p>
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12337766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：北戴河会议似结束 暂未见大动作    >-009fcc?logoWidth=1" title="钟原：北戴河会议似结束 暂未见大动作  " alt="钟原：北戴河会议似结束 暂未见大动作  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ucfrfg374/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ucfrfg374/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ucfrfg374/www/blob/master/README.md?d#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ucfrfg374/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ucfrfg374/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ucfrfg374/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ucfrfg374/www/blob/master/README.md?m#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ucfrfg374/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/g2222">git.io/g2222</a></div>
+<div align="center">短网址: <a href="https://git.io/ytttt">git.io/ytttt</a></div>
 
