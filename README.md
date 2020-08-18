@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nsrmna346/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nsrmna346/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/2tttt">git.io/2tttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3777">x.co/3777</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rbbbb">git.io/rbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/5aa">x.co/5aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/nsrmna346/ntdtv/blob/master/gb/2020/08/18/a102920442.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议结束 习李露面 仍各说各话不同调 >-009fcc?logoWidth=1" title="北戴河会议结束 习李露面 仍各说各话不同调  " alt="北戴河会议结束 习李露面 仍各说各话不同调  "></a></p>
 <p><a href="https://github.com/nsrmna346/ntdtv/blob/master/gb/2020/08/17/a102920247.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞回应很高兴脱离黑帮 王丹曝其红二代惊人身>-009fcc?logoWidth=1" title="蔡霞回应很高兴脱离黑帮 王丹曝其红二代惊人身世  " alt="蔡霞回应很高兴脱离黑帮 王丹曝其红二代惊人身世  "></a></p>
 <p><a href="https://github.com/nsrmna346/ntdtv/blob/master/gb/2020/08/17/a102920207.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钉死华为？美扩大制裁切断第三方采购渠道   >-009fcc?logoWidth=1" title="钉死华为？美扩大制裁切断第三方采购渠道  " alt="钉死华为？美扩大制裁切断第三方采购渠道  "></a></p>
+<p><a href="https://github.com/nsrmna346/ntdtv/blob/master/gb/2020/08/18/a102920622.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/耶路撒冷旧城发生持刀刺警 犯嫌当场遭撃毙  >-009fcc?logoWidth=1" title="耶路撒冷旧城发生持刀刺警 犯嫌当场遭撃毙  " alt="耶路撒冷旧城发生持刀刺警 犯嫌当场遭撃毙  "></a></p>
 <p><a href="https://github.com/nsrmna346/ntdtv/blob/master/gb/2020/08/18/a102920570.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/狂喷80瓶消臭喷雾罐引爆炸 北海道房仲店长判>-009fcc?logoWidth=1" title="狂喷80瓶消臭喷雾罐引爆炸 北海道房仲店长判刑3年  " alt="狂喷80瓶消臭喷雾罐引爆炸 北海道房仲店长判刑3年  "></a></p>
 <p><a href="https://github.com/nsrmna346/ntdtv/blob/master/gb/2020/08/18/a102920521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“红二代”蔡霞：换掉习近平已成党内共识   >-009fcc?logoWidth=1" title="“红二代”蔡霞：换掉习近平已成党内共识  " alt="“红二代”蔡霞：换掉习近平已成党内共识  "></a></p>
 <p><a href="https://github.com/nsrmna346/ntdtv/blob/master/gb/2020/08/18/a102920538.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/警察对法轮功学员强行采血 专家析背后原因  >-009fcc?logoWidth=1" title="警察对法轮功学员强行采血 专家析背后原因  " alt="警察对法轮功学员强行采血 专家析背后原因  "></a></p>
 <p><a href="https://github.com/nsrmna346/ntdtv/blob/master/gb/2020/08/18/a102920524.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/担忧人民起义？ 中共全面下架电影《V字仇杀队>-009fcc?logoWidth=1" title="担忧人民起义？ 中共全面下架电影《V字仇杀队》  " alt="担忧人民起义？ 中共全面下架电影《V字仇杀队》  "></a></p>
-<p><a href="https://github.com/nsrmna346/ntdtv/blob/master/gb/2020/08/18/a102920487.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球最高温 南加州死谷火炉溪摄氏54.4度 >-009fcc?logoWidth=1" title="全球最高温 南加州死谷火炉溪摄氏54.4度  " alt="全球最高温 南加州死谷火炉溪摄氏54.4度  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nsrmna346/djy/blob/master/gb/20/8/14/n12330373.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共操控舆情的七步流程揭秘         >-009fcc?logoWidth=1" title="中共操控舆情的七步流程揭秘  " alt="中共操控舆情的七步流程揭秘  "></a></p>
 <p><a href="https://github.com/nsrmna346/djy/blob/master/gb/20/8/17/n12337766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：北戴河会议似结束 暂未见大动作    >-009fcc?logoWidth=1" title="钟原：北戴河会议似结束 暂未见大动作  " alt="钟原：北戴河会议似结束 暂未见大动作  "></a></p>
@@ -39,17 +39,16 @@
 <p><a href="https://github.com/nsrmna346/djy/blob/master/gb/20/8/18/n12338795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/深圳对市民监控升级引瞩目          >-009fcc?logoWidth=1" title="深圳对市民监控升级引瞩目  " alt="深圳对市民监控升级引瞩目  "></a></p>
 <p><a href="https://github.com/nsrmna346/djy/blob/master/gb/20/8/17/n12338247.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国资委巡视期间 中铁建董事长跳楼身亡    >-009fcc?logoWidth=1" title="国资委巡视期间 中铁建董事长跳楼身亡  " alt="国资委巡视期间 中铁建董事长跳楼身亡  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/nsrmna346/ntdtv/blob/master/gb/2020/08/18/a102920523.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅称休斯顿领馆人员“战友” 党给三等功  >-009fcc?logoWidth=1" title="王毅称休斯顿领馆人员“战友” 党给三等功  " alt="王毅称休斯顿领馆人员“战友” 党给三等功  "></a></p>
+<p><a href="https://github.com/nsrmna346/ntdtv/blob/master/gb/2020/08/18/a102920613.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云: 蔡霞指中共像黑帮 红二代觉醒令党恐惧>-009fcc?logoWidth=1" title="田云: 蔡霞指中共像黑帮 红二代觉醒令党恐惧  " alt="田云: 蔡霞指中共像黑帮 红二代觉醒令党恐惧  "></a></p>
+<p><a href="https://github.com/nsrmna346/ntdtv/blob/master/gb/2020/08/18/a102920377.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/七常委集体失踪，习被逼交权？/蔡霞“被退党”>-009fcc?logoWidth=1" title="七常委集体失踪，习被逼交权？/蔡霞“被退党”因“罢习讲话”？  " alt="七常委集体失踪，习被逼交权？/蔡霞“被退党”因“罢习讲话”？  "></a></p>
 <p><a href="https://github.com/nsrmna346/ntdtv/blob/master/gb/2020/08/18/a102920392.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:美国将制裁红二代？白俄罗斯要变天 习近>-009fcc?logoWidth=1" title="文昭:美国将制裁红二代？白俄罗斯要变天 习近平怀疑人生  " alt="文昭:美国将制裁红二代？白俄罗斯要变天 习近平怀疑人生  "></a></p>
-<p><a href="https://github.com/nsrmna346/ntdtv/blob/master/gb/2020/08/10/a102915239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/确诊病例再现 深圳以抗疫之名实施付钞实名制 >-009fcc?logoWidth=1" title="确诊病例再现 深圳以抗疫之名实施付钞实名制  " alt="确诊病例再现 深圳以抗疫之名实施付钞实名制  "></a></p>
 <p><a href="https://github.com/nsrmna346/djy/blob/master/gb/20/8/17/n12336450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞士驻华大使馆发微博 网民留言“大翻车”  >-009fcc?logoWidth=1" title="瑞士驻华大使馆发微博 网民留言“大翻车”  " alt="瑞士驻华大使馆发微博 网民留言“大翻车”  "></a></p>
-<p><a href="https://github.com/nsrmna346/ntdtv/blob/master/gb/2020/08/18/a102920516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/僵尸党打压蔡霞 变种病毒传染惊人      >-009fcc?logoWidth=1" title="僵尸党打压蔡霞 变种病毒传染惊人  " alt="僵尸党打压蔡霞 变种病毒传染惊人  "></a></p>
 <p><a href="https://github.com/nsrmna346/djy/blob/master/gb/20/8/17/n12338131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/社科院称5年后缺1.3亿吨粮 实际恐更严重 >-009fcc?logoWidth=1" title="社科院称5年后缺1.3亿吨粮 实际恐更严重  " alt="社科院称5年后缺1.3亿吨粮 实际恐更严重  "></a></p>
-<p><a href="https://github.com/nsrmna346/djy/blob/master/gb/20/8/17/n12337673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林郑出门须带现金？美制裁威力初探      >-009fcc?logoWidth=1" title="林郑出门须带现金？美制裁威力初探  " alt="林郑出门须带现金？美制裁威力初探  "></a></p>
 <p><a href="https://github.com/nsrmna346/ntdtv/blob/master/gb/2020/08/18/a102920387.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“反浪费” 包子掉地上民众争相抢买  >-009fcc?logoWidth=1" title="习近平“反浪费” 包子掉地上民众争相抢买  " alt="习近平“反浪费” 包子掉地上民众争相抢买  "></a></p>
+<p><a href="https://github.com/nsrmna346/djy/blob/master/gb/20/8/17/n12337673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林郑出门须带现金？美制裁威力初探      >-009fcc?logoWidth=1" title="林郑出门须带现金？美制裁威力初探  " alt="林郑出门须带现金？美制裁威力初探  "></a></p>
 <p><a href="https://github.com/nsrmna346/djy/blob/master/gb/20/8/17/n12338447.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/当中共间谍10年 中情局前华裔职员被捕   >-009fcc?logoWidth=1" title="当中共间谍10年 中情局前华裔职员被捕  " alt="当中共间谍10年 中情局前华裔职员被捕  "></a></p>
-<p><a href="https://github.com/nsrmna346/djy/blob/master/gb/20/8/17/n12337783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上游泄洪 成都金堂水漫二楼         >-009fcc?logoWidth=1" title="上游泄洪 成都金堂水漫二楼  " alt="上游泄洪 成都金堂水漫二楼  "></a></p>
 <p><a href="https://github.com/nsrmna346/ntdtv/blob/master/gb/2020/08/18/a102920470.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普斥华为是间谍通道 直言如脱钩中共会垮台 >-009fcc?logoWidth=1" title="川普斥华为是间谍通道 直言如脱钩中共会垮台  " alt="川普斥华为是间谍通道 直言如脱钩中共会垮台  "></a></p>
-<p><a href="https://github.com/nsrmna346/ntdtv/blob/master/gb/2020/08/17/a102919850.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共80后女淫官搞权色交易被开除 网民议论 >-009fcc?logoWidth=1" title="中共80后女淫官搞权色交易被开除 网民议论  " alt="中共80后女淫官搞权色交易被开除 网民议论  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nsrmna346/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nsrmna346/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nsrmna346/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nsrmna346/www/blob/master/README.md?b#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/nsrmna346/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nsrmna346/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nsrmna346/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nsrmna346/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nsrmna346/www/blob/master/README.md?u#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/nsrmna346/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/2tttt">git.io/2tttt</a></div>
+<div align="center">短网址: <a href="https://git.io/rbbbb">git.io/rbbbb</a></div>
 
