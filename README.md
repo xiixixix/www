@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ucfrfg374/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ucfrfg374/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/akkkk">git.io/akkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/jdd">x.co/jdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uqqqq">git.io/uqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppx">x.co/ppx</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,7 +20,7 @@
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920504.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议不平静 郭文贵：京沪曾爆小规模政治>-009fcc?logoWidth=1" title="北戴河会议不平静 郭文贵：京沪曾爆小规模政治动乱  " alt="北戴河会议不平静 郭文贵：京沪曾爆小规模政治动乱  "></a></p>
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美轰炸机逼近防空识别区 防走火台禁飞行员开第>-009fcc?logoWidth=1" title="美轰炸机逼近防空识别区 防走火台禁飞行员开第一枪  " alt="美轰炸机逼近防空识别区 防走火台禁飞行员开第一枪  "></a></p>
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920442.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议结束 习李露面 仍各说各话不同调 >-009fcc?logoWidth=1" title="北戴河会议结束 习李露面 仍各说各话不同调  " alt="北戴河会议结束 习李露面 仍各说各话不同调  "></a></p>
-<p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920771.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国制裁见效 林郑首度承认使用信用卡受限制 >-009fcc?logoWidth=1" title="美国制裁见效 林郑首度承认使用信用卡受限制  " alt="美国制裁见效 林郑首度承认使用信用卡受限制  "></a></p>
+<p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共间谍涉嫌威胁海军项目 澳吁关闭驻阿德莱德>-009fcc?logoWidth=1" title="中共间谍涉嫌威胁海军项目 澳吁关闭驻阿德莱德中领馆  " alt="中共间谍涉嫌威胁海军项目 澳吁关闭驻阿德莱德中领馆  "></a></p>
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920735.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阿富汗独立日 首都遭十多枚火箭攻击至少10伤>-009fcc?logoWidth=1" title="阿富汗独立日 首都遭十多枚火箭攻击至少10伤  " alt="阿富汗独立日 首都遭十多枚火箭攻击至少10伤  "></a></p>
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江苏一医院弄瞎老人眼睛 患者求告无门    >-009fcc?logoWidth=1" title="江苏一医院弄瞎老人眼睛 患者求告无门  " alt="江苏一医院弄瞎老人眼睛 患者求告无门  "></a></p>
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920719.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/甘肃文县特大泥石流淹三层楼 村民绝望    >-009fcc?logoWidth=1" title="甘肃文县特大泥石流淹三层楼 村民绝望  " alt="甘肃文县特大泥石流淹三层楼 村民绝望  "></a></p>
@@ -43,7 +43,7 @@
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宠物将被当食物？ 传金正恩下“禁狗”令   >-009fcc?logoWidth=1" title="宠物将被当食物？ 传金正恩下“禁狗”令  " alt="宠物将被当食物？ 传金正恩下“禁狗”令  "></a></p>
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/萝卜是养颜长寿药 日本奉为最上等      >-009fcc?logoWidth=1" title="萝卜是养颜长寿药 日本奉为最上等  " alt="萝卜是养颜长寿药 日本奉为最上等  "></a></p>
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12338501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连湾民众被准下楼 聚集讨说法       >-009fcc?logoWidth=1" title="大连湾民众被准下楼 聚集讨说法  " alt="大连湾民众被准下楼 聚集讨说法  "></a></p>
-<p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12338566.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：美军连续强硬动作 中共再认怂     >-009fcc?logoWidth=1" title="沈舟：美军连续强硬动作 中共再认怂  " alt="沈舟：美军连续强硬动作 中共再认怂  "></a></p>
+<p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12338566.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：美军连续强硬动作 中共转入低调    >-009fcc?logoWidth=1" title="沈舟：美军连续强硬动作 中共转入低调  " alt="沈舟：美军连续强硬动作 中共转入低调  "></a></p>
 <p><a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/2020/08/18/a102920377.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/七常委集体失踪，习被逼交权？/蔡霞“被退党”>-009fcc?logoWidth=1" title="七常委集体失踪，习被逼交权？/蔡霞“被退党”因“罢习讲话”？  " alt="七常委集体失踪，习被逼交权？/蔡霞“被退党”因“罢习讲话”？  "></a></p>
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12338626.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美学者：大陆房地产或拖累GDP下滑10   >-009fcc?logoWidth=1" title="美学者：大陆房地产或拖累GDP下滑10  " alt="美学者：大陆房地产或拖累GDP下滑10  "></a></p>
 <p><a href="https://github.com/ucfrfg374/djy/blob/master/gb/20/8/17/n12337783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上游泄洪 成都金堂水漫二楼         >-009fcc?logoWidth=1" title="上游泄洪 成都金堂水漫二楼  " alt="上游泄洪 成都金堂水漫二楼  "></a></p>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ucfrfg374/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ucfrfg374/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ucfrfg374/www/blob/master/README.md?q#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ucfrfg374/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ucfrfg374/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ucfrfg374/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ucfrfg374/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ucfrfg374/www/blob/master/README.md?y#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ucfrfg374/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/akkkk">git.io/akkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/uqqqq">git.io/uqqqq</a></div>
 
