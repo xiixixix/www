@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/lodojv3329/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/lodojv3329/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f2222">git.io/f2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2666">x.co/2666</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rrrrrrrr">git.io/rrrrrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp4">x.co/pp4</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -31,7 +31,7 @@
 <p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12338586.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/37沙特人天津移植器官 牵出内幕知多少   >-009fcc?logoWidth=1" title="37沙特人天津移植器官 牵出内幕知多少  " alt="37沙特人天津移植器官 牵出内幕知多少  "></a></p>
 <p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12338420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：大瘟疫后 我就不跟中方通话了     >-009fcc?logoWidth=1" title="川普：大瘟疫后 我就不跟中方通话了  " alt="川普：大瘟疫后 我就不跟中方通话了  "></a></p>
 <p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12338566.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：美军连续强硬动作 中共再认怂     >-009fcc?logoWidth=1" title="沈舟：美军连续强硬动作 中共再认怂  " alt="沈舟：美军连续强硬动作 中共再认怂  "></a></p>
-<p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/12/n12326588.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外事排头兵和百人计划揭秘        >-009fcc?logoWidth=1" title="中共外事排头兵和百人计划揭秘  " alt="中共外事排头兵和百人计划揭秘  "></a></p>
+<p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12338272.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会超长结束 习难脱7大困境      >-009fcc?logoWidth=1" title="北戴河会超长结束 习难脱7大困境  " alt="北戴河会超长结束 习难脱7大困境  "></a></p>
 <p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12338501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连湾民众被准下楼 聚集讨说法       >-009fcc?logoWidth=1" title="大连湾民众被准下楼 聚集讨说法  " alt="大连湾民众被准下楼 聚集讨说法  "></a></p>
 <p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/11/n12322176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中领馆操控CSSA 长臂威胁世界      >-009fcc?logoWidth=1" title="中领馆操控CSSA 长臂威胁世界  " alt="中领馆操控CSSA 长臂威胁世界  "></a></p>
 <p><a href="https://github.com/lodojv3329/djy/blob/master/gb/20/8/17/n12336450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞士驻华大使馆发微博 网民留言“大翻车”  >-009fcc?logoWidth=1" title="瑞士驻华大使馆发微博 网民留言“大翻车”  " alt="瑞士驻华大使馆发微博 网民留言“大翻车”  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/lodojv3329/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lodojv3329/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lodojv3329/www/blob/master/README.md?y#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/lodojv3329/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/lodojv3329/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lodojv3329/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lodojv3329/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lodojv3329/www/blob/master/README.md?c#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/lodojv3329/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/f2222">git.io/f2222</a></div>
+<div align="center">短网址: <a href="https://git.io/rrrrrrrr">git.io/rrrrrrrr</a></div>
 
