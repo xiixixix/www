@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ubaawd3038/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ubaawd3038/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bpppp">git.io/bpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/x99">x.co/x99</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/3333333">git.io/3333333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/5pp">x.co/5pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/18/a102920703.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞：换掉习已成党内共识/上海副市长落马  >-009fcc?logoWidth=1" title="蔡霞：换掉习已成党内共识/上海副市长落马  " alt="蔡霞：换掉习已成党内共识/上海副市长落马  "></a></p>
 <p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/18/a102920657.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共配合制裁 上海党员名单外泄       >-009fcc?logoWidth=1" title="中共配合制裁 上海党员名单外泄  " alt="中共配合制裁 上海党员名单外泄  "></a></p>
 <p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/18/a102920611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议刚结束 上海副市长即落马     >-009fcc?logoWidth=1" title="北戴河会议刚结束 上海副市长即落马  " alt="北戴河会议刚结束 上海副市长即落马  "></a></p>
+<p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/19/a102921161.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：是我取消贸易会谈 此刻不想与中方对话 >-009fcc?logoWidth=1" title="川普：是我取消贸易会谈 此刻不想与中方对话  " alt="川普：是我取消贸易会谈 此刻不想与中方对话  "></a></p>
 <p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/10/a102915239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平首次现身灾区 考察“被牺牲”的安徽  >-009fcc?logoWidth=1" title="习近平首次现身灾区 考察“被牺牲”的安徽  " alt="习近平首次现身灾区 考察“被牺牲”的安徽  "></a></p>
 <p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/18/a102921033.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥出访欧洲 多国响应“净网行动”    >-009fcc?logoWidth=1" title="蓬佩奥出访欧洲 多国响应“净网行动”  " alt="蓬佩奥出访欧洲 多国响应“净网行动”  "></a></p>
 <p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/18/a102921031.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞被开除党籍 再批中共“政治僵尸”    >-009fcc?logoWidth=1" title="蔡霞被开除党籍 再批中共“政治僵尸”  " alt="蔡霞被开除党籍 再批中共“政治僵尸”  "></a></p>
 <p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/18/a102921042.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江5号洪水过境 重庆朝天门门洞全没入水中 >-009fcc?logoWidth=1" title="长江5号洪水过境 重庆朝天门门洞全没入水中  " alt="长江5号洪水过境 重庆朝天门门洞全没入水中  "></a></p>
-<p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/18/a102921035.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5G优化视讯传输 让你也能拥有千里眼    >-009fcc?logoWidth=1" title="5G优化视讯传输 让你也能拥有千里眼  " alt="5G优化视讯传输 让你也能拥有千里眼  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/14/n12330373.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共操控舆情的七步流程揭秘         >-009fcc?logoWidth=1" title="中共操控舆情的七步流程揭秘  " alt="中共操控舆情的七步流程揭秘  "></a></p>
 <p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/18/n12340693.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：华为是“间谍为” 帮中共监视我们   >-009fcc?logoWidth=1" title="川普：华为是“间谍为” 帮中共监视我们  " alt="川普：华为是“间谍为” 帮中共监视我们  "></a></p>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ubaawd3038/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ubaawd3038/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ubaawd3038/www/blob/master/README.md?e#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ubaawd3038/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ubaawd3038/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ubaawd3038/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ubaawd3038/www/blob/master/README.md?r#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ubaawd3038/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bpppp">git.io/bpppp</a></div>
+<div align="center">短网址: <a href="https://git.io/3333333">git.io/3333333</a></div>
 
