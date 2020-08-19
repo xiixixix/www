@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/byeujs321/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/byeujs321/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kkkkk">git.io/kkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a7a">x.co/a7a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cpppp">git.io/cpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2999">x.co/2999</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/byeujs321/ntdtv/blob/master/gb/2020/08/19/a102921310.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两江洪水凶猛！重庆市水位全超保 三峡9孔泄洪>-009fcc?logoWidth=1" title="两江洪水凶猛！重庆市水位全超保 三峡9孔泄洪(视频)  " alt="两江洪水凶猛！重庆市水位全超保 三峡9孔泄洪(视频)  "></a></p>
 <p><a href="https://github.com/byeujs321/ntdtv/blob/master/gb/2020/08/19/a102921308.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/警告中朝 美军6架轰炸机罕见飞临朝鲜半岛  >-009fcc?logoWidth=1" title="警告中朝 美军6架轰炸机罕见飞临朝鲜半岛  " alt="警告中朝 美军6架轰炸机罕见飞临朝鲜半岛  "></a></p>
 <p><a href="https://github.com/byeujs321/ntdtv/blob/master/gb/2020/08/19/a102921227.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会否与中华民国复交？学者：中共或不会有强>-009fcc?logoWidth=1" title="美国会否与中华民国复交？学者：中共或不会有强烈反应  " alt="美国会否与中华民国复交？学者：中共或不会有强烈反应  "></a></p>
+<p><a href="https://github.com/byeujs321/ntdtv/blob/master/gb/2020/08/19/a102921939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/8·19川普发布会 疫情趋缓经济反弹    >-009fcc?logoWidth=1" title="8·19川普发布会 疫情趋缓经济反弹  " alt="8·19川普发布会 疫情趋缓经济反弹  "></a></p>
+<p><a href="https://github.com/byeujs321/ntdtv/blob/master/gb/2020/08/16/a102919581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/追查国际调查中共空军西京医院活摘器官现场录像>-009fcc?logoWidth=1" title="追查国际调查中共空军西京医院活摘器官现场录像  " alt="追查国际调查中共空军西京医院活摘器官现场录像  "></a></p>
 <p><a href="https://github.com/byeujs321/ntdtv/blob/master/gb/2020/08/19/a102921857.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪灾后中共仍称早稻“增产” 此前连续7年减产>-009fcc?logoWidth=1" title="洪灾后中共仍称早稻“增产” 此前连续7年减产  " alt="洪灾后中共仍称早稻“增产” 此前连续7年减产  "></a></p>
 <p><a href="https://github.com/byeujs321/ntdtv/blob/master/gb/2020/08/19/a102921841.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港课本被迫改版 删去三权分立与新闻自由  >-009fcc?logoWidth=1" title="香港课本被迫改版 删去三权分立与新闻自由  " alt="香港课本被迫改版 删去三权分立与新闻自由  "></a></p>
 <p><a href="https://github.com/byeujs321/ntdtv/blob/master/gb/2020/08/19/a102921862.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/创记录洪水来袭 三峡大坝开11孔泄洪    >-009fcc?logoWidth=1" title="创记录洪水来袭 三峡大坝开11孔泄洪  " alt="创记录洪水来袭 三峡大坝开11孔泄洪  "></a></p>
-<p><a href="https://github.com/byeujs321/ntdtv/blob/master/gb/2020/08/16/a102919581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/追查国际调查中共空军西京医院活摘器官现场录像>-009fcc?logoWidth=1" title="追查国际调查中共空军西京医院活摘器官现场录像  " alt="追查国际调查中共空军西京医院活摘器官现场录像  "></a></p>
-<p><a href="https://github.com/byeujs321/ntdtv/blob/master/gb/2020/08/19/a102921827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/姚诚：军事打击中共是不二选择的当务之急   >-009fcc?logoWidth=1" title="姚诚：军事打击中共是不二选择的当务之急  " alt="姚诚：军事打击中共是不二选择的当务之急  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/byeujs321/djy/blob/master/gb/20/8/18/n12340991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海195万党员名单疑外泄 记录详细个资  >-009fcc?logoWidth=1" title="上海195万党员名单疑外泄 记录详细个资  " alt="上海195万党员名单疑外泄 记录详细个资  "></a></p>
 <p><a href="https://github.com/byeujs321/djy/blob/master/gb/20/8/19/n12343019.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前党校教授：川普三大优势 习近平四大缺陷  >-009fcc?logoWidth=1" title="前党校教授：川普三大优势 习近平四大缺陷  " alt="前党校教授：川普三大优势 习近平四大缺陷  "></a></p>
@@ -39,18 +39,16 @@
 <p><a href="https://github.com/byeujs321/djy/blob/master/gb/20/8/19/n12342918.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江5号洪水过境 重庆遇20年来最大洪水  >-009fcc?logoWidth=1" title="长江5号洪水过境 重庆遇20年来最大洪水  " alt="长江5号洪水过境 重庆遇20年来最大洪水  "></a></p>
 <p><a href="https://github.com/byeujs321/djy/blob/master/gb/20/8/19/n12343037.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军舰穿越台湾海峡 挑战者650也现踪   >-009fcc?logoWidth=1" title="美军舰穿越台湾海峡 挑战者650也现踪  " alt="美军舰穿越台湾海峡 挑战者650也现踪  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/byeujs321/djy/blob/master/gb/20/8/19/n12342330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/创纪录洪水扑向三峡大坝 民众深感恐怖    >-009fcc?logoWidth=1" title="创纪录洪水扑向三峡大坝 民众深感恐怖  " alt="创纪录洪水扑向三峡大坝 民众深感恐怖  "></a></p>
-<p><a href="https://github.com/byeujs321/djy/blob/master/gb/20/8/19/n12340919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伪造签名 领280万纾困款 一美国华人被捕 >-009fcc?logoWidth=1" title="伪造签名 领280万纾困款 一美国华人被捕  " alt="伪造签名 领280万纾困款 一美国华人被捕  "></a></p>
+<p><a href="https://github.com/byeujs321/djy/blob/master/gb/20/8/19/n12343440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美著名学者警告：中共威胁武力攻台 不是虚张声>-009fcc?logoWidth=1" title="美著名学者警告：中共威胁武力攻台 不是虚张声势  " alt="美著名学者警告：中共威胁武力攻台 不是虚张声势  "></a></p>
 <p><a href="https://github.com/byeujs321/ntdtv/blob/master/gb/2020/08/19/a102921597.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒:习近平刀刃向内“毛式”大清洗 安全机构>-009fcc?logoWidth=1" title="美媒:习近平刀刃向内“毛式”大清洗 安全机构成重点  " alt="美媒:习近平刀刃向内“毛式”大清洗 安全机构成重点  "></a></p>
-<p><a href="https://github.com/byeujs321/djy/blob/master/gb/20/8/19/n12341810.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒爆上海公安局长龚道安被查原因      >-009fcc?logoWidth=1" title="港媒爆上海公安局长龚道安被查原因  " alt="港媒爆上海公安局长龚道安被查原因  "></a></p>
 <p><a href="https://github.com/byeujs321/ntdtv/blob/master/gb/2020/08/19/a102921425.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平一声令下禁浪费 上海“红卫兵再现”  >-009fcc?logoWidth=1" title="习近平一声令下禁浪费 上海“红卫兵再现”  " alt="习近平一声令下禁浪费 上海“红卫兵再现”  "></a></p>
 <p><a href="https://github.com/byeujs321/ntdtv/blob/master/gb/2020/08/19/a102921505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒曝上海副市长、公安局长落马内情     >-009fcc?logoWidth=1" title="港媒曝上海副市长、公安局长落马内情  " alt="港媒曝上海副市长、公安局长落马内情  "></a></p>
-<p><a href="https://github.com/byeujs321/djy/blob/master/gb/20/8/19/n12342375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平去安徽灾区 灾民被质疑“临时演员”  >-009fcc?logoWidth=1" title="习近平去安徽灾区 灾民被质疑“临时演员”  " alt="习近平去安徽灾区 灾民被质疑“临时演员”  "></a></p>
-<p><a href="https://github.com/byeujs321/djy/blob/master/gb/20/8/19/n12341429.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：习近平如何才能保命的四面镜子    >-009fcc?logoWidth=1" title="王友群：习近平如何才能保命的四面镜子  " alt="王友群：习近平如何才能保命的四面镜子  "></a></p>
+<p><a href="https://github.com/byeujs321/djy/blob/master/gb/20/8/19/n12341938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉泳池3000人电音派对狂欢 专家暗批  >-009fcc?logoWidth=1" title="武汉泳池3000人电音派对狂欢 专家暗批  " alt="武汉泳池3000人电音派对狂欢 专家暗批  "></a></p>
+<p><a href="https://github.com/byeujs321/djy/blob/master/gb/20/8/19/n12341810.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒爆上海公安局长龚道安被查原因      >-009fcc?logoWidth=1" title="港媒爆上海公安局长龚道安被查原因  " alt="港媒爆上海公安局长龚道安被查原因  "></a></p>
 <p><a href="https://github.com/byeujs321/ntdtv/blob/master/gb/2020/08/19/a102921138.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平被围攻？4大不寻常事件折射北戴河激斗 >-009fcc?logoWidth=1" title="习近平被围攻？4大不寻常事件折射北戴河激斗  " alt="习近平被围攻？4大不寻常事件折射北戴河激斗  "></a></p>
 <p><a href="https://github.com/byeujs321/ntdtv/blob/master/gb/2020/08/19/a102921228.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习视察安徽被讽“马后炮”北戴河会议结果惹议 >-009fcc?logoWidth=1" title="习视察安徽被讽“马后炮”北戴河会议结果惹议  " alt="习视察安徽被讽“马后炮”北戴河会议结果惹议  "></a></p>
-<p><a href="https://github.com/byeujs321/djy/blob/master/gb/20/8/19/n12341938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉泳池3000人电音派对狂欢 专家暗批  >-009fcc?logoWidth=1" title="武汉泳池3000人电音派对狂欢 专家暗批  " alt="武汉泳池3000人电音派对狂欢 专家暗批  "></a></p>
-<p><a href="https://github.com/byeujs321/djy/blob/master/gb/20/8/19/n12343559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杭师大教师多篇论文涉抄袭 欲用钱封口    >-009fcc?logoWidth=1" title="杭师大教师多篇论文涉抄袭 欲用钱封口  " alt="杭师大教师多篇论文涉抄袭 欲用钱封口  "></a></p>
+<p><a href="https://github.com/byeujs321/djy/blob/master/gb/20/8/19/n12341429.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：习近平如何才能保命的四面镜子    >-009fcc?logoWidth=1" title="王友群：习近平如何才能保命的四面镜子  " alt="王友群：习近平如何才能保命的四面镜子  "></a></p>
+<p><a href="https://github.com/byeujs321/djy/blob/master/gb/20/8/19/n12343258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官媒指报考学医人数变多 在职医生反向忠告  >-009fcc?logoWidth=1" title="官媒指报考学医人数变多 在职医生反向忠告  " alt="官媒指报考学医人数变多 在职医生反向忠告  "></a></p>
 <p><a href="https://github.com/byeujs321/ntdtv/blob/master/gb/2020/08/18/a102921025.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白俄罗斯万年总统被轰下台 中国可以吗？   >-009fcc?logoWidth=1" title="白俄罗斯万年总统被轰下台 中国可以吗？  " alt="白俄罗斯万年总统被轰下台 中国可以吗？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -263,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://byeujs321.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?fsgmy">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?onmsa">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?eedza">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?htmeq">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -309,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?gzham">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?jdptl">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?dxcov">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ptswe">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -489,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/byeujs321/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/byeujs321/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/byeujs321/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/byeujs321/www/blob/master/README.md?b#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/byeujs321/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/byeujs321/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/byeujs321/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/byeujs321/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/byeujs321/www/blob/master/README.md?s#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/byeujs321/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kkkkk">git.io/kkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/cpppp">git.io/cpppp</a></div>
 
