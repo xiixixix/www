@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/byeujs321/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/byeujs321/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qtttt">git.io/qtttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u22">x.co/u22</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gzzzz">git.io/gzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3339">x.co/3339</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,9 +27,9 @@
 <p><a href="https://github.com/byeujs321/ntdtv/blob/master/gb/2020/08/19/a102921449.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/马里发生兵变 总统宣布辞职         >-009fcc?logoWidth=1" title="马里发生兵变 总统宣布辞职  " alt="马里发生兵变 总统宣布辞职  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/byeujs321/djy/blob/master/gb/20/8/18/n12340991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海195万党员名单疑外泄 记录详细个资  >-009fcc?logoWidth=1" title="上海195万党员名单疑外泄 记录详细个资  " alt="上海195万党员名单疑外泄 记录详细个资  "></a></p>
+<p><a href="https://github.com/byeujs321/djy/blob/master/gb/20/8/19/n12341646.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约州长前顾问曾为中共做代理人       >-009fcc?logoWidth=1" title="纽约州长前顾问曾为中共做代理人  " alt="纽约州长前顾问曾为中共做代理人  "></a></p>
 <p><a href="https://github.com/byeujs321/djy/blob/master/gb/20/8/19/n12342114.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：蔡霞事件引国际关注 中共解体是必然  >-009fcc?logoWidth=1" title="田云：蔡霞事件引国际关注 中共解体是必然  " alt="田云：蔡霞事件引国际关注 中共解体是必然  "></a></p>
 <p><a href="https://github.com/byeujs321/djy/blob/master/gb/20/8/18/n12340693.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：华为是“间谍为” 帮中共监视我们   >-009fcc?logoWidth=1" title="川普：华为是“间谍为” 帮中共监视我们  " alt="川普：华为是“间谍为” 帮中共监视我们  "></a></p>
-<p><a href="https://github.com/byeujs321/djy/blob/master/gb/20/8/18/n12340358.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习李不同调 蔡霞：共产党必须抛弃      >-009fcc?logoWidth=1" title="习李不同调 蔡霞：共产党必须抛弃  " alt="习李不同调 蔡霞：共产党必须抛弃  "></a></p>
 <p><a href="https://github.com/byeujs321/djy/blob/master/gb/20/8/19/n12342051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：上海公安局长龚道安落马震动湖北官场 >-009fcc?logoWidth=1" title="陈思敏：上海公安局长龚道安落马震动湖北官场  " alt="陈思敏：上海公安局长龚道安落马震动湖北官场  "></a></p>
 <p><a href="https://github.com/byeujs321/djy/blob/master/gb/20/8/3/n12302020.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外事办奉命搜刮海外医疗物资         >-009fcc?logoWidth=1" title="外事办奉命搜刮海外医疗物资  " alt="外事办奉命搜刮海外医疗物资  "></a></p>
 <p><a href="https://github.com/byeujs321/djy/blob/master/gb/20/8/19/n12341938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉泳池3000人电音派对狂欢 专家暗批  >-009fcc?logoWidth=1" title="武汉泳池3000人电音派对狂欢 专家暗批  " alt="武汉泳池3000人电音派对狂欢 专家暗批  "></a></p>
@@ -261,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://byeujs321.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?pyqmi">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?szjwn">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?balay">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?utugf">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?nfnjr">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?litjy">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?fjzhv">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?tqfly">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -488,7 +488,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/byeujs321/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/byeujs321/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/byeujs321/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/byeujs321/www/blob/master/README.md?h#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/byeujs321/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/byeujs321/www/blob/master/README.md?g#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/byeujs321/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qtttt">git.io/qtttt</a></div>
+<div align="center">短网址: <a href="https://git.io/gzzzz">git.io/gzzzz</a></div>
 
