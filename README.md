@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/byeujs321/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/byeujs321/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/knnnn">git.io/knnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/afa">x.co/afa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bhhhh">git.io/bhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3555">x.co/3555</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/byeujs321/ntdtv/blob/master/gb/2020/08/19/a102921227.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会否与中华民国复交？学者：中共或不会有强>-009fcc?logoWidth=1" title="美国会否与中华民国复交？学者：中共或不会有强烈反应  " alt="美国会否与中华民国复交？学者：中共或不会有强烈反应  "></a></p>
 <p><a href="https://github.com/byeujs321/ntdtv/blob/master/gb/2020/08/19/a102921584.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/芬兰阻疫情扩散 祭出欧洲最严边境管制    >-009fcc?logoWidth=1" title="芬兰阻疫情扩散 祭出欧洲最严边境管制  " alt="芬兰阻疫情扩散 祭出欧洲最严边境管制  "></a></p>
 <p><a href="https://github.com/byeujs321/ntdtv/blob/master/gb/2020/08/19/a102921505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒曝上海副市长、公安局长落马内情     >-009fcc?logoWidth=1" title="港媒曝上海副市长、公安局长落马内情  " alt="港媒曝上海副市长、公安局长落马内情  "></a></p>
+<p><a href="https://github.com/byeujs321/ntdtv/blob/master/gb/2020/08/19/a102921544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海数十访民进京上访 半夜被抓       >-009fcc?logoWidth=1" title="上海数十访民进京上访 半夜被抓  " alt="上海数十访民进京上访 半夜被抓  "></a></p>
 <p><a href="https://github.com/byeujs321/ntdtv/blob/master/gb/2020/08/10/a102915239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平首次现身灾区 考察“被牺牲”的安徽  >-009fcc?logoWidth=1" title="习近平首次现身灾区 考察“被牺牲”的安徽  " alt="习近平首次现身灾区 考察“被牺牲”的安徽  "></a></p>
 <p><a href="https://github.com/byeujs321/ntdtv/blob/master/gb/2020/08/19/a102921502.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普乘“空军一号”险遭无人机撞上 美军展开调>-009fcc?logoWidth=1" title="川普乘“空军一号”险遭无人机撞上 美军展开调查  " alt="川普乘“空军一号”险遭无人机撞上 美军展开调查  "></a></p>
-<p><a href="https://github.com/byeujs321/ntdtv/blob/master/gb/2020/08/19/a102921425.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平一声令下禁浪费 上海“红卫兵再现”  >-009fcc?logoWidth=1" title="习近平一声令下禁浪费 上海“红卫兵再现”  " alt="习近平一声令下禁浪费 上海“红卫兵再现”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/byeujs321/djy/blob/master/gb/20/8/18/n12340991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海195万党员名单疑外泄 记录详细个资  >-009fcc?logoWidth=1" title="上海195万党员名单疑外泄 记录详细个资  " alt="上海195万党员名单疑外泄 记录详细个资  "></a></p>
 <p><a href="https://github.com/byeujs321/djy/blob/master/gb/20/8/19/n12341646.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约州长前顾问曾为中共做代理人       >-009fcc?logoWidth=1" title="纽约州长前顾问曾为中共做代理人  " alt="纽约州长前顾问曾为中共做代理人  "></a></p>
@@ -264,9 +264,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://byeujs321.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?xwhlo">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?fqpzn">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?mmftp">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?snggm">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -310,8 +310,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?pzosg">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?finac">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?lmcht">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ibcaq">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -490,8 +490,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/byeujs321/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/byeujs321/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/byeujs321/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/byeujs321/www/blob/master/README.md?o#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/byeujs321/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/byeujs321/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/byeujs321/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/byeujs321/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/byeujs321/www/blob/master/README.md?h#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/byeujs321/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/knnnn">git.io/knnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/bhhhh">git.io/bhhhh</a></div>
 
