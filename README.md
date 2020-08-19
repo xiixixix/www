@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ubaawd3038/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ubaawd3038/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dffff">git.io/dffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pgp">x.co/pgp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b8888">git.io/b8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppf">x.co/ppf</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,18 +26,18 @@
 <p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/18/a102921033.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥出访欧洲 多国响应“净网行动”    >-009fcc?logoWidth=1" title="蓬佩奥出访欧洲 多国响应“净网行动”  " alt="蓬佩奥出访欧洲 多国响应“净网行动”  "></a></p>
 <p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/18/a102921031.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞被开除党籍 再批中共“政治僵尸”    >-009fcc?logoWidth=1" title="蔡霞被开除党籍 再批中共“政治僵尸”  " alt="蔡霞被开除党籍 再批中共“政治僵尸”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/3/n12302020.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外事办奉命搜刮海外医疗物资         >-009fcc?logoWidth=1" title="外事办奉命搜刮海外医疗物资  " alt="外事办奉命搜刮海外医疗物资  "></a></p>
-<p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/18/n12339413.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海公安局长龚道安被查 将掀政法风暴    >-009fcc?logoWidth=1" title="上海公安局长龚道安被查 将掀政法风暴  " alt="上海公安局长龚道安被查 将掀政法风暴  "></a></p>
+<p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/18/n12340991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海195万党员名单疑外泄 记录详细个资  >-009fcc?logoWidth=1" title="上海195万党员名单疑外泄 记录详细个资  " alt="上海195万党员名单疑外泄 记录详细个资  "></a></p>
 <p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/18/n12340693.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：华为是“间谍为” 帮中共监视我们   >-009fcc?logoWidth=1" title="川普：华为是“间谍为” 帮中共监视我们  " alt="川普：华为是“间谍为” 帮中共监视我们  "></a></p>
 <p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/18/n12340358.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习李不同调 蔡霞：共产党必须抛弃      >-009fcc?logoWidth=1" title="习李不同调 蔡霞：共产党必须抛弃  " alt="习李不同调 蔡霞：共产党必须抛弃  "></a></p>
 <p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/18/n12338803.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云: 蔡霞指中共像黑帮 红二代觉醒令党恐惧>-009fcc?logoWidth=1" title="田云: 蔡霞指中共像黑帮 红二代觉醒令党恐惧  " alt="田云: 蔡霞指中共像黑帮 红二代觉醒令党恐惧  "></a></p>
+<p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/18/n12340466.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/甘肃文县洪水淹4层楼 古镇也被淹      >-009fcc?logoWidth=1" title="甘肃文县洪水淹4层楼 古镇也被淹  " alt="甘肃文县洪水淹4层楼 古镇也被淹  "></a></p>
+<p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/3/n12302020.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外事办奉命搜刮海外医疗物资         >-009fcc?logoWidth=1" title="外事办奉命搜刮海外医疗物资  " alt="外事办奉命搜刮海外医疗物资  "></a></p>
+<p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/19/n12341429.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：习近平如何才能保命的四面镜子    >-009fcc?logoWidth=1" title="王友群：习近平如何才能保命的四面镜子  " alt="王友群：习近平如何才能保命的四面镜子  "></a></p>
+<p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/17/n12338586.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/37沙特人天津移植器官 牵出内幕知多少   >-009fcc?logoWidth=1" title="37沙特人天津移植器官 牵出内幕知多少  " alt="37沙特人天津移植器官 牵出内幕知多少  "></a></p>
 <p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/18/n12340389.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共自曝休斯顿领馆人员全被驱逐    >-009fcc?logoWidth=1" title="钟原：中共自曝休斯顿领馆人员全被驱逐  " alt="钟原：中共自曝休斯顿领馆人员全被驱逐  "></a></p>
 <p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/18/n12340992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河“军权”之争             >-009fcc?logoWidth=1" title="北戴河“军权”之争  " alt="北戴河“军权”之争  "></a></p>
-<p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/17/n12338586.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/37沙特人天津移植器官 牵出内幕知多少   >-009fcc?logoWidth=1" title="37沙特人天津移植器官 牵出内幕知多少  " alt="37沙特人天津移植器官 牵出内幕知多少  "></a></p>
-<p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/18/n12340466.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/甘肃文县洪水淹4层楼 古镇也被淹      >-009fcc?logoWidth=1" title="甘肃文县洪水淹4层楼 古镇也被淹  " alt="甘肃文县洪水淹4层楼 古镇也被淹  "></a></p>
 <p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/18/n12341182.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：是我叫停了美中贸易对话        >-009fcc?logoWidth=1" title="川普：是我叫停了美中贸易对话  " alt="川普：是我叫停了美中贸易对话  "></a></p>
 <p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/18/n12339091.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/受美制裁 林郑首度承认使用信用卡受限制   >-009fcc?logoWidth=1" title="受美制裁 林郑首度承认使用信用卡受限制  " alt="受美制裁 林郑首度承认使用信用卡受限制  "></a></p>
-<p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/18/n12341097.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆首启一级防汛警报 洪水罕淹乐山大佛脚趾 >-009fcc?logoWidth=1" title="重庆首启一级防汛警报 洪水罕淹乐山大佛脚趾  " alt="重庆首启一级防汛警报 洪水罕淹乐山大佛脚趾  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/18/n12339871.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒重刊习旧文 学者指或重回计划经济老路  >-009fcc?logoWidth=1" title="党媒重刊习旧文 学者指或重回计划经济老路  " alt="党媒重刊习旧文 学者指或重回计划经济老路  "></a></p>
 <p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/18/a102920847.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/应对粮食危机第一刀？中粮集团总会计师骆家駹被>-009fcc?logoWidth=1" title="应对粮食危机第一刀？中粮集团总会计师骆家駹被查  " alt="应对粮食危机第一刀？中粮集团总会计师骆家駹被查  "></a></p>
@@ -490,8 +490,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ubaawd3038/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ubaawd3038/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ubaawd3038/www/blob/master/README.md?c#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ubaawd3038/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ubaawd3038/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ubaawd3038/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ubaawd3038/www/blob/master/README.md?d#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ubaawd3038/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dffff">git.io/dffff</a></div>
+<div align="center">短网址: <a href="https://git.io/b8888">git.io/b8888</a></div>
 
