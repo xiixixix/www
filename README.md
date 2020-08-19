@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/opvygn3416/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/opvygn3416/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hgggg">git.io/hgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aea">x.co/aea</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fdddd">git.io/fdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3332">x.co/3332</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/opvygn3416/ntdtv/blob/master/gb/2020/08/19/a102921228.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习视察安徽被讽“马后炮”北戴河会议结果惹议 >-009fcc?logoWidth=1" title="习视察安徽被讽“马后炮”北戴河会议结果惹议  " alt="习视察安徽被讽“马后炮”北戴河会议结果惹议  "></a></p>
 <p><a href="https://github.com/opvygn3416/ntdtv/blob/master/gb/2020/08/19/a102921200.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“红二代”蔡霞：川普的优势和习近平“四大缺陷>-009fcc?logoWidth=1" title="“红二代”蔡霞：川普的优势和习近平“四大缺陷”  " alt="“红二代”蔡霞：川普的优势和习近平“四大缺陷”  "></a></p>
 <p><a href="https://github.com/opvygn3416/ntdtv/blob/master/gb/2020/08/19/a102921387.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆学校剩饭菜超重取消奖学金 严重罚100元>-009fcc?logoWidth=1" title="大陆学校剩饭菜超重取消奖学金 严重罚100元  " alt="大陆学校剩饭菜超重取消奖学金 严重罚100元  "></a></p>
+<p><a href="https://github.com/opvygn3416/ntdtv/blob/master/gb/2020/08/19/a102921385.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/害人之心不可有  防“共”之心不可无    >-009fcc?logoWidth=1" title="害人之心不可有  防“共”之心不可无  " alt="害人之心不可有  防“共”之心不可无  "></a></p>
 <p><a href="https://github.com/opvygn3416/ntdtv/blob/master/gb/2020/08/19/a102921319.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/咻！距离2950公里 史上最近小行星擦过地球>-009fcc?logoWidth=1" title="咻！距离2950公里 史上最近小行星擦过地球  " alt="咻！距离2950公里 史上最近小行星擦过地球  "></a></p>
 <p><a href="https://github.com/opvygn3416/ntdtv/blob/master/gb/2020/08/19/a102921314.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骇人！ 四川宜宾路面塌陷 21车瞬间坠入巨坑>-009fcc?logoWidth=1" title="骇人！ 四川宜宾路面塌陷 21车瞬间坠入巨坑  " alt="骇人！ 四川宜宾路面塌陷 21车瞬间坠入巨坑  "></a></p>
 <p><a href="https://github.com/opvygn3416/ntdtv/blob/master/gb/2020/08/19/a102921291.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罕见天文奇景 美国夜空闪现“红色精灵”   >-009fcc?logoWidth=1" title="罕见天文奇景 美国夜空闪现“红色精灵”  " alt="罕见天文奇景 美国夜空闪现“红色精灵”  "></a></p>
-<p><a href="https://github.com/opvygn3416/ntdtv/blob/master/gb/2020/08/19/a102921270.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国325艘渔船惊现厄瓜多尔外海 百余艘关通>-009fcc?logoWidth=1" title="中国325艘渔船惊现厄瓜多尔外海 百余艘关通讯避监控  " alt="中国325艘渔船惊现厄瓜多尔外海 百余艘关通讯避监控  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/opvygn3416/djy/blob/master/gb/20/8/18/n12340991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海195万党员名单疑外泄 记录详细个资  >-009fcc?logoWidth=1" title="上海195万党员名单疑外泄 记录详细个资  " alt="上海195万党员名单疑外泄 记录详细个资  "></a></p>
 <p><a href="https://github.com/opvygn3416/djy/blob/master/gb/20/8/19/n12342114.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：蔡霞事件引国际关注 中共解体是必然  >-009fcc?logoWidth=1" title="田云：蔡霞事件引国际关注 中共解体是必然  " alt="田云：蔡霞事件引国际关注 中共解体是必然  "></a></p>
@@ -263,9 +263,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://opvygn3416.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?abrks">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?teqxi">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?yenlf">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?oxitp">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -309,8 +309,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?fzoiq">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?nqdcv">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?negci">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?dangj">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -489,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/opvygn3416/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/opvygn3416/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/opvygn3416/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/opvygn3416/www/blob/master/README.md?p#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/opvygn3416/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/opvygn3416/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/opvygn3416/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/opvygn3416/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/opvygn3416/www/blob/master/README.md?g#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/opvygn3416/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hgggg">git.io/hgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/fdddd">git.io/fdddd</a></div>
 
