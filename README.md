@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/opvygn3416/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/opvygn3416/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/taaaa">git.io/taaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/xpp">x.co/xpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/22222222">git.io/22222222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pcp">x.co/pcp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -23,8 +23,8 @@
 <p><a href="https://github.com/opvygn3416/ntdtv/blob/master/gb/2020/08/19/a102921291.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罕见天文奇景 美国夜空闪现“红色精灵”   >-009fcc?logoWidth=1" title="罕见天文奇景 美国夜空闪现“红色精灵”  " alt="罕见天文奇景 美国夜空闪现“红色精灵”  "></a></p>
 <p><a href="https://github.com/opvygn3416/ntdtv/blob/master/gb/2020/08/19/a102921270.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国325艘渔船惊现厄瓜多尔外海 百余艘关通>-009fcc?logoWidth=1" title="中国325艘渔船惊现厄瓜多尔外海 百余艘关通讯避监控  " alt="中国325艘渔船惊现厄瓜多尔外海 百余艘关通讯避监控  "></a></p>
 <p><a href="https://github.com/opvygn3416/ntdtv/blob/master/gb/2020/08/19/a102921277.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫：进入疫情新阶段 20至40岁无症状染疫>-009fcc?logoWidth=1" title="世卫：进入疫情新阶段 20至40岁无症状染疫者大增  " alt="世卫：进入疫情新阶段 20至40岁无症状染疫者大增  "></a></p>
+<p><a href="https://github.com/opvygn3416/ntdtv/blob/master/gb/2020/08/19/a102921271.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川重庆多地严重内涝 为何这座城 千年不淹？>-009fcc?logoWidth=1" title="四川重庆多地严重内涝 为何这座城 千年不淹？  " alt="四川重庆多地严重内涝 为何这座城 千年不淹？  "></a></p>
 <p><a href="https://github.com/opvygn3416/ntdtv/blob/master/gb/2020/08/19/a102921266.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国总统大选谁赢？日本媒体浙江义乌找到答案 >-009fcc?logoWidth=1" title="美国总统大选谁赢？日本媒体浙江义乌找到答案  " alt="美国总统大选谁赢？日本媒体浙江义乌找到答案  "></a></p>
-<p><a href="https://github.com/opvygn3416/ntdtv/blob/master/gb/2020/08/19/a102921211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反叛军发动政变 马利总统及总理遭拘捕后辞职 >-009fcc?logoWidth=1" title="反叛军发动政变 马利总统及总理遭拘捕后辞职  " alt="反叛军发动政变 马利总统及总理遭拘捕后辞职  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/opvygn3416/djy/blob/master/gb/20/8/18/n12340991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海195万党员名单疑外泄 记录详细个资  >-009fcc?logoWidth=1" title="上海195万党员名单疑外泄 记录详细个资  " alt="上海195万党员名单疑外泄 记录详细个资  "></a></p>
 <p><a href="https://github.com/opvygn3416/djy/blob/master/gb/20/8/18/n12340693.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：华为是“间谍为” 帮中共监视我们   >-009fcc?logoWidth=1" title="川普：华为是“间谍为” 帮中共监视我们  " alt="川普：华为是“间谍为” 帮中共监视我们  "></a></p>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/opvygn3416/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/opvygn3416/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/opvygn3416/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/opvygn3416/www/blob/master/README.md?y#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/opvygn3416/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/opvygn3416/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/opvygn3416/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/opvygn3416/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/opvygn3416/www/blob/master/README.md?x#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/opvygn3416/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/taaaa">git.io/taaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/22222222">git.io/22222222</a></div>
 
