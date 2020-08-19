@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ubaawd3038/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ubaawd3038/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/y3333">git.io/y3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2333">x.co/2333</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a5555">git.io/a5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/fdd">x.co/fdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/18/a102920981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平首次现身灾区 考察“被牺牲”的安徽  >-009fcc?logoWidth=1" title="习近平首次现身灾区 考察“被牺牲”的安徽  " alt="习近平首次现身灾区 考察“被牺牲”的安徽  "></a></p>
 <p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/19/a102921138.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平被围攻？4大不寻常事件折射北戴河激斗 >-009fcc?logoWidth=1" title="习近平被围攻？4大不寻常事件折射北戴河激斗  " alt="习近平被围攻？4大不寻常事件折射北戴河激斗  "></a></p>
 <p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/18/a102920952.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国新制裁有多重？专家解析：华为“非死不可”>-009fcc?logoWidth=1" title="美国新制裁有多重？专家解析：华为“非死不可”  " alt="美国新制裁有多重？专家解析：华为“非死不可”  "></a></p>
+<p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/19/a102921228.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习视察安徽被讽“马后炮”北戴河会议结果惹议 >-009fcc?logoWidth=1" title="习视察安徽被讽“马后炮”北戴河会议结果惹议  " alt="习视察安徽被讽“马后炮”北戴河会议结果惹议  "></a></p>
 <p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/19/a102921211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反叛军发动政变 马利总统及总理遭拘捕后辞职 >-009fcc?logoWidth=1" title="反叛军发动政变 马利总统及总理遭拘捕后辞职  " alt="反叛军发动政变 马利总统及总理遭拘捕后辞职  "></a></p>
 <p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/19/a102921197.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印尼苏门答腊岛南部 连传6.8及6.9浅层地>-009fcc?logoWidth=1" title="印尼苏门答腊岛南部 连传6.8及6.9浅层地震  " alt="印尼苏门答腊岛南部 连传6.8及6.9浅层地震  "></a></p>
 <p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/10/a102915239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平首次现身灾区 考察“被牺牲”的安徽  >-009fcc?logoWidth=1" title="习近平首次现身灾区 考察“被牺牲”的安徽  " alt="习近平首次现身灾区 考察“被牺牲”的安徽  "></a></p>
 <p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/18/a102921033.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥出访欧洲 多国响应“净网行动”    >-009fcc?logoWidth=1" title="蓬佩奥出访欧洲 多国响应“净网行动”  " alt="蓬佩奥出访欧洲 多国响应“净网行动”  "></a></p>
-<p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/18/a102921031.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞被开除党籍 再批中共“政治僵尸”    >-009fcc?logoWidth=1" title="蔡霞被开除党籍 再批中共“政治僵尸”  " alt="蔡霞被开除党籍 再批中共“政治僵尸”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/18/n12340991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海195万党员名单疑外泄 记录详细个资  >-009fcc?logoWidth=1" title="上海195万党员名单疑外泄 记录详细个资  " alt="上海195万党员名单疑外泄 记录详细个资  "></a></p>
 <p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/18/n12340693.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：华为是“间谍为” 帮中共监视我们   >-009fcc?logoWidth=1" title="川普：华为是“间谍为” 帮中共监视我们  " alt="川普：华为是“间谍为” 帮中共监视我们  "></a></p>
@@ -490,8 +490,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ubaawd3038/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ubaawd3038/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ubaawd3038/www/blob/master/README.md?t#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ubaawd3038/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ubaawd3038/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ubaawd3038/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ubaawd3038/www/blob/master/README.md?r#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ubaawd3038/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/y3333">git.io/y3333</a></div>
+<div align="center">短网址: <a href="https://git.io/a5555">git.io/a5555</a></div>
 
