@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ubaawd3038/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ubaawd3038/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/t7777">git.io/t7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p3p">x.co/p3p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/zcccc">git.io/zcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p4p">x.co/p4p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,21 +39,20 @@
 <p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/18/n12340992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河“军权”之争             >-009fcc?logoWidth=1" title="北戴河“军权”之争  " alt="北戴河“军权”之争  "></a></p>
 <p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/18/n12341182.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：是我叫停了美中贸易对话        >-009fcc?logoWidth=1" title="川普：是我叫停了美中贸易对话  " alt="川普：是我叫停了美中贸易对话  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/18/n12339871.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒重刊习旧文 学者指或重回计划经济老路  >-009fcc?logoWidth=1" title="党媒重刊习旧文 学者指或重回计划经济老路  " alt="党媒重刊习旧文 学者指或重回计划经济老路  "></a></p>
 <p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/18/a102920847.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/应对粮食危机第一刀？中粮集团总会计师骆家駹被>-009fcc?logoWidth=1" title="应对粮食危机第一刀？中粮集团总会计师骆家駹被查  " alt="应对粮食危机第一刀？中粮集团总会计师骆家駹被查  "></a></p>
-<p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/18/a102920521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“红二代”蔡霞：换掉习近平已成党内共识   >-009fcc?logoWidth=1" title="“红二代”蔡霞：换掉习近平已成党内共识  " alt="“红二代”蔡霞：换掉习近平已成党内共识  "></a></p>
-<p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/18/n12340816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《V字仇杀队》遭全网下架 网民：中共怕啥？ >-009fcc?logoWidth=1" title="《V字仇杀队》遭全网下架 网民：中共怕啥？  " alt="《V字仇杀队》遭全网下架 网民：中共怕啥？  "></a></p>
-<p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/18/n12338707.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒变异 北戴河会后内斗加剧      >-009fcc?logoWidth=1" title="中共病毒变异 北戴河会后内斗加剧  " alt="中共病毒变异 北戴河会后内斗加剧  "></a></p>
-<p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/18/a102921025.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白俄罗斯万年总统被轰下台 中国可以吗？   >-009fcc?logoWidth=1" title="白俄罗斯万年总统被轰下台 中国可以吗？  " alt="白俄罗斯万年总统被轰下台 中国可以吗？  "></a></p>
-<p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/18/a102920442.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议结束 习李露面 仍各说各话不同调 >-009fcc?logoWidth=1" title="北戴河会议结束 习李露面 仍各说各话不同调  " alt="北戴河会议结束 习李露面 仍各说各话不同调  "></a></p>
+<p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/18/a102920892.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/独缺习近平！中共高层终同日亮相       >-009fcc?logoWidth=1" title="独缺习近平！中共高层终同日亮相  " alt="独缺习近平！中共高层终同日亮相  "></a></p>
 <p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/18/n12339091.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/受美制裁 林郑首度承认使用信用卡受限制   >-009fcc?logoWidth=1" title="受美制裁 林郑首度承认使用信用卡受限制  " alt="受美制裁 林郑首度承认使用信用卡受限制  "></a></p>
-<p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/17/n12338272.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会超长结束 习难脱7大困境      >-009fcc?logoWidth=1" title="北戴河会超长结束 习难脱7大困境  " alt="北戴河会超长结束 习难脱7大困境  "></a></p>
-<p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/18/a102920765.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议 惊传政变%3F%3F中共何时犯台？   >-009fcc?logoWidth=1" title="北戴河会议 惊传政变??中共何时犯台？  " alt="北戴河会议 惊传政变??中共何时犯台？  "></a></p>
-<p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/18/a102920911.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞：共产党这个“僵尸政党”必须下台    >-009fcc?logoWidth=1" title="蔡霞：共产党这个“僵尸政党”必须下台  " alt="蔡霞：共产党这个“僵尸政党”必须下台  "></a></p>
-<p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/17/n12338247.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国资委巡视期间 中铁建董事长跳楼身亡    >-009fcc?logoWidth=1" title="国资委巡视期间 中铁建董事长跳楼身亡  " alt="国资委巡视期间 中铁建董事长跳楼身亡  "></a></p>
+<p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/18/n12341097.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江洪水袭重庆 1949年后乐山大佛首次被淹>-009fcc?logoWidth=1" title="长江洪水袭重庆 1949年后乐山大佛首次被淹  " alt="长江洪水袭重庆 1949年后乐山大佛首次被淹  "></a></p>
+<p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/19/a102921226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/芯片断供 华为破产重组？美军方认为中美若开战>-009fcc?logoWidth=1" title="芯片断供 华为破产重组？美军方认为中美若开战 胜负尚未可知？  " alt="芯片断供 华为破产重组？美军方认为中美若开战 胜负尚未可知？  "></a></p>
+<p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/19/a102921162.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习李不同调，李克强又“拆梦”/蔡霞认了呛习言>-009fcc?logoWidth=1" title="习李不同调，李克强又“拆梦”/蔡霞认了呛习言论  " alt="习李不同调，李克强又“拆梦”/蔡霞认了呛习言论  "></a></p>
+<p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/19/n12341430.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川多地一片汪洋 蔡霞揭中共内幕      >-009fcc?logoWidth=1" title="四川多地一片汪洋 蔡霞揭中共内幕  " alt="四川多地一片汪洋 蔡霞揭中共内幕  "></a></p>
+<p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/18/n12340816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《V字仇杀队》遭全网下架 网民：中共怕啥？ >-009fcc?logoWidth=1" title="《V字仇杀队》遭全网下架 网民：中共怕啥？  " alt="《V字仇杀队》遭全网下架 网民：中共怕啥？  "></a></p>
+<p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/18/a102920521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“红二代”蔡霞：换掉习近平已成党内共识   >-009fcc?logoWidth=1" title="“红二代”蔡霞：换掉习近平已成党内共识  " alt="“红二代”蔡霞：换掉习近平已成党内共识  "></a></p>
+<p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/18/a102920442.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议结束 习李露面 仍各说各话不同调 >-009fcc?logoWidth=1" title="北戴河会议结束 习李露面 仍各说各话不同调  " alt="北戴河会议结束 习李露面 仍各说各话不同调  "></a></p>
+<p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/18/n12339706.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党校教授回应与中共脱钩 陆专家赞其勇敢坦言 >-009fcc?logoWidth=1" title="党校教授回应与中共脱钩 陆专家赞其勇敢坦言  " alt="党校教授回应与中共脱钩 陆专家赞其勇敢坦言  "></a></p>
 <p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/18/n12340572.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/缺粮？陆媒称“吃剩菜暖心” 上海大搞举报  >-009fcc?logoWidth=1" title="缺粮？陆媒称“吃剩菜暖心” 上海大搞举报  " alt="缺粮？陆媒称“吃剩菜暖心” 上海大搞举报  "></a></p>
+<p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/18/a102920765.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议 惊传政变%3F%3F中共何时犯台？   >-009fcc?logoWidth=1" title="北戴河会议 惊传政变??中共何时犯台？  " alt="北戴河会议 惊传政变??中共何时犯台？  "></a></p>
 <p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/17/a102920247.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞回应很高兴脱离黑帮 王丹曝其红二代惊人身>-009fcc?logoWidth=1" title="蔡霞回应很高兴脱离黑帮 王丹曝其红二代惊人身世  " alt="蔡霞回应很高兴脱离黑帮 王丹曝其红二代惊人身世  "></a></p>
-<p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/18/a102920611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议刚结束 上海副市长即落马     >-009fcc?logoWidth=1" title="北戴河会议刚结束 上海副市长即落马  " alt="北戴河会议刚结束 上海副市长即落马  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -491,8 +490,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ubaawd3038/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ubaawd3038/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ubaawd3038/www/blob/master/README.md?i#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ubaawd3038/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ubaawd3038/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ubaawd3038/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ubaawd3038/www/blob/master/README.md?t#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ubaawd3038/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/t7777">git.io/t7777</a></div>
+<div align="center">短网址: <a href="https://git.io/zcccc">git.io/zcccc</a></div>
 
