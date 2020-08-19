@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ubaawd3038/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ubaawd3038/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nrrrr">git.io/nrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/qpp">x.co/qpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ffffffff">git.io/ffffffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppe">x.co/ppe</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,8 +39,9 @@
 <p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/18/n12340816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《V字仇杀队》遭全网下架 网民：中共怕啥？ >-009fcc?logoWidth=1" title="《V字仇杀队》遭全网下架 网民：中共怕啥？  " alt="《V字仇杀队》遭全网下架 网民：中共怕啥？  "></a></p>
 <p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/18/n12338707.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒变异 北戴河会后内斗加剧      >-009fcc?logoWidth=1" title="中共病毒变异 北戴河会后内斗加剧  " alt="中共病毒变异 北戴河会后内斗加剧  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/18/a102920521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“红二代”蔡霞：换掉习近平已成党内共识   >-009fcc?logoWidth=1" title="“红二代”蔡霞：换掉习近平已成党内共识  " alt="“红二代”蔡霞：换掉习近平已成党内共识  "></a></p>
 <p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/17/a102920247.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞回应很高兴脱离黑帮 王丹曝其红二代惊人身>-009fcc?logoWidth=1" title="蔡霞回应很高兴脱离黑帮 王丹曝其红二代惊人身世  " alt="蔡霞回应很高兴脱离黑帮 王丹曝其红二代惊人身世  "></a></p>
+<p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/18/a102920799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/收取巨额资金 哈佛中国论坛为中共渗透开后门 >-009fcc?logoWidth=1" title="收取巨额资金 哈佛中国论坛为中共渗透开后门  " alt="收取巨额资金 哈佛中国论坛为中共渗透开后门  "></a></p>
+<p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/18/a102920643.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国制裁后 林郑与邓炳强被银行暂停服务   >-009fcc?logoWidth=1" title="美国制裁后 林郑与邓炳强被银行暂停服务  " alt="美国制裁后 林郑与邓炳强被银行暂停服务  "></a></p>
 <p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/18/n12339091.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/受美制裁 林郑首度承认使用信用卡受限制   >-009fcc?logoWidth=1" title="受美制裁 林郑首度承认使用信用卡受限制  " alt="受美制裁 林郑首度承认使用信用卡受限制  "></a></p>
 <p><a href="https://github.com/ubaawd3038/djy/blob/master/gb/20/8/17/n12338272.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会超长结束 习难脱7大困境      >-009fcc?logoWidth=1" title="北戴河会超长结束 习难脱7大困境  " alt="北戴河会超长结束 习难脱7大困境  "></a></p>
 <p><a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/2020/08/18/a102920783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共间谍涉嫌威胁海军项目 澳吁关闭驻阿德莱德>-009fcc?logoWidth=1" title="中共间谍涉嫌威胁海军项目 澳吁关闭驻阿德莱德中领馆  " alt="中共间谍涉嫌威胁海军项目 澳吁关闭驻阿德莱德中领馆  "></a></p>
@@ -485,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ubaawd3038/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ubaawd3038/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ubaawd3038/www/blob/master/README.md?d#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ubaawd3038/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ubaawd3038/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ubaawd3038/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ubaawd3038/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ubaawd3038/www/blob/master/README.md?d#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ubaawd3038/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/nrrrr">git.io/nrrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/ffffffff">git.io/ffffffff</a></div>
 
