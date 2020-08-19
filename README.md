@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/opvygn3416/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/opvygn3416/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/igggg">git.io/igggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/raa">x.co/raa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fqqqq">git.io/fqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aaf">x.co/aaf</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -42,12 +42,12 @@
 <p><a href="https://github.com/opvygn3416/ntdtv/blob/master/gb/2020/08/19/a102921142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大刘做了一件人生中的大事，发生在雷人咖啡馆里>-009fcc?logoWidth=1" title="大刘做了一件人生中的大事，发生在雷人咖啡馆里的【没有它很重要】  " alt="大刘做了一件人生中的大事，发生在雷人咖啡馆里的【没有它很重要】  "></a></p>
 <p><a href="https://github.com/opvygn3416/djy/blob/master/gb/20/8/18/n12339091.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/受美制裁 林郑首度承认使用信用卡受限制   >-009fcc?logoWidth=1" title="受美制裁 林郑首度承认使用信用卡受限制  " alt="受美制裁 林郑首度承认使用信用卡受限制  "></a></p>
 <p><a href="https://github.com/opvygn3416/djy/blob/master/gb/20/8/18/n12341097.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江洪水袭重庆 1949年后乐山大佛首次被淹>-009fcc?logoWidth=1" title="长江洪水袭重庆 1949年后乐山大佛首次被淹  " alt="长江洪水袭重庆 1949年后乐山大佛首次被淹  "></a></p>
-<p><a href="https://github.com/opvygn3416/ntdtv/blob/master/gb/2020/08/18/a102920847.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/应对粮食危机第一刀？中粮集团总会计师骆家駹被>-009fcc?logoWidth=1" title="应对粮食危机第一刀？中粮集团总会计师骆家駹被查  " alt="应对粮食危机第一刀？中粮集团总会计师骆家駹被查  "></a></p>
-<p><a href="https://github.com/opvygn3416/ntdtv/blob/master/gb/2020/08/19/a102921252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞大揭中共内幕 半年后粮食更紧？     >-009fcc?logoWidth=1" title="蔡霞大揭中共内幕 半年后粮食更紧？  " alt="蔡霞大揭中共内幕 半年后粮食更紧？  "></a></p>
-<p><a href="https://github.com/opvygn3416/djy/blob/master/gb/20/8/19/n12341430.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞揭中共内幕 半年后粮食更紧？      >-009fcc?logoWidth=1" title="蔡霞揭中共内幕 半年后粮食更紧？  " alt="蔡霞揭中共内幕 半年后粮食更紧？  "></a></p>
-<p><a href="https://github.com/opvygn3416/djy/blob/master/gb/20/8/18/n12340816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《V字仇杀队》遭全网下架 网民：中共怕啥？ >-009fcc?logoWidth=1" title="《V字仇杀队》遭全网下架 网民：中共怕啥？  " alt="《V字仇杀队》遭全网下架 网民：中共怕啥？  "></a></p>
 <p><a href="https://github.com/opvygn3416/ntdtv/blob/master/gb/2020/08/18/a102920765.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河会议 惊传政变%3F%3F中共何时犯台？   >-009fcc?logoWidth=1" title="北戴河会议 惊传政变??中共何时犯台？  " alt="北戴河会议 惊传政变??中共何时犯台？  "></a></p>
 <p><a href="https://github.com/opvygn3416/ntdtv/blob/master/gb/2020/08/19/a102921226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/芯片断供 华为破产重组？美军方认为中美若开战>-009fcc?logoWidth=1" title="芯片断供 华为破产重组？美军方认为中美若开战 胜负尚未可知？  " alt="芯片断供 华为破产重组？美军方认为中美若开战 胜负尚未可知？  "></a></p>
+<p><a href="https://github.com/opvygn3416/djy/blob/master/gb/20/8/19/n12341430.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞揭中共内幕 半年后粮食更紧？      >-009fcc?logoWidth=1" title="蔡霞揭中共内幕 半年后粮食更紧？  " alt="蔡霞揭中共内幕 半年后粮食更紧？  "></a></p>
+<p><a href="https://github.com/opvygn3416/djy/blob/master/gb/20/8/18/n12340816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《V字仇杀队》遭全网下架 网民：中共怕啥？ >-009fcc?logoWidth=1" title="《V字仇杀队》遭全网下架 网民：中共怕啥？  " alt="《V字仇杀队》遭全网下架 网民：中共怕啥？  "></a></p>
+<p><a href="https://github.com/opvygn3416/ntdtv/blob/master/gb/2020/08/18/a102920847.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/应对粮食危机第一刀？中粮集团总会计师骆家駹被>-009fcc?logoWidth=1" title="应对粮食危机第一刀？中粮集团总会计师骆家駹被查  " alt="应对粮食危机第一刀？中粮集团总会计师骆家駹被查  "></a></p>
+<p><a href="https://github.com/opvygn3416/ntdtv/blob/master/gb/2020/08/19/a102921252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞大揭中共内幕 半年后粮食更紧？     >-009fcc?logoWidth=1" title="蔡霞大揭中共内幕 半年后粮食更紧？  " alt="蔡霞大揭中共内幕 半年后粮食更紧？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/opvygn3416/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/opvygn3416/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/opvygn3416/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/opvygn3416/www/blob/master/README.md?i#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/opvygn3416/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/opvygn3416/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/opvygn3416/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/opvygn3416/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/opvygn3416/www/blob/master/README.md?n#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/opvygn3416/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/igggg">git.io/igggg</a></div>
+<div align="center">短网址: <a href="https://git.io/fqqqq">git.io/fqqqq</a></div>
 
