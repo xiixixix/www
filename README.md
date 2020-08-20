@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wqlwpo3278/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wqlwpo3278/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d7777">git.io/d7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppe">x.co/ppe</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/xxxxxx">git.io/xxxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2228">x.co/2228</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -36,20 +36,21 @@
 <p><a href="https://github.com/wqlwpo3278/djy/blob/master/gb/20/8/17/n12338586.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/37沙特人天津移植器官 牵出内幕知多少   >-009fcc?logoWidth=1" title="37沙特人天津移植器官 牵出内幕知多少  " alt="37沙特人天津移植器官 牵出内幕知多少  "></a></p>
 <p><a href="https://github.com/wqlwpo3278/djy/blob/master/gb/20/8/19/n12343440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美学者：中共威胁武力攻台 不是虚张声势   >-009fcc?logoWidth=1" title="美学者：中共威胁武力攻台 不是虚张声势  " alt="美学者：中共威胁武力攻台 不是虚张声势  "></a></p>
 <p><a href="https://github.com/wqlwpo3278/djy/blob/master/gb/20/8/19/n12342960.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共出书要党员带头过紧日子 网民嘲讽    >-009fcc?logoWidth=1" title="中共出书要党员带头过紧日子 网民嘲讽  " alt="中共出书要党员带头过紧日子 网民嘲讽  "></a></p>
-<p><a href="https://github.com/wqlwpo3278/djy/blob/master/gb/20/8/19/n12342918.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江5号洪水过境 重庆遇20年来最大洪水  >-009fcc?logoWidth=1" title="长江5号洪水过境 重庆遇20年来最大洪水  " alt="长江5号洪水过境 重庆遇20年来最大洪水  "></a></p>
+<p><a href="https://github.com/wqlwpo3278/djy/blob/master/gb/20/8/19/n12342918.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆遇20年来最大洪水 老城区三楼以上全撤 >-009fcc?logoWidth=1" title="重庆遇20年来最大洪水 老城区三楼以上全撤  " alt="重庆遇20年来最大洪水 老城区三楼以上全撤  "></a></p>
 <p><a href="https://github.com/wqlwpo3278/djy/blob/master/gb/20/8/19/n12343037.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军舰穿越台湾海峡 挑战者650也现踪   >-009fcc?logoWidth=1" title="美军舰穿越台湾海峡 挑战者650也现踪  " alt="美军舰穿越台湾海峡 挑战者650也现踪  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wqlwpo3278/djy/blob/master/gb/20/8/19/n12343440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美著名学者警告：中共威胁武力攻台 不是虚张声>-009fcc?logoWidth=1" title="美著名学者警告：中共威胁武力攻台 不是虚张声势  " alt="美著名学者警告：中共威胁武力攻台 不是虚张声势  "></a></p>
 <p><a href="https://github.com/wqlwpo3278/ntdtv/blob/master/gb/2020/08/19/a102921857.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪灾后中共仍称早稻“增产” 此前连续7年减产>-009fcc?logoWidth=1" title="洪灾后中共仍称早稻“增产” 此前连续7年减产  " alt="洪灾后中共仍称早稻“增产” 此前连续7年减产  "></a></p>
+<p><a href="https://github.com/wqlwpo3278/djy/blob/master/gb/20/8/19/n12342918.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江5号洪水过境 重庆遇20年来最大洪水  >-009fcc?logoWidth=1" title="长江5号洪水过境 重庆遇20年来最大洪水  " alt="长江5号洪水过境 重庆遇20年来最大洪水  "></a></p>
 <p><a href="https://github.com/wqlwpo3278/ntdtv/blob/master/gb/2020/08/19/a102921928.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/各界预言美国大选，一件事让川普追悔莫及   >-009fcc?logoWidth=1" title="各界预言美国大选，一件事让川普追悔莫及  " alt="各界预言美国大选，一件事让川普追悔莫及  "></a></p>
 <p><a href="https://github.com/wqlwpo3278/ntdtv/blob/master/gb/2020/08/19/a102921620.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共七大黑帮特色%3F%3F贪官坠亡停不了     >-009fcc?logoWidth=1" title="中共七大黑帮特色??贪官坠亡停不了  " alt="中共七大黑帮特色??贪官坠亡停不了  "></a></p>
-<p><a href="https://github.com/wqlwpo3278/ntdtv/blob/master/gb/2020/08/19/a102921505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒曝上海副市长、公安局长落马内情     >-009fcc?logoWidth=1" title="港媒曝上海副市长、公安局长落马内情  " alt="港媒曝上海副市长、公安局长落马内情  "></a></p>
 <p><a href="https://github.com/wqlwpo3278/djy/blob/master/gb/20/8/19/n12341938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉泳池3000人电音派对狂欢 专家暗批  >-009fcc?logoWidth=1" title="武汉泳池3000人电音派对狂欢 专家暗批  " alt="武汉泳池3000人电音派对狂欢 专家暗批  "></a></p>
 <p><a href="https://github.com/wqlwpo3278/djy/blob/master/gb/20/8/19/n12341810.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒爆上海公安局长龚道安被查原因      >-009fcc?logoWidth=1" title="港媒爆上海公安局长龚道安被查原因  " alt="港媒爆上海公安局长龚道安被查原因  "></a></p>
+<p><a href="https://github.com/wqlwpo3278/ntdtv/blob/master/gb/2020/08/19/a102921505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒曝上海副市长、公安局长落马内情     >-009fcc?logoWidth=1" title="港媒曝上海副市长、公安局长落马内情  " alt="港媒曝上海副市长、公安局长落马内情  "></a></p>
 <p><a href="https://github.com/wqlwpo3278/ntdtv/blob/master/gb/2020/08/19/a102921597.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒:习近平刀刃向内“毛式”大清洗 安全机构>-009fcc?logoWidth=1" title="美媒:习近平刀刃向内“毛式”大清洗 安全机构成重点  " alt="美媒:习近平刀刃向内“毛式”大清洗 安全机构成重点  "></a></p>
-<p><a href="https://github.com/wqlwpo3278/ntdtv/blob/master/gb/2020/08/19/a102921425.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平一声令下禁浪费 上海“红卫兵再现”  >-009fcc?logoWidth=1" title="习近平一声令下禁浪费 上海“红卫兵再现”  " alt="习近平一声令下禁浪费 上海“红卫兵再现”  "></a></p>
 <p><a href="https://github.com/wqlwpo3278/djy/blob/master/gb/20/8/19/n12341429.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：习近平如何才能保命的四面镜子    >-009fcc?logoWidth=1" title="王友群：习近平如何才能保命的四面镜子  " alt="王友群：习近平如何才能保命的四面镜子  "></a></p>
 <p><a href="https://github.com/wqlwpo3278/djy/blob/master/gb/20/8/19/n12343258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官媒指报考学医人数变多 在职医生反向忠告  >-009fcc?logoWidth=1" title="官媒指报考学医人数变多 在职医生反向忠告  " alt="官媒指报考学医人数变多 在职医生反向忠告  "></a></p>
+<p><a href="https://github.com/wqlwpo3278/ntdtv/blob/master/gb/2020/08/19/a102921425.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平一声令下禁浪费 上海“红卫兵再现”  >-009fcc?logoWidth=1" title="习近平一声令下禁浪费 上海“红卫兵再现”  " alt="习近平一声令下禁浪费 上海“红卫兵再现”  "></a></p>
 <p><a href="https://github.com/wqlwpo3278/ntdtv/blob/master/gb/2020/08/19/a102921138.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平被围攻？4大不寻常事件折射北戴河激斗 >-009fcc?logoWidth=1" title="习近平被围攻？4大不寻常事件折射北戴河激斗  " alt="习近平被围攻？4大不寻常事件折射北戴河激斗  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -262,9 +263,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://wqlwpo3278.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?jmylw">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?owkli">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?nwsit">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?wqvvr">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -308,8 +309,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?dwfvw">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?fxvla">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?eqafd">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?mrpvm">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -488,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wqlwpo3278/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wqlwpo3278/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wqlwpo3278/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wqlwpo3278/www/blob/master/README.md?n#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/wqlwpo3278/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wqlwpo3278/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wqlwpo3278/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wqlwpo3278/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wqlwpo3278/www/blob/master/README.md?g#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/wqlwpo3278/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/d7777">git.io/d7777</a></div>
+<div align="center">短网址: <a href="https://git.io/xxxxxx">git.io/xxxxxx</a></div>
 
