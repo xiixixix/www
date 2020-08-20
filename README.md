@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ntotyi319/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ntotyi319/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/xnnnn">git.io/xnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/6aa">x.co/6aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyyyyy">git.io/yyyyyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppy">x.co/ppy</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ntotyi319/ntdtv/blob/master/gb/2020/08/19/a102921950.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平视察灾区 “女灾民”被揭是公安副队长 >-009fcc?logoWidth=1" title="习近平视察灾区 “女灾民”被揭是公安副队长  " alt="习近平视察灾区 “女灾民”被揭是公安副队长  "></a></p>
 <p><a href="https://github.com/ntotyi319/ntdtv/blob/master/gb/2020/08/19/a102921888.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美律师:大选前 川普将每3~4天惩罚一次中共>-009fcc?logoWidth=1" title="美律师:大选前 川普将每3~4天惩罚一次中共  " alt="美律师:大选前 川普将每3~4天惩罚一次中共  "></a></p>
 <p><a href="https://github.com/ntotyi319/ntdtv/blob/master/gb/2020/08/19/a102921827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/姚诚：军事打击中共是不二选择的当务之急   >-009fcc?logoWidth=1" title="姚诚：军事打击中共是不二选择的当务之急  " alt="姚诚：军事打击中共是不二选择的当务之急  "></a></p>
+<p><a href="https://github.com/ntotyi319/ntdtv/blob/master/gb/2020/08/20/a102922430.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/火光冲天！长江口外油船与砂石船相撞 14人失>-009fcc?logoWidth=1" title="火光冲天！长江口外油船与砂石船相撞 14人失踪  " alt="火光冲天！长江口外油船与砂石船相撞 14人失踪  "></a></p>
 <p><a href="https://github.com/ntotyi319/ntdtv/blob/master/gb/2020/08/20/a102922357.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/利比亚外海偷渡船爆炸45死 UN称今年伤亡最>-009fcc?logoWidth=1" title="利比亚外海偷渡船爆炸45死 UN称今年伤亡最严重海难  " alt="利比亚外海偷渡船爆炸45死 UN称今年伤亡最严重海难  "></a></p>
 <p><a href="https://github.com/ntotyi319/ntdtv/blob/master/gb/2020/08/20/a102922374.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“天外飞来一猫” 老翁蹓狗被砸当场倒地不起 >-009fcc?logoWidth=1" title="“天外飞来一猫” 老翁蹓狗被砸当场倒地不起  " alt="“天外飞来一猫” 老翁蹓狗被砸当场倒地不起  "></a></p>
 <p><a href="https://github.com/ntotyi319/ntdtv/blob/master/gb/2020/08/20/a102922368.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为防港版国安法 美国名校将以代号保护学生  >-009fcc?logoWidth=1" title="为防港版国安法 美国名校将以代号保护学生  " alt="为防港版国安法 美国名校将以代号保护学生  "></a></p>
 <p><a href="https://github.com/ntotyi319/ntdtv/blob/master/gb/2020/08/20/a102922273.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：黎智英是“勇者”给他最好的祝福    >-009fcc?logoWidth=1" title="川普：黎智英是“勇者”给他最好的祝福  " alt="川普：黎智英是“勇者”给他最好的祝福  "></a></p>
-<p><a href="https://github.com/ntotyi319/ntdtv/blob/master/gb/2020/08/20/a102922266.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪将访新韩 分析指中共难破除被全球孤立 >-009fcc?logoWidth=1" title="杨洁篪将访新韩 分析指中共难破除被全球孤立  " alt="杨洁篪将访新韩 分析指中共难破除被全球孤立  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ntotyi319/djy/blob/master/gb/20/8/20/n12344501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/忧因言获罪 中国鸡西市前副市长出逃美国   >-009fcc?logoWidth=1" title="忧因言获罪 中国鸡西市前副市长出逃美国  " alt="忧因言获罪 中国鸡西市前副市长出逃美国  "></a></p>
 <p><a href="https://github.com/ntotyi319/djy/blob/master/gb/20/8/19/n12343435.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：北戴河会后党媒报导“继续斗下去”   >-009fcc?logoWidth=1" title="杨威：北戴河会后党媒报导“继续斗下去”  " alt="杨威：北戴河会后党媒报导“继续斗下去”  "></a></p>
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://ntotyi319.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?iwemw">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?kxuyn">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?foqrf">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?sgqip">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ipjha">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?iufjf">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?gawuw">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?xhsvo">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ntotyi319/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ntotyi319/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ntotyi319/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ntotyi319/www/blob/master/README.md?s#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ntotyi319/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ntotyi319/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ntotyi319/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ntotyi319/www/master/index.html?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ntotyi319/www/blob/master/README.md?q#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ntotyi319/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/xnnnn">git.io/xnnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/yyyyyyyy">git.io/yyyyyyyy</a></div>
 
