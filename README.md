@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ntotyi319/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ntotyi319/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/akkkk">git.io/akkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/uaa">x.co/uaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/37777">git.io/37777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2aa">x.co/2aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,13 +41,13 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ntotyi319/djy/blob/master/gb/20/8/19/n12343440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美著名学者警告：中共威胁武力攻台 不是虚张声>-009fcc?logoWidth=1" title="美著名学者警告：中共威胁武力攻台 不是虚张声势  " alt="美著名学者警告：中共威胁武力攻台 不是虚张声势  "></a></p>
 <p><a href="https://github.com/ntotyi319/ntdtv/blob/master/gb/2020/08/20/a102922133.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共核潜艇进出基地卫星照流出 被指噪音大威慑>-009fcc?logoWidth=1" title="中共核潜艇进出基地卫星照流出 被指噪音大威慑有限  " alt="中共核潜艇进出基地卫星照流出 被指噪音大威慑有限  "></a></p>
-<p><a href="https://github.com/ntotyi319/ntdtv/blob/master/gb/2020/08/20/a102922244.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传大陆辟战时医院 “延安整风”再现     >-009fcc?logoWidth=1" title="传大陆辟战时医院 “延安整风”再现  " alt="传大陆辟战时医院 “延安整风”再现  "></a></p>
-<p><a href="https://github.com/ntotyi319/ntdtv/blob/master/gb/2020/08/20/a102922215.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞“脱钩”中共 红二代反红旗加快中共解体？>-009fcc?logoWidth=1" title="蔡霞“脱钩”中共 红二代反红旗加快中共解体？  " alt="蔡霞“脱钩”中共 红二代反红旗加快中共解体？  "></a></p>
-<p><a href="https://github.com/ntotyi319/djy/blob/master/gb/20/8/19/n12341810.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒爆上海公安局长龚道安被查原因      >-009fcc?logoWidth=1" title="港媒爆上海公安局长龚道安被查原因  " alt="港媒爆上海公安局长龚道安被查原因  "></a></p>
-<p><a href="https://github.com/ntotyi319/djy/blob/master/gb/20/8/19/n12343568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美台会建交？川普显优势 习4缺陷      >-009fcc?logoWidth=1" title="美台会建交？川普显优势 习4缺陷  " alt="美台会建交？川普显优势 习4缺陷  "></a></p>
-<p><a href="https://github.com/ntotyi319/ntdtv/blob/master/gb/2020/08/19/a102921947.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国再撤销三项双边协议 香港不再“香港”  >-009fcc?logoWidth=1" title="美国再撤销三项双边协议 香港不再“香港”  " alt="美国再撤销三项双边协议 香港不再“香港”  "></a></p>
-<p><a href="https://github.com/ntotyi319/djy/blob/master/gb/20/8/19/n12343489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国在周边军演 中共核潜艇卫星照罕见曝光  >-009fcc?logoWidth=1" title="美国在周边军演 中共核潜艇卫星照罕见曝光  " alt="美国在周边军演 中共核潜艇卫星照罕见曝光  "></a></p>
 <p><a href="https://github.com/ntotyi319/ntdtv/blob/master/gb/2020/08/20/a102922075.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美舰越台海中线，中共承认中华民国？     >-009fcc?logoWidth=1" title="美舰越台海中线，中共承认中华民国？  " alt="美舰越台海中线，中共承认中华民国？  "></a></p>
+<p><a href="https://github.com/ntotyi319/ntdtv/blob/master/gb/2020/08/20/a102922244.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传大陆辟战时医院 “延安整风”再现     >-009fcc?logoWidth=1" title="传大陆辟战时医院 “延安整风”再现  " alt="传大陆辟战时医院 “延安整风”再现  "></a></p>
+<p><a href="https://github.com/ntotyi319/djy/blob/master/gb/20/8/19/n12341810.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒爆上海公安局长龚道安被查原因      >-009fcc?logoWidth=1" title="港媒爆上海公安局长龚道安被查原因  " alt="港媒爆上海公安局长龚道安被查原因  "></a></p>
+<p><a href="https://github.com/ntotyi319/djy/blob/master/gb/20/8/20/n12344658.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“须抵押房产服务终身” 椰树集团招聘惹议  >-009fcc?logoWidth=1" title="“须抵押房产服务终身” 椰树集团招聘惹议  " alt="“须抵押房产服务终身” 椰树集团招聘惹议  "></a></p>
+<p><a href="https://github.com/ntotyi319/djy/blob/master/gb/20/8/19/n12343568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美台会建交？川普显优势 习4缺陷      >-009fcc?logoWidth=1" title="美台会建交？川普显优势 习4缺陷  " alt="美台会建交？川普显优势 习4缺陷  "></a></p>
+<p><a href="https://github.com/ntotyi319/djy/blob/master/gb/20/8/20/n12344699.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川乐山化工厂泄漏民慌逃 官方“辟谣”挨轰 >-009fcc?logoWidth=1" title="四川乐山化工厂泄漏民慌逃 官方“辟谣”挨轰  " alt="四川乐山化工厂泄漏民慌逃 官方“辟谣”挨轰  "></a></p>
+<p><a href="https://github.com/ntotyi319/ntdtv/blob/master/gb/2020/08/19/a102921947.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国再撤销三项双边协议 香港不再“香港”  >-009fcc?logoWidth=1" title="美国再撤销三项双边协议 香港不再“香港”  " alt="美国再撤销三项双边协议 香港不再“香港”  "></a></p>
 <p><a href="https://github.com/ntotyi319/ntdtv/blob/master/gb/2020/08/19/a102921505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒曝上海副市长、公安局长落马内情     >-009fcc?logoWidth=1" title="港媒曝上海副市长、公安局长落马内情  " alt="港媒曝上海副市长、公安局长落马内情  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://ntotyi319.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?qjakr">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?spfiq">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?jzozj">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?cdytf">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?zoizf">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?bbyus">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?unhxt">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?mteht">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ntotyi319/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ntotyi319/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ntotyi319/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ntotyi319/www/blob/master/README.md?v#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ntotyi319/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ntotyi319/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ntotyi319/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ntotyi319/www/master/index.html?g">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ntotyi319/www/blob/master/README.md?p#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ntotyi319/www/blob/master/README.md?p%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/akkkk">git.io/akkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/37777">git.io/37777</a></div>
 
