@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/khwnkc357/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/khwnkc357/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ynnnn">git.io/ynnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j44">x.co/j44</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yqqqq">git.io/yqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/xdd">x.co/xdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/khwnkc357/ntdtv/blob/master/gb/2020/08/20/a102922214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“学朝鲜”为基调 中共网络管控发动自媒体大清>-009fcc?logoWidth=1" title="“学朝鲜”为基调 中共网络管控发动自媒体大清洗  " alt="“学朝鲜”为基调 中共网络管控发动自媒体大清洗  "></a></p>
 <p><a href="https://github.com/khwnkc357/ntdtv/blob/master/gb/2020/08/20/a102922108.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：重庆遭遇40年最大洪灾 坐轻轨像坐船 >-009fcc?logoWidth=1" title="组图：重庆遭遇40年最大洪灾 坐轻轨像坐船  " alt="组图：重庆遭遇40年最大洪灾 坐轻轨像坐船  "></a></p>
 <p><a href="https://github.com/khwnkc357/ntdtv/blob/master/gb/2020/08/20/a102922063.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/收失业人员告知书 许章润作打油诗讽清华大学 >-009fcc?logoWidth=1" title="收失业人员告知书 许章润作打油诗讽清华大学  " alt="收失业人员告知书 许章润作打油诗讽清华大学  "></a></p>
+<p><a href="https://github.com/khwnkc357/ntdtv/blob/master/gb/2020/08/20/a102922638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/爱奇艺涉财务造假 大股东百度在美遭集体诉讼 >-009fcc?logoWidth=1" title="爱奇艺涉财务造假 大股东百度在美遭集体诉讼  " alt="爱奇艺涉财务造假 大股东百度在美遭集体诉讼  "></a></p>
 <p><a href="https://github.com/khwnkc357/ntdtv/blob/master/gb/2020/08/20/a102922588.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共称将与美方会谈贸易协议 华府未置评   >-009fcc?logoWidth=1" title="中共称将与美方会谈贸易协议 华府未置评  " alt="中共称将与美方会谈贸易协议 华府未置评  "></a></p>
 <p><a href="https://github.com/khwnkc357/ntdtv/blob/master/gb/2020/08/20/a102922622.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美企CEO平均工资40年飙涨逾11倍    >-009fcc?logoWidth=1" title="美企CEO平均工资40年飙涨逾11倍  " alt="美企CEO平均工资40年飙涨逾11倍  "></a></p>
+<p><a href="https://github.com/khwnkc357/ntdtv/blob/master/gb/2020/08/20/a102922593.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/甲骨文与微软争收购抖音 库德洛：川普阻挡中共>-009fcc?logoWidth=1" title="甲骨文与微软争收购抖音 库德洛：川普阻挡中共分润  " alt="甲骨文与微软争收购抖音 库德洛：川普阻挡中共分润  "></a></p>
 <p><a href="https://github.com/khwnkc357/ntdtv/blob/master/gb/2020/08/20/a102922595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/Apple爆口罩“禁黄不禁蓝” 香港自我审查>-009fcc?logoWidth=1" title="Apple爆口罩“禁黄不禁蓝” 香港自我审查层出不穷  " alt="Apple爆口罩“禁黄不禁蓝” 香港自我审查层出不穷  "></a></p>
-<p><a href="https://github.com/khwnkc357/ntdtv/blob/master/gb/2020/08/20/a102922597.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港女当街遭强押忧消失 占立会被告吁寻议会外抗>-009fcc?logoWidth=1" title="港女当街遭强押忧消失 占立会被告吁寻议会外抗争  " alt="港女当街遭强押忧消失 占立会被告吁寻议会外抗争  "></a></p>
-<p><a href="https://github.com/khwnkc357/ntdtv/blob/master/gb/2020/08/20/a102922572.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强考察重庆灾区又一腿泥 只有国务院党媒报>-009fcc?logoWidth=1" title="李克强考察重庆灾区又一腿泥 只有国务院党媒报导  " alt="李克强考察重庆灾区又一腿泥 只有国务院党媒报导  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/khwnkc357/djy/blob/master/gb/20/8/20/n12344501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/忧因言获罪 中国鸡西市前副市长出逃美国   >-009fcc?logoWidth=1" title="忧因言获罪 中国鸡西市前副市长出逃美国  " alt="忧因言获罪 中国鸡西市前副市长出逃美国  "></a></p>
 <p><a href="https://github.com/khwnkc357/djy/blob/master/gb/20/8/20/n12345010.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/隔空邀请 美国要求跟中共人大代表直接对话  >-009fcc?logoWidth=1" title="隔空邀请 美国要求跟中共人大代表直接对话  " alt="隔空邀请 美国要求跟中共人大代表直接对话  "></a></p>
@@ -261,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://khwnkc357.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?grbrc">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?qasys">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?qjfsu">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?noykj">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?rjvqk">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?mycbq">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?keecr">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?daiwb">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/khwnkc357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/khwnkc357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/khwnkc357/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/khwnkc357/www/blob/master/README.md?c#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/khwnkc357/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/khwnkc357/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/khwnkc357/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/khwnkc357/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/khwnkc357/www/blob/master/README.md?x#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/khwnkc357/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ynnnn">git.io/ynnnn</a></div>
+<div align="center">短网址: <a href="https://git.io/yqqqq">git.io/yqqqq</a></div>
 
