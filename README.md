@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/kogwnn388/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/kogwnn388/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bffff">git.io/bffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a8a">x.co/a8a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d7777">git.io/d7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j88">x.co/j88</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -42,14 +42,13 @@
 <p><a href="https://github.com/kogwnn388/djy/blob/master/gb/20/8/20/n12346444.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川乐山气体泄露 烟雾缭绕 居民大逃亡   >-009fcc?logoWidth=1" title="四川乐山气体泄露 烟雾缭绕 居民大逃亡  " alt="四川乐山气体泄露 烟雾缭绕 居民大逃亡  "></a></p>
 <p><a href="https://github.com/kogwnn388/ntdtv/blob/master/gb/2020/08/16/a102919581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/追查国际调查中共空军西京医院活摘器官现场录像>-009fcc?logoWidth=1" title="追查国际调查中共空军西京医院活摘器官现场录像  " alt="追查国际调查中共空军西京医院活摘器官现场录像  "></a></p>
 <p><a href="https://github.com/kogwnn388/ntdtv/blob/master/gb/2020/08/21/a102923039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农被捕和保释 美国务院警告 尽快抛售中国股>-009fcc?logoWidth=1" title="班农被捕和保释 美国务院警告 尽快抛售中国股票  " alt="班农被捕和保释 美国务院警告 尽快抛售中国股票  "></a></p>
-<p><a href="https://github.com/kogwnn388/ntdtv/blob/master/gb/2020/08/20/a102922601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美《战情室》主持人班农被捕 被控涉嫌边境墙筹>-009fcc?logoWidth=1" title="美《战情室》主持人班农被捕 被控涉嫌边境墙筹款欺诈  " alt="美《战情室》主持人班农被捕 被控涉嫌边境墙筹款欺诈  "></a></p>
 <p><a href="https://github.com/kogwnn388/djy/blob/master/gb/20/8/20/n12346548.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国不良贷款率创10年新高 专家：还会恶化 >-009fcc?logoWidth=1" title="中国不良贷款率创10年新高 专家：还会恶化  " alt="中国不良贷款率创10年新高 专家：还会恶化  "></a></p>
 <p><a href="https://github.com/kogwnn388/djy/blob/master/gb/20/8/20/n12345665.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/爱奇艺涉财务造假 大股东百度面临美集体诉讼 >-009fcc?logoWidth=1" title="爱奇艺涉财务造假 大股东百度面临美集体诉讼  " alt="爱奇艺涉财务造假 大股东百度面临美集体诉讼  "></a></p>
-<p><a href="https://github.com/kogwnn388/ntdtv/blob/master/gb/2020/08/20/a102922496.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川乐山市毒气泄漏 市民疯狂出城逃命(视频)>-009fcc?logoWidth=1" title="四川乐山市毒气泄漏 市民疯狂出城逃命(视频)  " alt="四川乐山市毒气泄漏 市民疯狂出城逃命(视频)  "></a></p>
+<p><a href="https://github.com/kogwnn388/ntdtv/blob/master/gb/2020/08/20/a102922601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美《战情室》主持人班农被捕 被控涉嫌边境墙筹>-009fcc?logoWidth=1" title="美《战情室》主持人班农被捕 被控涉嫌边境墙筹款欺诈  " alt="美《战情室》主持人班农被捕 被控涉嫌边境墙筹款欺诈  "></a></p>
 <p><a href="https://github.com/kogwnn388/djy/blob/master/gb/20/8/20/n12344154.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润收失业人员告知书 作打油诗讽刺清华  >-009fcc?logoWidth=1" title="许章润收失业人员告知书 作打油诗讽刺清华  " alt="许章润收失业人员告知书 作打油诗讽刺清华  "></a></p>
 <p><a href="https://github.com/kogwnn388/djy/blob/master/gb/20/8/20/n12346384.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河北邢台强制火葬 土葬遗体遭强挖就地火化  >-009fcc?logoWidth=1" title="河北邢台强制火葬 土葬遗体遭强挖就地火化  " alt="河北邢台强制火葬 土葬遗体遭强挖就地火化  "></a></p>
-<p><a href="https://github.com/kogwnn388/ntdtv/blob/master/gb/2020/08/19/a102921928.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/各界预言美国大选，一件事让川普追悔莫及   >-009fcc?logoWidth=1" title="各界预言美国大选，一件事让川普追悔莫及  " alt="各界预言美国大选，一件事让川普追悔莫及  "></a></p>
 <p><a href="https://github.com/kogwnn388/ntdtv/blob/master/gb/2020/08/20/a102922582.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为节省口粮 平壤驱逐大批退役军官      >-009fcc?logoWidth=1" title="为节省口粮 平壤驱逐大批退役军官  " alt="为节省口粮 平壤驱逐大批退役军官  "></a></p>
+<p><a href="https://github.com/kogwnn388/ntdtv/blob/master/gb/2020/08/19/a102921928.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/各界预言美国大选，一件事让川普追悔莫及   >-009fcc?logoWidth=1" title="各界预言美国大选，一件事让川普追悔莫及  " alt="各界预言美国大选，一件事让川普追悔莫及  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -261,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://kogwnn388.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?lcnng">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?wnexm">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ughfk">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?rdvvz">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?lputq">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?indbj">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?pkylp">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?trlhn">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/kogwnn388/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kogwnn388/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/kogwnn388/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kogwnn388/www/blob/master/README.md?c#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/kogwnn388/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/kogwnn388/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kogwnn388/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/kogwnn388/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kogwnn388/www/blob/master/README.md?g#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/kogwnn388/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bffff">git.io/bffff</a></div>
+<div align="center">短网址: <a href="https://git.io/d7777">git.io/d7777</a></div>
 
