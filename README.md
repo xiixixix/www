@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/amdjmx394/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/amdjmx394/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/5aaaa">git.io/5aaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/cdd">x.co/cdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/i9999">git.io/i9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2aa">x.co/2aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102923177.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院警告 尽快抛售中国股票       >-009fcc?logoWidth=1" title="美国务院警告 尽快抛售中国股票  " alt="美国务院警告 尽快抛售中国股票  "></a></p>
 <p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102923175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“大佛洗脚天下乱” 习李争相视察灾情引猜测 >-009fcc?logoWidth=1" title="“大佛洗脚天下乱” 习李争相视察灾情引猜测  " alt="“大佛洗脚天下乱” 习李争相视察灾情引猜测  "></a></p>
 <p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102923096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/严词批中共 蔡霞曝党校急电10多次 要她回国>-009fcc?logoWidth=1" title="严词批中共 蔡霞曝党校急电10多次 要她回国  " alt="严词批中共 蔡霞曝党校急电10多次 要她回国  "></a></p>
 <p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102923013.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹邀请访华 蓬佩奥轰不配合表演     >-009fcc?logoWidth=1" title="华春莹邀请访华 蓬佩奥轰不配合表演  " alt="华春莹邀请访华 蓬佩奥轰不配合表演  "></a></p>
 <p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102922987.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农被捕 川普回应：很久没和他打交道了   >-009fcc?logoWidth=1" title="班农被捕 川普回应：很久没和他打交道了  " alt="班农被捕 川普回应：很久没和他打交道了  "></a></p>
 <p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102922966.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普给世界3个选择？ 崔天凯“暗批一尊”  >-009fcc?logoWidth=1" title="川普给世界3个选择？ 崔天凯“暗批一尊”  " alt="川普给世界3个选择？ 崔天凯“暗批一尊”  "></a></p>
-<p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102922969.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农拒认罪获保释 步出法庭称指控是闹剧(视频>-009fcc?logoWidth=1" title="班农拒认罪获保释 步出法庭称指控是闹剧(视频)  " alt="班农拒认罪获保释 步出法庭称指控是闹剧(视频)  "></a></p>
 <p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102923188.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美众议员提案禁称习近平“President”>-009fcc?logoWidth=1" title="美众议员提案禁称习近平“President”  " alt="美众议员提案禁称习近平“President”  "></a></p>
 <p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102923167.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆热炒“假如明天上战场”告别信 专家道内情>-009fcc?logoWidth=1" title="大陆热炒“假如明天上战场”告别信 专家道内情  " alt="大陆热炒“假如明天上战场”告别信 专家道内情  "></a></p>
 <p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102923088.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平禁餐饮浪费 陆直播主“无实物”吃播爆红>-009fcc?logoWidth=1" title="习近平禁餐饮浪费 陆直播主“无实物”吃播爆红  " alt="习近平禁餐饮浪费 陆直播主“无实物”吃播爆红  "></a></p>
 <p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102923083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/挖到3.5公斤“黄金大鸡块”澳洲淘金客一夕致>-009fcc?logoWidth=1" title="挖到3.5公斤“黄金大鸡块”澳洲淘金客一夕致富  " alt="挖到3.5公斤“黄金大鸡块”澳洲淘金客一夕致富  "></a></p>
-<p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102923054.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭非法庭审 原南京一级警督为自己做无罪辩护 >-009fcc?logoWidth=1" title="遭非法庭审 原南京一级警督为自己做无罪辩护  " alt="遭非法庭审 原南京一级警督为自己做无罪辩护  "></a></p>
+<p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102923068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最大洪峰入库三峡 建坝来最大泄洪 下游恐遭殃>-009fcc?logoWidth=1" title="最大洪峰入库三峡 建坝来最大泄洪 下游恐遭殃  " alt="最大洪峰入库三峡 建坝来最大泄洪 下游恐遭殃  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/amdjmx394/djy/blob/master/gb/20/8/20/n12346451.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国给世界出题：三个选择          >-009fcc?logoWidth=1" title="美国给世界出题：三个选择  " alt="美国给世界出题：三个选择  "></a></p>
 <p><a href="https://github.com/amdjmx394/djy/blob/master/gb/20/8/20/n12345571.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥回应华春莹邀请：不配合中共做秀    >-009fcc?logoWidth=1" title="蓬佩奥回应华春莹邀请：不配合中共做秀  " alt="蓬佩奥回应华春莹邀请：不配合中共做秀  "></a></p>
@@ -45,6 +45,7 @@
 <p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/14/a102917884.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/火星上发现UFO？“海盗号”拍到了火星存在外>-009fcc?logoWidth=1" title="火星上发现UFO？“海盗号”拍到了火星存在外星文明的证据  " alt="火星上发现UFO？“海盗号”拍到了火星存在外星文明的证据  "></a></p>
 <p><a href="https://github.com/amdjmx394/djy/blob/master/gb/20/8/20/n12345761.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞接连揭中共是黑帮、政治僵尸 中共中央党校>-009fcc?logoWidth=1" title="蔡霞接连揭中共是黑帮、政治僵尸 中共中央党校急发文  " alt="蔡霞接连揭中共是黑帮、政治僵尸 中共中央党校急发文  "></a></p>
 <p><a href="https://github.com/amdjmx394/djy/blob/master/gb/20/8/21/n12347410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/商品标“中国马尼拉省” 在菲华商将被逐出境 >-009fcc?logoWidth=1" title="商品标“中国马尼拉省” 在菲华商将被逐出境  " alt="商品标“中国马尼拉省” 在菲华商将被逐出境  "></a></p>
+<p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102922969.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农拒认罪获保释 步出法庭称指控是闹剧(视频>-009fcc?logoWidth=1" title="班农拒认罪获保释 步出法庭称指控是闹剧(视频)  " alt="班农拒认罪获保释 步出法庭称指控是闹剧(视频)  "></a></p>
 <p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102923136.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平绝对唯一控制军权           >-009fcc?logoWidth=1" title="习近平绝对唯一控制军权  " alt="习近平绝对唯一控制军权  "></a></p>
 <p><a href="https://github.com/amdjmx394/djy/blob/master/gb/20/8/21/n12347053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：上海副市长落马 他的后台老板会怎样 >-009fcc?logoWidth=1" title="王友群：上海副市长落马 他的后台老板会怎样  " alt="王友群：上海副市长落马 他的后台老板会怎样  "></a></p>
 <p><a href="https://github.com/amdjmx394/djy/blob/master/gb/20/8/21/n12347121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：美国不屑于中共混乱的求和信号     >-009fcc?logoWidth=1" title="杨威：美国不屑于中共混乱的求和信号  " alt="杨威：美国不屑于中共混乱的求和信号  "></a></p>
@@ -261,9 +262,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://amdjmx394.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?gcvnt">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?lgosa">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?tlhfk">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?lcaev">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +308,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?xdrmr">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?dhkmm">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?xkunf">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?vbzyb">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/amdjmx394/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/amdjmx394/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/amdjmx394/www/blob/master/README.md?b#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/amdjmx394/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/amdjmx394/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/amdjmx394/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/amdjmx394/www/blob/master/README.md?u#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/amdjmx394/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/5aaaa">git.io/5aaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/i9999">git.io/i9999</a></div>
 
