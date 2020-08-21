@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/amdjmx394/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/amdjmx394/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/feeee">git.io/feeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppb">x.co/ppb</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/99999">git.io/99999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/kdd">x.co/kdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102923175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“大佛洗脚天下乱” 习李争相视察灾情引猜测 >-009fcc?logoWidth=1" title="“大佛洗脚天下乱” 习李争相视察灾情引猜测  " alt="“大佛洗脚天下乱” 习李争相视察灾情引猜测  "></a></p>
 <p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102923096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/严词批中共 蔡霞曝党校急电10多次 要她回国>-009fcc?logoWidth=1" title="严词批中共 蔡霞曝党校急电10多次 要她回国  " alt="严词批中共 蔡霞曝党校急电10多次 要她回国  "></a></p>
 <p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102923013.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹邀请访华 蓬佩奥轰不配合表演     >-009fcc?logoWidth=1" title="华春莹邀请访华 蓬佩奥轰不配合表演  " alt="华春莹邀请访华 蓬佩奥轰不配合表演  "></a></p>
+<p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102923332.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/忧中美脱钩 中共急求购美原油        >-009fcc?logoWidth=1" title="忧中美脱钩 中共急求购美原油  " alt="忧中美脱钩 中共急求购美原油  "></a></p>
+<p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102923337.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/48名中企员工接种国产疫苗 巴新国拒绝入境 >-009fcc?logoWidth=1" title="48名中企员工接种国产疫苗 巴新国拒绝入境  " alt="48名中企员工接种国产疫苗 巴新国拒绝入境  "></a></p>
 <p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102923346.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普总统在2020年国家政策委员会会议上发表>-009fcc?logoWidth=1" title="川普总统在2020年国家政策委员会会议上发表讲话（中文同声翻译）  " alt="川普总统在2020年国家政策委员会会议上发表讲话（中文同声翻译）  "></a></p>
 <p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102923137.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/商品标示“中国马尼拉省” 菲国华商遭下令驱逐>-009fcc?logoWidth=1" title="商品标示“中国马尼拉省” 菲国华商遭下令驱逐出境  " alt="商品标示“中国马尼拉省” 菲国华商遭下令驱逐出境  "></a></p>
 <p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102923032.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/气候危言如何劫持环保主义          >-009fcc?logoWidth=1" title="气候危言如何劫持环保主义  " alt="气候危言如何劫持环保主义  "></a></p>
-<p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102923242.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强视察重庆 维权人士遭大抓捕      >-009fcc?logoWidth=1" title="李克强视察重庆 维权人士遭大抓捕  " alt="李克强视察重庆 维权人士遭大抓捕  "></a></p>
-<p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/10/a102915239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强现身重庆视察洪灾 党媒罕见不提    >-009fcc?logoWidth=1" title="李克强现身重庆视察洪灾 党媒罕见不提  " alt="李克强现身重庆视察洪灾 党媒罕见不提  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/amdjmx394/djy/blob/master/gb/20/8/20/n12346451.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国给世界出题：三个选择          >-009fcc?logoWidth=1" title="美国给世界出题：三个选择  " alt="美国给世界出题：三个选择  "></a></p>
 <p><a href="https://github.com/amdjmx394/djy/blob/master/gb/20/8/20/n12345571.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥回应华春莹邀请：不配合中共做秀    >-009fcc?logoWidth=1" title="蓬佩奥回应华春莹邀请：不配合中共做秀  " alt="蓬佩奥回应华春莹邀请：不配合中共做秀  "></a></p>
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://amdjmx394.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?itiyw">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?lonfi">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?bphgy">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?iychk">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?bngzl">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?kjsmx">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?djvnm">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?bbdju">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/amdjmx394/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/amdjmx394/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/amdjmx394/www/blob/master/README.md?l#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/amdjmx394/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/amdjmx394/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/amdjmx394/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/amdjmx394/www/blob/master/README.md?m#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/amdjmx394/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/feeee">git.io/feeee</a></div>
+<div align="center">短网址: <a href="https://git.io/99999">git.io/99999</a></div>
 
