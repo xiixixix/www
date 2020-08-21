@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/kogwnn388/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/kogwnn388/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/faaaa">git.io/faaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/qpp">x.co/qpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kaaaa">git.io/kaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u44">x.co/u44</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,21 +28,22 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/kogwnn388/djy/blob/master/gb/20/8/18/n12341063.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连GDP暴跌 内部文件曝真相       >-009fcc?logoWidth=1" title="大连GDP暴跌 内部文件曝真相  " alt="大连GDP暴跌 内部文件曝真相  "></a></p>
 <p><a href="https://github.com/kogwnn388/djy/blob/master/gb/20/8/20/n12346112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：习李各访灾区 党媒区别对待      >-009fcc?logoWidth=1" title="钟原：习李各访灾区 党媒区别对待  " alt="钟原：习李各访灾区 党媒区别对待  "></a></p>
+<p><a href="https://github.com/kogwnn388/djy/blob/master/gb/20/8/20/n12346451.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国给世界出题：三个选择          >-009fcc?logoWidth=1" title="美国给世界出题：三个选择  " alt="美国给世界出题：三个选择  "></a></p>
+<p><a href="https://github.com/kogwnn388/djy/blob/master/gb/20/8/20/n12345866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人民日报发文拒“脱钩”被批“死皮赖脸”   >-009fcc?logoWidth=1" title="人民日报发文拒“脱钩”被批“死皮赖脸”  " alt="人民日报发文拒“脱钩”被批“死皮赖脸”  "></a></p>
+<p><a href="https://github.com/kogwnn388/djy/blob/master/gb/20/8/20/n12345761.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞接连接受外媒采访 中共党校再发文    >-009fcc?logoWidth=1" title="蔡霞接连接受外媒采访 中共党校再发文  " alt="蔡霞接连接受外媒采访 中共党校再发文  "></a></p>
+<p><a href="https://github.com/kogwnn388/djy/blob/master/gb/20/8/20/n12345706.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大使“人肉地毯”门发酵 政要民众怒斥  >-009fcc?logoWidth=1" title="中共大使“人肉地毯”门发酵 政要民众怒斥  " alt="中共大使“人肉地毯”门发酵 政要民众怒斥  "></a></p>
+<p><a href="https://github.com/kogwnn388/djy/blob/master/gb/20/8/20/n12345500.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢田：中国匆忙推出数字货币的背后      >-009fcc?logoWidth=1" title="谢田：中国匆忙推出数字货币的背后  " alt="谢田：中国匆忙推出数字货币的背后  "></a></p>
 <p><a href="https://github.com/kogwnn388/djy/blob/master/gb/20/8/14/n12330248.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/严控留学生 欧美同学会是党组织       >-009fcc?logoWidth=1" title="严控留学生 欧美同学会是党组织  " alt="严控留学生 欧美同学会是党组织  "></a></p>
 <p><a href="https://github.com/kogwnn388/djy/blob/master/gb/20/8/20/n12346444.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川乐山气体泄露 居民大逃亡        >-009fcc?logoWidth=1" title="四川乐山气体泄露 居民大逃亡  " alt="四川乐山气体泄露 居民大逃亡  "></a></p>
-<p><a href="https://github.com/kogwnn388/djy/blob/master/gb/20/8/20/n12345866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人民日报发文拒“脱钩”被批“死皮赖脸”   >-009fcc?logoWidth=1" title="人民日报发文拒“脱钩”被批“死皮赖脸”  " alt="人民日报发文拒“脱钩”被批“死皮赖脸”  "></a></p>
-<p><a href="https://github.com/kogwnn388/djy/blob/master/gb/20/8/20/n12345706.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大使“人肉地毯”门发酵 政要民众怒斥  >-009fcc?logoWidth=1" title="中共大使“人肉地毯”门发酵 政要民众怒斥  " alt="中共大使“人肉地毯”门发酵 政要民众怒斥  "></a></p>
-<p><a href="https://github.com/kogwnn388/djy/blob/master/gb/20/8/20/n12344154.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润收失业人员告知书 作打油诗讽刺清华  >-009fcc?logoWidth=1" title="许章润收失业人员告知书 作打油诗讽刺清华  " alt="许章润收失业人员告知书 作打油诗讽刺清华  "></a></p>
-<p><a href="https://github.com/kogwnn388/djy/blob/master/gb/20/8/3/n12302020.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外事办奉命搜刮海外医疗物资         >-009fcc?logoWidth=1" title="外事办奉命搜刮海外医疗物资  " alt="外事办奉命搜刮海外医疗物资  "></a></p>
+<p><a href="https://github.com/kogwnn388/djy/blob/master/gb/20/8/20/n12346075.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆“无实物吃播”爆红 网友想到国王的新衣 >-009fcc?logoWidth=1" title="大陆“无实物吃播”爆红 网友想到国王的新衣  " alt="大陆“无实物吃播”爆红 网友想到国王的新衣  "></a></p>
+<p><a href="https://github.com/kogwnn388/djy/blob/master/gb/20/8/20/n12346117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普叫停贸谈 崔天凯急喊改善关系      >-009fcc?logoWidth=1" title="川普叫停贸谈 崔天凯急喊改善关系  " alt="川普叫停贸谈 崔天凯急喊改善关系  "></a></p>
+<p><a href="https://github.com/kogwnn388/djy/blob/master/gb/20/8/20/n12346540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多省“610”大规模抓捕骚扰法轮功学员   >-009fcc?logoWidth=1" title="多省“610”大规模抓捕骚扰法轮功学员  " alt="多省“610”大规模抓捕骚扰法轮功学员  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/kogwnn388/djy/blob/master/gb/20/8/20/n12345665.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/爱奇艺涉财务造假 大股东百度面临美集体诉讼 >-009fcc?logoWidth=1" title="爱奇艺涉财务造假 大股东百度面临美集体诉讼  " alt="爱奇艺涉财务造假 大股东百度面临美集体诉讼  "></a></p>
 <p><a href="https://github.com/kogwnn388/djy/blob/master/gb/20/8/20/n12346548.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国不良贷款率创10年高位 专家：还将更恶化>-009fcc?logoWidth=1" title="中国不良贷款率创10年高位 专家：还将更恶化  " alt="中国不良贷款率创10年高位 专家：还将更恶化  "></a></p>
-<p><a href="https://github.com/kogwnn388/djy/blob/master/gb/20/8/20/n12345761.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞接连接受外媒采访 中共党校再发文    >-009fcc?logoWidth=1" title="蔡霞接连接受外媒采访 中共党校再发文  " alt="蔡霞接连接受外媒采访 中共党校再发文  "></a></p>
-<p><a href="https://github.com/kogwnn388/djy/blob/master/gb/20/8/20/n12345500.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢田：中国匆忙推出数字货币的背后      >-009fcc?logoWidth=1" title="谢田：中国匆忙推出数字货币的背后  " alt="谢田：中国匆忙推出数字货币的背后  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/kogwnn388/ntdtv/blob/master/gb/2020/08/20/a102922775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海两船相撞江面成火海 山东煤矿坑爆炸多人死>-009fcc?logoWidth=1" title="上海两船相撞江面成火海 山东煤矿坑爆炸多人死亡  " alt="上海两船相撞江面成火海 山东煤矿坑爆炸多人死亡  "></a></p>
 <p><a href="https://github.com/kogwnn388/djy/blob/master/gb/20/8/20/n12345761.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞接连揭中共是黑帮、政治僵尸 中共中央党校>-009fcc?logoWidth=1" title="蔡霞接连揭中共是黑帮、政治僵尸 中共中央党校急发文  " alt="蔡霞接连揭中共是黑帮、政治僵尸 中共中央党校急发文  "></a></p>
 <p><a href="https://github.com/kogwnn388/ntdtv/blob/master/gb/2020/08/20/a102922075.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美舰越台海中线，中共承认中华民国？     >-009fcc?logoWidth=1" title="美舰越台海中线，中共承认中华民国？  " alt="美舰越台海中线，中共承认中华民国？  "></a></p>
-<p><a href="https://github.com/kogwnn388/djy/blob/master/gb/20/8/20/n12346075.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆“无实物吃播”爆红 网友想到国王的新衣 >-009fcc?logoWidth=1" title="大陆“无实物吃播”爆红 网友想到国王的新衣  " alt="大陆“无实物吃播”爆红 网友想到国王的新衣  "></a></p>
 <p><a href="https://github.com/kogwnn388/djy/blob/master/gb/20/8/20/n12344332.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传大陆征战时医院 福建运大量飞弹      >-009fcc?logoWidth=1" title="传大陆征战时医院 福建运大量飞弹  " alt="传大陆征战时医院 福建运大量飞弹  "></a></p>
 <p><a href="https://github.com/kogwnn388/ntdtv/blob/master/gb/2020/08/19/a102921291.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罕见天文奇景 美国夜空闪现“红色精灵”   >-009fcc?logoWidth=1" title="罕见天文奇景 美国夜空闪现“红色精灵”  " alt="罕见天文奇景 美国夜空闪现“红色精灵”  "></a></p>
 <p><a href="https://github.com/kogwnn388/ntdtv/blob/master/gb/2020/08/20/a102922404.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞起义、红二代或被抓逼财         >-009fcc?logoWidth=1" title="蔡霞起义、红二代或被抓逼财  " alt="蔡霞起义、红二代或被抓逼财  "></a></p>
@@ -261,9 +262,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://kogwnn388.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?hdfjp">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?spiwq">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?voptx">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?smbip">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +308,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?lopwu">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ewusj">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?svqpc">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?mflwe">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/kogwnn388/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kogwnn388/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/kogwnn388/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kogwnn388/www/blob/master/README.md?u#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/kogwnn388/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/kogwnn388/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kogwnn388/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/kogwnn388/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kogwnn388/www/blob/master/README.md?n#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/kogwnn388/www/blob/master/README.md?v%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/faaaa">git.io/faaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/kaaaa">git.io/kaaaa</a></div>
 
