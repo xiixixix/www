@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/amdjmx394/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/amdjmx394/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tqqqq">git.io/tqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ydd">x.co/ydd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/annnn">git.io/annnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3366">x.co/3366</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102923175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“大佛洗脚天下乱” 习李争相视察灾情引猜测 >-009fcc?logoWidth=1" title="“大佛洗脚天下乱” 习李争相视察灾情引猜测  " alt="“大佛洗脚天下乱” 习李争相视察灾情引猜测  "></a></p>
 <p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102923096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/严词批中共 蔡霞曝党校急电10多次 要她回国>-009fcc?logoWidth=1" title="严词批中共 蔡霞曝党校急电10多次 要她回国  " alt="严词批中共 蔡霞曝党校急电10多次 要她回国  "></a></p>
 <p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102923013.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹邀请访华 蓬佩奥轰不配合表演     >-009fcc?logoWidth=1" title="华春莹邀请访华 蓬佩奥轰不配合表演  " alt="华春莹邀请访华 蓬佩奥轰不配合表演  "></a></p>
 <p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102922987.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农被捕 川普回应：很久没和他打交道了   >-009fcc?logoWidth=1" title="班农被捕 川普回应：很久没和他打交道了  " alt="班农被捕 川普回应：很久没和他打交道了  "></a></p>
 <p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102922966.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普给世界3个选择？ 崔天凯“暗批一尊”  >-009fcc?logoWidth=1" title="川普给世界3个选择？ 崔天凯“暗批一尊”  " alt="川普给世界3个选择？ 崔天凯“暗批一尊”  "></a></p>
 <p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102922969.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农拒认罪获保释 步出法庭称指控是闹剧(视频>-009fcc?logoWidth=1" title="班农拒认罪获保释 步出法庭称指控是闹剧(视频)  " alt="班农拒认罪获保释 步出法庭称指控是闹剧(视频)  "></a></p>
-<p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/20/a102922747.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习李视察被讽作秀 网友对比双方角色差异   >-009fcc?logoWidth=1" title="习李视察被讽作秀 网友对比双方角色差异  " alt="习李视察被讽作秀 网友对比双方角色差异  "></a></p>
 <p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102923167.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆热炒“假如明天上战场”告别信 专家道内情>-009fcc?logoWidth=1" title="大陆热炒“假如明天上战场”告别信 专家道内情  " alt="大陆热炒“假如明天上战场”告别信 专家道内情  "></a></p>
 <p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102923088.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平禁餐饮浪费 陆直播主“无实物”吃播爆红>-009fcc?logoWidth=1" title="习近平禁餐饮浪费 陆直播主“无实物”吃播爆红  " alt="习近平禁餐饮浪费 陆直播主“无实物”吃播爆红  "></a></p>
 <p><a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/2020/08/21/a102923083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/挖到3.5公斤“黄金大鸡块”澳洲淘金客一夕致>-009fcc?logoWidth=1" title="挖到3.5公斤“黄金大鸡块”澳洲淘金客一夕致富  " alt="挖到3.5公斤“黄金大鸡块”澳洲淘金客一夕致富  "></a></p>
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://amdjmx394.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?qsntn">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?kgwko">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?gpdsx">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?kyasz">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?oerve">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?clcdt">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?qrpbi">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?xtqnu">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/amdjmx394/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/amdjmx394/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/amdjmx394/www/blob/master/README.md?g#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/amdjmx394/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/amdjmx394/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/amdjmx394/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/amdjmx394/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/amdjmx394/www/blob/master/README.md?q#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/amdjmx394/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/tqqqq">git.io/tqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/annnn">git.io/annnn</a></div>
 
