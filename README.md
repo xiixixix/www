@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/azirgr3964/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/azirgr3964/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jqqqq">git.io/jqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2333">x.co/2333</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/5bbbb">git.io/5bbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u88">x.co/u88</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,19 +20,19 @@
 <p><a href="https://github.com/azirgr3964/ntdtv/blob/master/gb/2020/08/22/a102923971.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登与中共切割 党纲删一个中国       >-009fcc?logoWidth=1" title="拜登与中共切割 党纲删一个中国  " alt="拜登与中共切割 党纲删一个中国  "></a></p>
 <p><a href="https://github.com/azirgr3964/ntdtv/blob/master/gb/2020/08/22/a102923930.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪访韩敏感时刻 韩国疫情破单日最高记录 >-009fcc?logoWidth=1" title="杨洁篪访韩敏感时刻 韩国疫情破单日最高记录  " alt="杨洁篪访韩敏感时刻 韩国疫情破单日最高记录  "></a></p>
 <p><a href="https://github.com/azirgr3964/ntdtv/blob/master/gb/2020/08/22/a102923762.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夜话中南海：王沪宁有令，李克强新闻不能上头条>-009fcc?logoWidth=1" title="夜话中南海：王沪宁有令，李克强新闻不能上头条  " alt="夜话中南海：王沪宁有令，李克强新闻不能上头条  "></a></p>
+<p><a href="https://github.com/azirgr3964/ntdtv/blob/master/gb/2020/08/22/a102924078.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/男子午睡突被压醒 惊见一头母狮趴胸口狠瞪他 >-009fcc?logoWidth=1" title="男子午睡突被压醒 惊见一头母狮趴胸口狠瞪他  " alt="男子午睡突被压醒 惊见一头母狮趴胸口狠瞪他  "></a></p>
 <p><a href="https://github.com/azirgr3964/ntdtv/blob/master/gb/2020/08/22/a102924048.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平禁浪费 厨师被要求“鸡屁股不能切掉太多>-009fcc?logoWidth=1" title="习近平禁浪费 厨师被要求“鸡屁股不能切掉太多”  " alt="习近平禁浪费 厨师被要求“鸡屁股不能切掉太多”  "></a></p>
 <p><a href="https://github.com/azirgr3964/ntdtv/blob/master/gb/2020/08/22/a102923977.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/意外！美国龙虾输出欧洲免课征关税      >-009fcc?logoWidth=1" title="意外！美国龙虾输出欧洲免课征关税  " alt="意外！美国龙虾输出欧洲免课征关税  "></a></p>
 <p><a href="https://github.com/azirgr3964/ntdtv/blob/master/gb/2020/08/22/a102923898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/染疫误判中暑 日酿疫情扩散 医护人员绷紧神经>-009fcc?logoWidth=1" title="染疫误判中暑 日酿疫情扩散 医护人员绷紧神经  " alt="染疫误判中暑 日酿疫情扩散 医护人员绷紧神经  "></a></p>
 <p><a href="https://github.com/azirgr3964/ntdtv/blob/master/gb/2020/08/22/a102923903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京政策逆转？向美求和难掩战狼本性     >-009fcc?logoWidth=1" title="北京政策逆转？向美求和难掩战狼本性  " alt="北京政策逆转？向美求和难掩战狼本性  "></a></p>
-<p><a href="https://github.com/azirgr3964/ntdtv/blob/master/gb/2020/08/22/a102923904.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国资本出逃新招 一年500亿美元加密币流出>-009fcc?logoWidth=1" title="中国资本出逃新招 一年500亿美元加密币流出  " alt="中国资本出逃新招 一年500亿美元加密币流出  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/azirgr3964/djy/blob/master/gb/20/8/10/n12318454.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共如何使韩国对香港问题失声        >-009fcc?logoWidth=1" title="中共如何使韩国对香港问题失声  " alt="中共如何使韩国对香港问题失声  "></a></p>
 <p><a href="https://github.com/azirgr3964/djy/blob/master/gb/20/8/21/n12348821.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润教授获哈佛聘书当天 被中共施以4禁令 >-009fcc?logoWidth=1" title="许章润教授获哈佛聘书当天 被中共施以4禁令  " alt="许章润教授获哈佛聘书当天 被中共施以4禁令  "></a></p>
-<p><a href="https://github.com/azirgr3964/djy/blob/master/gb/20/8/21/n12348932.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美大选谁赢？习李作秀 灾民自救       >-009fcc?logoWidth=1" title="美大选谁赢？习李作秀 灾民自救  " alt="美大选谁赢？习李作秀 灾民自救  "></a></p>
-<p><a href="https://github.com/azirgr3964/djy/blob/master/gb/20/8/21/n12348860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：美军两线攻击演练透战备升级信号    >-009fcc?logoWidth=1" title="沈舟：美军两线攻击演练透战备升级信号  " alt="沈舟：美军两线攻击演练透战备升级信号  "></a></p>
-<p><a href="https://github.com/azirgr3964/djy/blob/master/gb/20/8/21/n12348654.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“共产党比黑社会还黑”江苏老党员退党    >-009fcc?logoWidth=1" title="“共产党比黑社会还黑”江苏老党员退党  " alt="“共产党比黑社会还黑”江苏老党员退党  "></a></p>
+<p><a href="https://github.com/azirgr3964/djy/blob/master/gb/20/8/22/n12349649.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乐山大佛罕见淹脚趾 这事不简单       >-009fcc?logoWidth=1" title="乐山大佛罕见淹脚趾 这事不简单  " alt="乐山大佛罕见淹脚趾 这事不简单  "></a></p>
 <p><a href="https://github.com/azirgr3964/djy/blob/master/gb/20/8/21/n12348446.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京“招商引资”的背后 民营企业血本无归  >-009fcc?logoWidth=1" title="北京“招商引资”的背后 民营企业血本无归  " alt="北京“招商引资”的背后 民营企业血本无归  "></a></p>
-<p><a href="https://github.com/azirgr3964/djy/blob/master/gb/20/8/21/n12348737.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习李出访之演技 乐山市民“逃亡”      >-009fcc?logoWidth=1" title="习李出访之演技 乐山市民“逃亡”  " alt="习李出访之演技 乐山市民“逃亡”  "></a></p>
+<p><a href="https://github.com/azirgr3964/djy/blob/master/gb/20/8/21/n12348932.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美大选谁赢？习李作秀 灾民自救       >-009fcc?logoWidth=1" title="美大选谁赢？习李作秀 灾民自救  " alt="美大选谁赢？习李作秀 灾民自救  "></a></p>
+<p><a href="https://github.com/azirgr3964/djy/blob/master/gb/20/8/21/n12348654.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“共产党比黑社会还黑”江苏老党员退党    >-009fcc?logoWidth=1" title="“共产党比黑社会还黑”江苏老党员退党  " alt="“共产党比黑社会还黑”江苏老党员退党  "></a></p>
+<p><a href="https://github.com/azirgr3964/djy/blob/master/gb/20/8/21/n12348860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：美军两线攻击演练透战备升级信号    >-009fcc?logoWidth=1" title="沈舟：美军两线攻击演练透战备升级信号  " alt="沈舟：美军两线攻击演练透战备升级信号  "></a></p>
 <p><a href="https://github.com/azirgr3964/djy/blob/master/gb/20/8/18/n12341063.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连GDP暴跌 内部文件曝真相       >-009fcc?logoWidth=1" title="大连GDP暴跌 内部文件曝真相  " alt="大连GDP暴跌 内部文件曝真相  "></a></p>
 <p><a href="https://github.com/azirgr3964/djy/blob/master/gb/20/7/6/n12236849.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/菲利普：中美表面冷战 大战在深层      >-009fcc?logoWidth=1" title="菲利普：中美表面冷战 大战在深层  " alt="菲利普：中美表面冷战 大战在深层  "></a></p>
 <p><a href="https://github.com/azirgr3964/djy/blob/master/gb/20/8/21/n12348837.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/追查国际调查中共空军西京医院活摘器官录像  >-009fcc?logoWidth=1" title="追查国际调查中共空军西京医院活摘器官录像  " alt="追查国际调查中共空军西京医院活摘器官录像  "></a></p>
@@ -43,9 +43,9 @@
 <p><a href="https://github.com/azirgr3964/ntdtv/blob/master/gb/2020/08/22/a102924015.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三书一信打鸡血 美国升级台湾预警机     >-009fcc?logoWidth=1" title="三书一信打鸡血 美国升级台湾预警机  " alt="三书一信打鸡血 美国升级台湾预警机  "></a></p>
 <p><a href="https://github.com/azirgr3964/djy/blob/master/gb/20/8/21/n12348672.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/粮食危机蔓延？中国马业协会吁节约饲料    >-009fcc?logoWidth=1" title="粮食危机蔓延？中国马业协会吁节约饲料  " alt="粮食危机蔓延？中国马业协会吁节约饲料  "></a></p>
 <p><a href="https://github.com/azirgr3964/djy/blob/master/gb/20/8/21/n12348788.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆农民没余粮 学者：粮食增产数据造假   >-009fcc?logoWidth=1" title="大陆农民没余粮 学者：粮食增产数据造假  " alt="大陆农民没余粮 学者：粮食增产数据造假  "></a></p>
+<p><a href="https://github.com/azirgr3964/ntdtv/blob/master/gb/2020/08/22/a102923904.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国资本出逃新招 一年500亿美元加密币流出>-009fcc?logoWidth=1" title="中国资本出逃新招 一年500亿美元加密币流出  " alt="中国资本出逃新招 一年500亿美元加密币流出  "></a></p>
 <p><a href="https://github.com/azirgr3964/ntdtv/blob/master/gb/2020/08/22/a102923914.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习说不跟老天作对 重庆淹水三峡补刀     >-009fcc?logoWidth=1" title="习说不跟老天作对 重庆淹水三峡补刀  " alt="习说不跟老天作对 重庆淹水三峡补刀  "></a></p>
 <p><a href="https://github.com/azirgr3964/djy/blob/master/gb/20/8/22/n12349428.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：从党校教授蔡霞遭遇谈中共的根本问题 >-009fcc?logoWidth=1" title="王友群：从党校教授蔡霞遭遇谈中共的根本问题  " alt="王友群：从党校教授蔡霞遭遇谈中共的根本问题  "></a></p>
-<p><a href="https://github.com/azirgr3964/djy/blob/master/gb/20/8/22/n12349649.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乐山大佛罕见淹脚趾 这事不简单       >-009fcc?logoWidth=1" title="乐山大佛罕见淹脚趾 这事不简单  " alt="乐山大佛罕见淹脚趾 这事不简单  "></a></p>
 <p><a href="https://github.com/azirgr3964/ntdtv/blob/master/gb/2020/08/22/a102923865.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宇宙正在巨变 你准备好了吗？        >-009fcc?logoWidth=1" title="宇宙正在巨变 你准备好了吗？  " alt="宇宙正在巨变 你准备好了吗？  "></a></p>
 <p><a href="https://github.com/azirgr3964/ntdtv/blob/master/gb/2020/08/22/a102923922.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/48名国企员工注射疫苗检测阳性被拒入境巴新 >-009fcc?logoWidth=1" title="48名国企员工注射疫苗检测阳性被拒入境巴新 大规模人体试验暗藏的惊天阴谋  " alt="48名国企员工注射疫苗检测阳性被拒入境巴新 大规模人体试验暗藏的惊天阴谋  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://azirgr3964.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ygjln">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?fygws">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?iyhuf">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?vmiva">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?uyefz">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?fnpqe">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?wopeb">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?otjde">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/azirgr3964/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/azirgr3964/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/azirgr3964/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/azirgr3964/www/blob/master/README.md?c#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/azirgr3964/www/blob/master/README.md?l%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/azirgr3964/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/azirgr3964/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/azirgr3964/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/azirgr3964/www/blob/master/README.md?p#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/azirgr3964/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jqqqq">git.io/jqqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/5bbbb">git.io/5bbbb</a></div>
 
