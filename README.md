@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ujypni3813/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ujypni3813/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/taaaa">git.io/taaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p6p">x.co/p6p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ftttt">git.io/ftttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3377">x.co/3377</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,7 +20,7 @@
 <p><a href="https://github.com/ujypni3813/ntdtv/blob/master/gb/2020/08/22/a102923971.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登与中共切割 党纲删一个中国       >-009fcc?logoWidth=1" title="拜登与中共切割 党纲删一个中国  " alt="拜登与中共切割 党纲删一个中国  "></a></p>
 <p><a href="https://github.com/ujypni3813/ntdtv/blob/master/gb/2020/08/22/a102923930.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪访韩敏感时刻 韩国疫情破单日最高记录 >-009fcc?logoWidth=1" title="杨洁篪访韩敏感时刻 韩国疫情破单日最高记录  " alt="杨洁篪访韩敏感时刻 韩国疫情破单日最高记录  "></a></p>
 <p><a href="https://github.com/ujypni3813/ntdtv/blob/master/gb/2020/08/22/a102923762.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夜话中南海：王沪宁有令，李克强新闻不能上头条>-009fcc?logoWidth=1" title="夜话中南海：王沪宁有令，李克强新闻不能上头条  " alt="夜话中南海：王沪宁有令，李克强新闻不能上头条  "></a></p>
-<p><a href="https://github.com/ujypni3813/ntdtv/blob/master/gb/2020/08/22/a102924198.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政法委610部署 长春多位法轮功学员被绑架 >-009fcc?logoWidth=1" title="政法委610部署 长春多位法轮功学员被绑架  " alt="政法委610部署 长春多位法轮功学员被绑架  "></a></p>
+<p><a href="https://github.com/ujypni3813/ntdtv/blob/master/gb/2020/08/22/a102924180.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩国升至全国二级警戒  欧洲疫情反弹    >-009fcc?logoWidth=1" title="韩国升至全国二级警戒  欧洲疫情反弹  " alt="韩国升至全国二级警戒  欧洲疫情反弹  "></a></p>
 <p><a href="https://github.com/ujypni3813/ntdtv/blob/master/gb/2020/08/22/a102924161.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄反对派领袖抵达德国治疗 情况堪忧     >-009fcc?logoWidth=1" title="俄反对派领袖抵达德国治疗 情况堪忧  " alt="俄反对派领袖抵达德国治疗 情况堪忧  "></a></p>
 <p><a href="https://github.com/ujypni3813/ntdtv/blob/master/gb/2020/08/22/a102924138.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/数万假驾照来自中国 袁弓夷：中共干扰美大选 >-009fcc?logoWidth=1" title="数万假驾照来自中国 袁弓夷：中共干扰美大选  " alt="数万假驾照来自中国 袁弓夷：中共干扰美大选  "></a></p>
 <p><a href="https://github.com/ujypni3813/ntdtv/blob/master/gb/2020/08/22/a102924134.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈时中回应普筛 大量伪阳性压垮医疗量能   >-009fcc?logoWidth=1" title="陈时中回应普筛 大量伪阳性压垮医疗量能  " alt="陈时中回应普筛 大量伪阳性压垮医疗量能  "></a></p>
@@ -261,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://ujypni3813.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?qzgos">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?lotlm">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?icivy">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?cvifo">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?nrjgz">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?viazk">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?eujgl">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?lctus">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ujypni3813/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ujypni3813/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ujypni3813/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ujypni3813/www/blob/master/README.md?b#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ujypni3813/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ujypni3813/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ujypni3813/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ujypni3813/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ujypni3813/www/blob/master/README.md?f#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ujypni3813/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/taaaa">git.io/taaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/ftttt">git.io/ftttt</a></div>
 
