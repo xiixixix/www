@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wbcvav387/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wbcvav387/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yxxxx">git.io/yxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp5">x.co/pp5</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ukkkk">git.io/ukkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3666">x.co/3666</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/wbcvav387/ntdtv/blob/master/gb/2020/08/21/a102923225.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国员工接种疫苗入境呈阳性 巴国要求北京说清>-009fcc?logoWidth=1" title="中国员工接种疫苗入境呈阳性 巴国要求北京说清楚  " alt="中国员工接种疫苗入境呈阳性 巴国要求北京说清楚  "></a></p>
 <p><a href="https://github.com/wbcvav387/ntdtv/blob/master/gb/2020/08/21/a102923219.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国防洪“南北双线作战” 重庆水位超百年记录>-009fcc?logoWidth=1" title="中国防洪“南北双线作战” 重庆水位超百年记录(视频)  " alt="中国防洪“南北双线作战” 重庆水位超百年记录(视频)  "></a></p>
 <p><a href="https://github.com/wbcvav387/ntdtv/blob/master/gb/2020/08/21/a102923177.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院警告 尽快抛售中国股票       >-009fcc?logoWidth=1" title="美国务院警告 尽快抛售中国股票  " alt="美国务院警告 尽快抛售中国股票  "></a></p>
+<p><a href="https://github.com/wbcvav387/ntdtv/blob/master/gb/2020/08/22/a102923729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前白宫医生：拜登有些事情不对劲       >-009fcc?logoWidth=1" title="前白宫医生：拜登有些事情不对劲  " alt="前白宫医生：拜登有些事情不对劲  "></a></p>
 <p><a href="https://github.com/wbcvav387/ntdtv/blob/master/gb/2020/08/21/a102923556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强重庆勘灾 又遇“临时演员”？     >-009fcc?logoWidth=1" title="李克强重庆勘灾 又遇“临时演员”？  " alt="李克强重庆勘灾 又遇“临时演员”？  "></a></p>
 <p><a href="https://github.com/wbcvav387/ntdtv/blob/master/gb/2020/08/10/a102915239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑客入侵武汉病毒研究所 发现数据库被大举删改>-009fcc?logoWidth=1" title="黑客入侵武汉病毒研究所 发现数据库被大举删改  " alt="黑客入侵武汉病毒研究所 发现数据库被大举删改  "></a></p>
+<p><a href="https://github.com/wbcvav387/ntdtv/blob/master/gb/2020/08/21/a102923669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一夜间3死11伤 纽约布朗士游行撑警执法  >-009fcc?logoWidth=1" title="一夜间3死11伤 纽约布朗士游行撑警执法  " alt="一夜间3死11伤 纽约布朗士游行撑警执法  "></a></p>
 <p><a href="https://github.com/wbcvav387/ntdtv/blob/master/gb/2020/08/21/a102923667.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国制裁中资银行受压 林郑：信用卡受限   >-009fcc?logoWidth=1" title="美国制裁中资银行受压 林郑：信用卡受限  " alt="美国制裁中资银行受压 林郑：信用卡受限  "></a></p>
-<p><a href="https://github.com/wbcvav387/ntdtv/blob/master/gb/2020/08/21/a102923647.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普演讲反击左派势力 乐观展望美国未来   >-009fcc?logoWidth=1" title="川普演讲反击左派势力 乐观展望美国未来  " alt="川普演讲反击左派势力 乐观展望美国未来  "></a></p>
-<p><a href="https://github.com/wbcvav387/ntdtv/blob/master/gb/2020/08/21/a102923629.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法波及美国名校 课程自我审查作业匿名>-009fcc?logoWidth=1" title="港版国安法波及美国名校 课程自我审查作业匿名交  " alt="港版国安法波及美国名校 课程自我审查作业匿名交  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wbcvav387/djy/blob/master/gb/20/8/20/n12346451.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国给世界出题：三个选择          >-009fcc?logoWidth=1" title="美国给世界出题：三个选择  " alt="美国给世界出题：三个选择  "></a></p>
 <p><a href="https://github.com/wbcvav387/djy/blob/master/gb/20/8/20/n12345571.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥回应华春莹邀请：不配合中共做秀    >-009fcc?logoWidth=1" title="蓬佩奥回应华春莹邀请：不配合中共做秀  " alt="蓬佩奥回应华春莹邀请：不配合中共做秀  "></a></p>
@@ -41,11 +41,11 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wbcvav387/ntdtv/blob/master/gb/2020/08/21/a102923531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为进入“战时状态”人心惶惶 高级员工纷纷离>-009fcc?logoWidth=1" title="华为进入“战时状态”人心惶惶 高级员工纷纷离职  " alt="华为进入“战时状态”人心惶惶 高级员工纷纷离职  "></a></p>
 <p><a href="https://github.com/wbcvav387/ntdtv/blob/master/gb/2020/08/21/a102923096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/严词批中共 蔡霞曝党校急电10多次 要她回国>-009fcc?logoWidth=1" title="严词批中共 蔡霞曝党校急电10多次 要她回国  " alt="严词批中共 蔡霞曝党校急电10多次 要她回国  "></a></p>
-<p><a href="https://github.com/wbcvav387/ntdtv/blob/master/gb/2020/08/21/a102923039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农被捕和保释 美国务院警告 尽快抛售中国股>-009fcc?logoWidth=1" title="班农被捕和保释 美国务院警告 尽快抛售中国股票  " alt="班农被捕和保释 美国务院警告 尽快抛售中国股票  "></a></p>
+<p><a href="https://github.com/wbcvav387/ntdtv/blob/master/gb/2020/08/21/a102923488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农被控诈骗 华人圈两种说法引关注     >-009fcc?logoWidth=1" title="班农被控诈骗 华人圈两种说法引关注  " alt="班农被控诈骗 华人圈两种说法引关注  "></a></p>
 <p><a href="https://github.com/wbcvav387/ntdtv/blob/master/gb/2020/08/21/a102922970.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：李克强在“倒习” 三峡大坝首开11孔泄>-009fcc?logoWidth=1" title="港媒：李克强在“倒习” 三峡大坝首开11孔泄洪  " alt="港媒：李克强在“倒习” 三峡大坝首开11孔泄洪  "></a></p>
 <p><a href="https://github.com/wbcvav387/djy/blob/master/gb/20/8/21/n12348672.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/粮食危机蔓延？中国马业协会吁节约饲料    >-009fcc?logoWidth=1" title="粮食危机蔓延？中国马业协会吁节约饲料  " alt="粮食危机蔓延？中国马业协会吁节约饲料  "></a></p>
 <p><a href="https://github.com/wbcvav387/djy/blob/master/gb/20/8/21/n12348860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：美军两线攻击演练透战备升级信号    >-009fcc?logoWidth=1" title="沈舟：美军两线攻击演练透战备升级信号  " alt="沈舟：美军两线攻击演练透战备升级信号  "></a></p>
-<p><a href="https://github.com/wbcvav387/ntdtv/blob/master/gb/2020/08/21/a102923315.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩告急？ 习李勘灾透玄机        >-009fcc?logoWidth=1" title="金正恩告急？ 习李勘灾透玄机  " alt="金正恩告急？ 习李勘灾透玄机  "></a></p>
+<p><a href="https://github.com/wbcvav387/ntdtv/blob/master/gb/2020/08/21/a102923039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农被捕和保释 美国务院警告 尽快抛售中国股>-009fcc?logoWidth=1" title="班农被捕和保释 美国务院警告 尽快抛售中国股票  " alt="班农被捕和保释 美国务院警告 尽快抛售中国股票  "></a></p>
 <p><a href="https://github.com/wbcvav387/ntdtv/blob/master/gb/2020/08/21/a102923512.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》世界频现不解之谜：英国伯明翰 “>-009fcc?logoWidth=1" title="《石涛聚焦》世界频现不解之谜：英国伯明翰 “鬼新娘” 吓坏巡更看夜人  " alt="《石涛聚焦》世界频现不解之谜：英国伯明翰 “鬼新娘” 吓坏巡更看夜人  "></a></p>
 <p><a href="https://github.com/wbcvav387/djy/blob/master/gb/20/8/21/n12348692.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆网络大V称洪水可以是旅游资源 遭网民狠批>-009fcc?logoWidth=1" title="大陆网络大V称洪水可以是旅游资源 遭网民狠批  " alt="大陆网络大V称洪水可以是旅游资源 遭网民狠批  "></a></p>
 <p><a href="https://github.com/wbcvav387/djy/blob/master/gb/20/8/21/n12348821.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润教授获哈佛聘书当天 被中共施以4禁令 >-009fcc?logoWidth=1" title="许章润教授获哈佛聘书当天 被中共施以4禁令  " alt="许章润教授获哈佛聘书当天 被中共施以4禁令  "></a></p>
@@ -261,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://wbcvav387.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?hizmd">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?xadon">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?mvcql">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?pmxeu">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?iomzt">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?myuyg">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ovomv">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ewqyo">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -418,12 +418,12 @@
 <p><strong>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年的腥风血雨，二十多年的凌辱折磨，岁月飞逝，历史见证，迫害善良原本就是违背道义不得民心的...</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;99年中共因法轮功修炼人数超过党员而疯狂镇压，不惜制造一个个谎言，导演天安门自焚案栽赃法轮功，对坚持信仰的学员绑架抄家，用尽酷刑，导致数以百万计的家破人亡、妻离子散！然而中共高估了自己的造假宣传。各国政府纷纷谴责中共暴行，高度肯定法轮功提升道德、净化心灵、强身健体的卓越成效。在国内，声援法轮功的事件此起彼伏。成千上万人为被非法抓捕的学员请愿，演绎了不畏强权反迫害的一幕又一幕。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年过去了。如今法轮功“真善忍”普世价值观，超越民族文化，洪传世界一百多个国家，仅台湾就有八十万人修炼，其主要著作被译成四十多种文字，举世赞誉！而中共江泽民却因罪恶迫害，在海内外被数百万人联署举报，被二十多万人实名起诉。在这场对善良打压中，中共把法制、道德伦理都推向崩溃边缘。民心丧尽、天怒人怨!人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/55OmUs" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/98Oujj" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
 </details>
 
 <div align="center">
 <img src="https://raw.githubusercontent.com/wbcvav387/www/master/t/01.jpg">
-<h1><strong><a href="https://is.gd/55OmUs" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
+<h1><strong><a href="https://is.gd/98Oujj" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/wbcvav387/www/master/t/03.jpg"><br>
@@ -483,12 +483,12 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;于中共无所不在的欺骗洗脑与暴力胁迫下，有多少人放弃了诚实宽厚、仁爱谦和的道德底线，变得见风使舵、落井下石，甚至为一己之私而无恶不作。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;稍微盘点中共的罪恶，让人感到心情无比的沉重。了解了中共，才明白什么叫做罪恶滔天，罄竹难书。</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/55OmUs" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/98Oujj" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/wbcvav387/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wbcvav387/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wbcvav387/www/master/index.html?v">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wbcvav387/www/blob/master/README.md?j#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/wbcvav387/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/wbcvav387/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wbcvav387/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wbcvav387/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wbcvav387/www/blob/master/README.md?a#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/wbcvav387/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/yxxxx">git.io/yxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/ukkkk">git.io/ukkkk</a></div>
 
