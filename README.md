@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ujypni3813/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ujypni3813/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hiiii">git.io/hiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/raa">x.co/raa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fkkkk">git.io/fkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2223">x.co/2223</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ujypni3813/ntdtv/blob/master/gb/2020/08/22/a102923971.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登与中共切割 党纲删一个中国       >-009fcc?logoWidth=1" title="拜登与中共切割 党纲删一个中国  " alt="拜登与中共切割 党纲删一个中国  "></a></p>
 <p><a href="https://github.com/ujypni3813/ntdtv/blob/master/gb/2020/08/22/a102923930.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪访韩敏感时刻 韩国疫情破单日最高记录 >-009fcc?logoWidth=1" title="杨洁篪访韩敏感时刻 韩国疫情破单日最高记录  " alt="杨洁篪访韩敏感时刻 韩国疫情破单日最高记录  "></a></p>
 <p><a href="https://github.com/ujypni3813/ntdtv/blob/master/gb/2020/08/22/a102923762.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夜话中南海：王沪宁有令，李克强新闻不能上头条>-009fcc?logoWidth=1" title="夜话中南海：王沪宁有令，李克强新闻不能上头条  " alt="夜话中南海：王沪宁有令，李克强新闻不能上头条  "></a></p>
+<p><a href="https://github.com/ujypni3813/ntdtv/blob/master/gb/2020/08/22/a102924167.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政法委610部署 长春多位法轮功学员被绑架 >-009fcc?logoWidth=1" title="政法委610部署 长春多位法轮功学员被绑架  " alt="政法委610部署 长春多位法轮功学员被绑架  "></a></p>
 <p><a href="https://github.com/ujypni3813/ntdtv/blob/master/gb/2020/08/22/a102924136.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/709案谢阳遭当局吊销律师执业证      >-009fcc?logoWidth=1" title="709案谢阳遭当局吊销律师执业证  " alt="709案谢阳遭当局吊销律师执业证  "></a></p>
 <p><a href="https://github.com/ujypni3813/ntdtv/blob/master/gb/2020/08/10/a102915239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪访韩敏感时刻 韩国疫情破单日最高记录 >-009fcc?logoWidth=1" title="杨洁篪访韩敏感时刻 韩国疫情破单日最高记录  " alt="杨洁篪访韩敏感时刻 韩国疫情破单日最高记录  "></a></p>
 <p><a href="https://github.com/ujypni3813/ntdtv/blob/master/gb/2020/08/22/a102924078.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/男子午睡突被压醒 惊见一头母狮趴胸口狠瞪他 >-009fcc?logoWidth=1" title="男子午睡突被压醒 惊见一头母狮趴胸口狠瞪他  " alt="男子午睡突被压醒 惊见一头母狮趴胸口狠瞪他  "></a></p>
 <p><a href="https://github.com/ujypni3813/ntdtv/blob/master/gb/2020/08/22/a102924048.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平禁浪费 厨师被要求“鸡屁股不能切掉太多>-009fcc?logoWidth=1" title="习近平禁浪费 厨师被要求“鸡屁股不能切掉太多”  " alt="习近平禁浪费 厨师被要求“鸡屁股不能切掉太多”  "></a></p>
-<p><a href="https://github.com/ujypni3813/ntdtv/blob/master/gb/2020/08/22/a102923977.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/意外！美国龙虾输出欧洲免课征关税      >-009fcc?logoWidth=1" title="意外！美国龙虾输出欧洲免课征关税  " alt="意外！美国龙虾输出欧洲免课征关税  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ujypni3813/djy/blob/master/gb/20/8/10/n12318454.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共如何使韩国对香港问题失声        >-009fcc?logoWidth=1" title="中共如何使韩国对香港问题失声  " alt="中共如何使韩国对香港问题失声  "></a></p>
 <p><a href="https://github.com/ujypni3813/djy/blob/master/gb/20/8/21/n12348821.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润教授获哈佛聘书当天 被中共施以4禁令 >-009fcc?logoWidth=1" title="许章润教授获哈佛聘书当天 被中共施以4禁令  " alt="许章润教授获哈佛聘书当天 被中共施以4禁令  "></a></p>
@@ -258,9 +258,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://ujypni3813.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ipicl">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ljysy">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?mftbs">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?dtewa">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -304,8 +304,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?pxhuw">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?xydlb">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?uwpnx">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?jggow">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -484,8 +484,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ujypni3813/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ujypni3813/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ujypni3813/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ujypni3813/www/blob/master/README.md?a#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ujypni3813/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ujypni3813/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ujypni3813/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ujypni3813/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ujypni3813/www/blob/master/README.md?d#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/ujypni3813/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/hiiii">git.io/hiiii</a></div>
+<div align="center">短网址: <a href="https://git.io/fkkkk">git.io/fkkkk</a></div>
 
