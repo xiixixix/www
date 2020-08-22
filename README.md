@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/azirgr3964/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/azirgr3964/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h6666">git.io/h6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp3">x.co/pp3</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/heeee">git.io/heeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/uqq">x.co/uqq</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -36,15 +36,15 @@
 <p><a href="https://github.com/azirgr3964/djy/blob/master/gb/20/8/22/n12349402.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许章润再被中共约谈             >-009fcc?logoWidth=1" title="许章润再被中共约谈  " alt="许章润再被中共约谈  "></a></p>
 <p><a href="https://github.com/azirgr3964/djy/blob/master/gb/20/8/22/n12349707.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传王沪宁曾下令李克强的新闻不能上头条    >-009fcc?logoWidth=1" title="传王沪宁曾下令李克强的新闻不能上头条  " alt="传王沪宁曾下令李克强的新闻不能上头条  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/azirgr3964/ntdtv/blob/master/gb/2020/08/21/a102923522.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一文看懂班农案背景 纽约南区法院底色曝光  >-009fcc?logoWidth=1" title="一文看懂班农案背景 纽约南区法院底色曝光  " alt="一文看懂班农案背景 纽约南区法院底色曝光  "></a></p>
 <p><a href="https://github.com/azirgr3964/ntdtv/blob/master/gb/2020/08/22/a102923865.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宇宙正在巨变 你准备好了吗？        >-009fcc?logoWidth=1" title="宇宙正在巨变 你准备好了吗？  " alt="宇宙正在巨变 你准备好了吗？  "></a></p>
 <p><a href="https://github.com/azirgr3964/ntdtv/blob/master/gb/2020/08/21/a102923556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强重庆勘灾 又遇“临时演员”？     >-009fcc?logoWidth=1" title="李克强重庆勘灾 又遇“临时演员”？  " alt="李克强重庆勘灾 又遇“临时演员”？  "></a></p>
 <p><a href="https://github.com/azirgr3964/djy/blob/master/gb/20/8/21/n12348672.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/粮食危机蔓延？中国马业协会吁节约饲料    >-009fcc?logoWidth=1" title="粮食危机蔓延？中国马业协会吁节约饲料  " alt="粮食危机蔓延？中国马业协会吁节约饲料  "></a></p>
 <p><a href="https://github.com/azirgr3964/djy/blob/master/gb/20/8/21/n12348788.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆农民没余粮 学者：粮食增产数据造假   >-009fcc?logoWidth=1" title="大陆农民没余粮 学者：粮食增产数据造假  " alt="大陆农民没余粮 学者：粮食增产数据造假  "></a></p>
 <p><a href="https://github.com/azirgr3964/ntdtv/blob/master/gb/2020/08/21/a102923554.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩权力下放金与正？韩前官员：金仍在昏迷中>-009fcc?logoWidth=1" title="金正恩权力下放金与正？韩前官员：金仍在昏迷中  " alt="金正恩权力下放金与正？韩前官员：金仍在昏迷中  "></a></p>
+<p><a href="https://github.com/azirgr3964/ntdtv/blob/master/gb/2020/08/22/a102923838.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国“无线电静默”愁坏战狼 党媒急喊：别脱钩>-009fcc?logoWidth=1" title="美国“无线电静默”愁坏战狼 党媒急喊：别脱钩  " alt="美国“无线电静默”愁坏战狼 党媒急喊：别脱钩  "></a></p>
 <p><a href="https://github.com/azirgr3964/djy/blob/master/gb/20/8/22/n12349428.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：从党校教授蔡霞遭遇谈中共的根本问题 >-009fcc?logoWidth=1" title="王友群：从党校教授蔡霞遭遇谈中共的根本问题  " alt="王友群：从党校教授蔡霞遭遇谈中共的根本问题  "></a></p>
 <p><a href="https://github.com/azirgr3964/djy/blob/master/gb/20/8/22/n12349649.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乐山大佛罕见淹脚趾 这事不简单       >-009fcc?logoWidth=1" title="乐山大佛罕见淹脚趾 这事不简单  " alt="乐山大佛罕见淹脚趾 这事不简单  "></a></p>
-<p><a href="https://github.com/azirgr3964/ntdtv/blob/master/gb/2020/08/22/a102923838.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国“无线电静默”愁坏战狼 党媒急喊：别脱钩>-009fcc?logoWidth=1" title="美国“无线电静默”愁坏战狼 党媒急喊：别脱钩  " alt="美国“无线电静默”愁坏战狼 党媒急喊：别脱钩  "></a></p>
+<p><a href="https://github.com/azirgr3964/ntdtv/blob/master/gb/2020/08/21/a102923522.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一文看懂班农案背景 纽约南区法院底色曝光  >-009fcc?logoWidth=1" title="一文看懂班农案背景 纽约南区法院底色曝光  " alt="一文看懂班农案背景 纽约南区法院底色曝光  "></a></p>
 <p><a href="https://github.com/azirgr3964/ntdtv/blob/master/gb/2020/08/22/a102923758.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周润发心痛港人 痛批港府罔顾民生“好意思吗？>-009fcc?logoWidth=1" title="周润发心痛港人 痛批港府罔顾民生“好意思吗？”  " alt="周润发心痛港人 痛批港府罔顾民生“好意思吗？”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -257,9 +257,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://azirgr3964.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?lucha">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?btldd">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?xsmpz">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?itxop">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -303,8 +303,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?rhsuc">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?qvuwf">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?qwvif">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?juiey">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -483,8 +483,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/azirgr3964/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/azirgr3964/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/azirgr3964/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/azirgr3964/www/blob/master/README.md?l#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/azirgr3964/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/azirgr3964/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/azirgr3964/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/azirgr3964/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/azirgr3964/www/blob/master/README.md?x#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/azirgr3964/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/h6666">git.io/h6666</a></div>
+<div align="center">短网址: <a href="https://git.io/heeee">git.io/heeee</a></div>
 
