@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nsshsd3952/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nsshsd3952/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yuuuu">git.io/yuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aya">x.co/aya</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/5cccc">git.io/5cccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j77">x.co/j77</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/nsshsd3952/ntdtv/blob/master/gb/2020/08/23/a102924398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“大佛洗脚”中国变天？ 上一次恰逢1949年>-009fcc?logoWidth=1" title="“大佛洗脚”中国变天？ 上一次恰逢1949年  " alt="“大佛洗脚”中国变天？ 上一次恰逢1949年  "></a></p>
 <p><a href="https://github.com/nsshsd3952/ntdtv/blob/master/gb/2020/08/23/a102924389.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川犍为县凌晨遭洪水突袭 14户村民遭灭门(>-009fcc?logoWidth=1" title="四川犍为县凌晨遭洪水突袭 14户村民遭灭门(视频)  " alt="四川犍为县凌晨遭洪水突袭 14户村民遭灭门(视频)  "></a></p>
 <p><a href="https://github.com/nsshsd3952/ntdtv/blob/master/gb/2020/08/22/a102924279.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共扶贫作秀屡穿帮 “贫困户”住宅再现豪华家>-009fcc?logoWidth=1" title="中共扶贫作秀屡穿帮 “贫困户”住宅再现豪华家俬  " alt="中共扶贫作秀屡穿帮 “贫困户”住宅再现豪华家俬  "></a></p>
+<p><a href="https://github.com/nsshsd3952/ntdtv/blob/master/gb/2020/08/23/a102924633.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东男童被锁校车内9小时死亡 生前脱光衣服求>-009fcc?logoWidth=1" title="广东男童被锁校车内9小时死亡 生前脱光衣服求救  " alt="广东男童被锁校车内9小时死亡 生前脱光衣服求救  "></a></p>
 <p><a href="https://github.com/nsshsd3952/ntdtv/blob/master/gb/2020/08/23/a102924626.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/单日确诊创3月来新高 韩国濒全国性大流行  >-009fcc?logoWidth=1" title="单日确诊创3月来新高 韩国濒全国性大流行  " alt="单日确诊创3月来新高 韩国濒全国性大流行  "></a></p>
 <p><a href="https://github.com/nsshsd3952/ntdtv/blob/master/gb/2020/08/23/a102924594.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/控反对派意图夺权  白俄罗斯总统令采取严厉措>-009fcc?logoWidth=1" title="控反对派意图夺权  白俄罗斯总统令采取严厉措施  " alt="控反对派意图夺权  白俄罗斯总统令采取严厉措施  "></a></p>
 <p><a href="https://github.com/nsshsd3952/ntdtv/blob/master/gb/2020/08/23/a102924589.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2个月内2起 日本关东惊现“满月级”神秘光球>-009fcc?logoWidth=1" title="2个月内2起 日本关东惊现“满月级”神秘光球  " alt="2个月内2起 日本关东惊现“满月级”神秘光球  "></a></p>
 <p><a href="https://github.com/nsshsd3952/ntdtv/blob/master/gb/2020/08/23/a102924553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台风巴威肆虐 日本渔船失联 预测直捣黄海  >-009fcc?logoWidth=1" title="台风巴威肆虐 日本渔船失联 预测直捣黄海  " alt="台风巴威肆虐 日本渔船失联 预测直捣黄海  "></a></p>
-<p><a href="https://github.com/nsshsd3952/ntdtv/blob/master/gb/2020/08/23/a102924543.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北海道最冷夏天 清晨低温4.9℃ 早晚温差约>-009fcc?logoWidth=1" title="北海道最冷夏天 清晨低温4.9℃ 早晚温差约20度  " alt="北海道最冷夏天 清晨低温4.9℃ 早晚温差约20度  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nsshsd3952/djy/blob/master/gb/20/8/22/n12350582.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/退出中共 鸡西前副市长谈心路历程      >-009fcc?logoWidth=1" title="退出中共 鸡西前副市长谈心路历程  " alt="退出中共 鸡西前副市长谈心路历程  "></a></p>
 <p><a href="https://github.com/nsshsd3952/djy/blob/master/gb/20/8/23/n12351145.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：党员不再为党卖命 中共红船加速下沉  >-009fcc?logoWidth=1" title="田云：党员不再为党卖命 中共红船加速下沉  " alt="田云：党员不再为党卖命 中共红船加速下沉  "></a></p>
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://nsshsd3952.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?wmvpo">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?muyki">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ufpfu">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?utrzh">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?lrhgi">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?vgtxu">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?mcwtc">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?khupf">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nsshsd3952/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nsshsd3952/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nsshsd3952/www/master/index.html?g">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nsshsd3952/www/blob/master/README.md?l#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/nsshsd3952/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nsshsd3952/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nsshsd3952/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nsshsd3952/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nsshsd3952/www/blob/master/README.md?j#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/nsshsd3952/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/yuuuu">git.io/yuuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/5cccc">git.io/5cccc</a></div>
 
