@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dqujvs3244/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dqujvs3244/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qbbbb">git.io/qbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp6">x.co/pp6</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mmmmmmmm">git.io/mmmmmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2888">x.co/2888</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -25,6 +25,29 @@
 <p><a href="https://github.com/dqujvs3244/ntdtv/blob/master/gb/2020/08/23/a102924479.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川少女25楼坠亡！父亲欲接反被砸死    >-009fcc?logoWidth=1" title="四川少女25楼坠亡！父亲欲接反被砸死  " alt="四川少女25楼坠亡！父亲欲接反被砸死  "></a></p>
 <p><a href="https://github.com/dqujvs3244/ntdtv/blob/master/gb/2020/08/23/a102924486.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南苏丹运送现金货机坠毁 7人罹难1乘客幸存 >-009fcc?logoWidth=1" title="南苏丹运送现金货机坠毁 7人罹难1乘客幸存  " alt="南苏丹运送现金货机坠毁 7人罹难1乘客幸存  "></a></p>
 <p><a href="https://github.com/dqujvs3244/ntdtv/blob/master/gb/2020/08/23/a102924454.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/造假无底线！央视新闻穿帮集锦笑翻网络(视频）>-009fcc?logoWidth=1" title="造假无底线！央视新闻穿帮集锦笑翻网络(视频）  " alt="造假无底线！央视新闻穿帮集锦笑翻网络(视频）  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/dqujvs3244/djy/blob/master/gb/20/8/22/n12350582.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/退出中共 鸡西前副市长谈心路历程      >-009fcc?logoWidth=1" title="退出中共 鸡西前副市长谈心路历程  " alt="退出中共 鸡西前副市长谈心路历程  "></a></p>
+<p><a href="https://github.com/dqujvs3244/djy/blob/master/gb/20/8/22/n12349795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆长寿区民房爆炸 多房毁坏        >-009fcc?logoWidth=1" title="重庆长寿区民房爆炸 多房毁坏  " alt="重庆长寿区民房爆炸 多房毁坏  "></a></p>
+<p><a href="https://github.com/dqujvs3244/djy/blob/master/gb/20/8/22/n12350651.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/非法庭审公诉人哑口无言 元凶江泽民必遭审判 >-009fcc?logoWidth=1" title="非法庭审公诉人哑口无言 元凶江泽民必遭审判  " alt="非法庭审公诉人哑口无言 元凶江泽民必遭审判  "></a></p>
+<p><a href="https://github.com/dqujvs3244/djy/blob/master/gb/20/8/22/n12350398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《使命召唤》游戏有六四画面 或遭中共封杀  >-009fcc?logoWidth=1" title="《使命召唤》游戏有六四画面 或遭中共封杀  " alt="《使命召唤》游戏有六四画面 或遭中共封杀  "></a></p>
+<p><a href="https://github.com/dqujvs3244/djy/blob/master/gb/20/8/22/n12350465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：美国重拳反制下的中共四大政策     >-009fcc?logoWidth=1" title="王赫：美国重拳反制下的中共四大政策  " alt="王赫：美国重拳反制下的中共四大政策  "></a></p>
+<p><a href="https://github.com/dqujvs3244/djy/blob/master/gb/20/8/21/n12348654.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“共产党比黑社会还黑”江苏老党员退党    >-009fcc?logoWidth=1" title="“共产党比黑社会还黑”江苏老党员退党  " alt="“共产党比黑社会还黑”江苏老党员退党  "></a></p>
+<p><a href="https://github.com/dqujvs3244/djy/blob/master/gb/20/8/22/n12350522.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：习李日益不同调 党政矛盾天生难解   >-009fcc?logoWidth=1" title="钟原：习李日益不同调 党政矛盾天生难解  " alt="钟原：习李日益不同调 党政矛盾天生难解  "></a></p>
+<p><a href="https://github.com/dqujvs3244/djy/blob/master/gb/20/8/18/n12341063.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连GDP暴跌 内部文件曝真相       >-009fcc?logoWidth=1" title="大连GDP暴跌 内部文件曝真相  " alt="大连GDP暴跌 内部文件曝真相  "></a></p>
+<p><a href="https://github.com/dqujvs3244/djy/blob/master/gb/20/8/23/n12351001.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：习李不同调日益公开化         >-009fcc?logoWidth=1" title="分析：习李不同调日益公开化  " alt="分析：习李不同调日益公开化  "></a></p>
+<p><a href="https://github.com/dqujvs3244/djy/blob/master/gb/20/8/22/n12350671.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美学者：世界处于危险拐点 是时候遏制中共  >-009fcc?logoWidth=1" title="美学者：世界处于危险拐点 是时候遏制中共  " alt="美学者：世界处于危险拐点 是时候遏制中共  "></a></p>
+<p><a href="https://github.com/dqujvs3244/djy/blob/master/gb/20/8/22/n12350764.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：若中方不正确对待美国 肯定会脱钩   >-009fcc?logoWidth=1" title="川普：若中方不正确对待美国 肯定会脱钩  " alt="川普：若中方不正确对待美国 肯定会脱钩  "></a></p>
+<p><a href="https://github.com/dqujvs3244/djy/blob/master/gb/20/8/22/n12350600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美扩大制裁 华为被判“死刑”？       >-009fcc?logoWidth=1" title="美扩大制裁 华为被判“死刑”？  " alt="美扩大制裁 华为被判“死刑”？  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/dqujvs3244/ntdtv/blob/master/gb/2020/08/22/a102924218.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》武汉P4室被骇 64万份资料泄漏>-009fcc?logoWidth=1" title="《石涛聚焦》武汉P4室被骇 64万份资料泄漏  " alt="《石涛聚焦》武汉P4室被骇 64万份资料泄漏  "></a></p>
+<p><a href="https://github.com/dqujvs3244/djy/blob/master/gb/20/8/23/n12350800.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被踩住喉咙的“歌手”            >-009fcc?logoWidth=1" title="被踩住喉咙的“歌手”  " alt="被踩住喉咙的“歌手”  "></a></p>
+<p><a href="https://github.com/dqujvs3244/djy/blob/master/gb/20/8/21/n12346962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美新病例数持续下降             >-009fcc?logoWidth=1" title="美新病例数持续下降  " alt="美新病例数持续下降  "></a></p>
+<p><a href="https://github.com/dqujvs3244/ntdtv/blob/master/gb/2020/08/22/a102924028.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/议报：习近平众叛亲离 蔡霞事件只是开始   >-009fcc?logoWidth=1" title="议报：习近平众叛亲离 蔡霞事件只是开始  " alt="议报：习近平众叛亲离 蔡霞事件只是开始  "></a></p>
+<p><a href="https://github.com/dqujvs3244/ntdtv/blob/master/gb/2020/08/21/a102923531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为进入“战时状态”人心惶惶 高级员工纷纷离>-009fcc?logoWidth=1" title="华为进入“战时状态”人心惶惶 高级员工纷纷离职  " alt="华为进入“战时状态”人心惶惶 高级员工纷纷离职  "></a></p>
+<p><a href="https://github.com/dqujvs3244/djy/blob/master/gb/20/8/22/n12350523.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员提议案 禁称习近平为“Presiden>-009fcc?logoWidth=1" title="美议员提议案 禁称习近平为“President”  " alt="美议员提议案 禁称习近平为“President”  "></a></p>
+<p><a href="https://github.com/dqujvs3244/djy/blob/master/gb/20/8/22/n12349428.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：从党校教授蔡霞遭遇谈中共的根本问题 >-009fcc?logoWidth=1" title="王友群：从党校教授蔡霞遭遇谈中共的根本问题  " alt="王友群：从党校教授蔡霞遭遇谈中共的根本问题  "></a></p>
+<p><a href="https://github.com/dqujvs3244/ntdtv/blob/master/gb/2020/08/21/a102923534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强被警告或成林彪第二 与习同日考察唱对台>-009fcc?logoWidth=1" title="李克强被警告或成林彪第二 与习同日考察唱对台戏  " alt="李克强被警告或成林彪第二 与习同日考察唱对台戏  "></a></p>
+<p><a href="https://github.com/dqujvs3244/ntdtv/blob/master/gb/2020/08/22/a102923990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中医师：心脏最喜欢的4种食物和4味中药   >-009fcc?logoWidth=1" title="中医师：心脏最喜欢的4种食物和4味中药  " alt="中医师：心脏最喜欢的4种食物和4味中药  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -236,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://dqujvs3244.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?fwvse">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?vivoi">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?alcvy">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?atjaz">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -282,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?dgwsj">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?pydqp">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?snqpt">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ycihn">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -462,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dqujvs3244/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dqujvs3244/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dqujvs3244/www/master/index.html?x">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dqujvs3244/www/blob/master/README.md?c#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/dqujvs3244/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dqujvs3244/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dqujvs3244/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dqujvs3244/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dqujvs3244/www/blob/master/README.md?w#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/dqujvs3244/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qbbbb">git.io/qbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/mmmmmmmm">git.io/mmmmmmmm</a></div>
 
