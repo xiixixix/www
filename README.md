@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aipcnk3176/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aipcnk3176/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gcccc">git.io/gcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/bpp">x.co/bpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bcccc">git.io/bcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/upp">x.co/upp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/24/a102925018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沪公务员吃“半份菜”豆渣饼 网友:挨饿前奏 >-009fcc?logoWidth=1" title="沪公务员吃“半份菜”豆渣饼 网友:挨饿前奏  " alt="沪公务员吃“半份菜”豆渣饼 网友:挨饿前奏  "></a></p>
 <p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/24/a102925023.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山雨欲来！中共公安系统更大风暴来临     >-009fcc?logoWidth=1" title="山雨欲来！中共公安系统更大风暴来临  " alt="山雨欲来！中共公安系统更大风暴来临  "></a></p>
 <p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/24/a102924996.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强上党媒晚3天 分析：北戴河内斗仍在延续>-009fcc?logoWidth=1" title="李克强上党媒晚3天 分析：北戴河内斗仍在延续  " alt="李克强上党媒晚3天 分析：北戴河内斗仍在延续  "></a></p>
 <p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/24/a102924955.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/深圳特区40周年 陆媒罕见报导邓小平孙子  >-009fcc?logoWidth=1" title="深圳特区40周年 陆媒罕见报导邓小平孙子  " alt="深圳特区40周年 陆媒罕见报导邓小平孙子  "></a></p>
 <p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/24/a102924890.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/剑指曾庆红？ 陆媒曝中粮骆家駹江西帮背景  >-009fcc?logoWidth=1" title="剑指曾庆红？ 陆媒曝中粮骆家駹江西帮背景  " alt="剑指曾庆红？ 陆媒曝中粮骆家駹江西帮背景  "></a></p>
 <p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/24/a102924868.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刘伯温预言正兑现：繁华市变汪洋 高楼阁变泥岗>-009fcc?logoWidth=1" title="刘伯温预言正兑现：繁华市变汪洋 高楼阁变泥岗  " alt="刘伯温预言正兑现：繁华市变汪洋 高楼阁变泥岗  "></a></p>
-<p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/24/a102924863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/听习近平的话 上海公务员吃“半份菜”、豆渣饼>-009fcc?logoWidth=1" title="听习近平的话 上海公务员吃“半份菜”、豆渣饼  " alt="听习近平的话 上海公务员吃“半份菜”、豆渣饼  "></a></p>
+<p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/23/a102924362.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉再现“万家宴” 电音节狂欢令外媒哗然  >-009fcc?logoWidth=1" title="武汉再现“万家宴” 电音节狂欢令外媒哗然  " alt="武汉再现“万家宴” 电音节狂欢令外媒哗然  "></a></p>
 <p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/24/a102925055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/受贿逾1800万 茅台集团前总经理囚11年半>-009fcc?logoWidth=1" title="受贿逾1800万 茅台集团前总经理囚11年半  " alt="受贿逾1800万 茅台集团前总经理囚11年半  "></a></p>
 <p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/24/a102925014.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赛国“黄金护照”漂白身份 申请最多俄罗斯和中>-009fcc?logoWidth=1" title="赛国“黄金护照”漂白身份 申请最多俄罗斯和中国人  " alt="赛国“黄金护照”漂白身份 申请最多俄罗斯和中国人  "></a></p>
+<p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/24/a102925039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/科技战中共难反击美国？专家：美有独一无二武器>-009fcc?logoWidth=1" title="科技战中共难反击美国？专家：美有独一无二武器  " alt="科技战中共难反击美国？专家：美有独一无二武器  "></a></p>
 <p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/24/a102924889.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉实验室改数据 港入境处职员被控罪    >-009fcc?logoWidth=1" title="武汉实验室改数据 港入境处职员被控罪  " alt="武汉实验室改数据 港入境处职员被控罪  "></a></p>
-<p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/24/a102924888.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧冠决赛封闭香榭大道 巴黎饮恨爆警民冲突  >-009fcc?logoWidth=1" title="欧冠决赛封闭香榭大道 巴黎饮恨爆警民冲突  " alt="欧冠决赛封闭香榭大道 巴黎饮恨爆警民冲突  "></a></p>
-<p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/24/a102924852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刷新日本宪政史 安倍连续在任首相2799天 >-009fcc?logoWidth=1" title="刷新日本宪政史 安倍连续在任首相2799天  " alt="刷新日本宪政史 安倍连续在任首相2799天  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aipcnk3176/djy/blob/master/gb/20/8/24/n12352544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：党媒连发5篇社论 中共急于表白什么？ >-009fcc?logoWidth=1" title="田云：党媒连发5篇社论 中共急于表白什么？  " alt="田云：党媒连发5篇社论 中共急于表白什么？  "></a></p>
 <p><a href="https://github.com/aipcnk3176/djy/blob/master/gb/20/8/24/n12352600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习要访韩解困？神秘光球照关东        >-009fcc?logoWidth=1" title="习要访韩解困？神秘光球照关东  " alt="习要访韩解困？神秘光球照关东  "></a></p>
@@ -42,14 +42,13 @@
 <p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/24/a102925004.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：对法轮功“清零行动”是中共自灭之举 >-009fcc?logoWidth=1" title="王友群：对法轮功“清零行动”是中共自灭之举  " alt="王友群：对法轮功“清零行动”是中共自灭之举  "></a></p>
 <p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/24/a102925009.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/F16维修中心在台湾成立有何重要意义%3F 购买>-009fcc?logoWidth=1" title="F16维修中心在台湾成立有何重要意义? 购买F-16v战机的价值展现!  " alt="F16维修中心在台湾成立有何重要意义? 购买F-16v战机的价值展现!  "></a></p>
 <p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/23/a102924583.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/得道喇嘛的现世预言句句成真 只剩一件大事正在>-009fcc?logoWidth=1" title="得道喇嘛的现世预言句句成真 只剩一件大事正在应验中  " alt="得道喇嘛的现世预言句句成真 只剩一件大事正在应验中  "></a></p>
-<p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/24/a102924964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老花眼常在中年出现 按摩4穴位延缓眼老化  >-009fcc?logoWidth=1" title="老花眼常在中年出现 按摩4穴位延缓眼老化  " alt="老花眼常在中年出现 按摩4穴位延缓眼老化  "></a></p>
 <p><a href="https://github.com/aipcnk3176/djy/blob/master/gb/20/8/24/n12353148.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：对法轮功“清零行动”是中共自灭之举 >-009fcc?logoWidth=1" title="王友群：对法轮功“清零行动”是中共自灭之举  " alt="王友群：对法轮功“清零行动”是中共自灭之举  "></a></p>
 <p><a href="https://github.com/aipcnk3176/djy/blob/master/gb/20/8/23/n12352021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/十万亿债券将到期 大陆债券违约恐再创纪录  >-009fcc?logoWidth=1" title="十万亿债券将到期 大陆债券违约恐再创纪录  " alt="十万亿债券将到期 大陆债券违约恐再创纪录  "></a></p>
+<p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/24/a102924964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老花眼常在中年出现 按摩4穴位延缓眼老化  >-009fcc?logoWidth=1" title="老花眼常在中年出现 按摩4穴位延缓眼老化  " alt="老花眼常在中年出现 按摩4穴位延缓眼老化  "></a></p>
 <p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/23/a102924766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共播“惠州舰”实射片耀武 被揭错漏百出沦笑>-009fcc?logoWidth=1" title="中共播“惠州舰”实射片耀武 被揭错漏百出沦笑料（组图）  " alt="中共播“惠州舰”实射片耀武 被揭错漏百出沦笑料（组图）  "></a></p>
-<p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/23/a102924728.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/毛泽东秘密结盟日军，卖国求生        >-009fcc?logoWidth=1" title="毛泽东秘密结盟日军，卖国求生  " alt="毛泽东秘密结盟日军，卖国求生  "></a></p>
 <p><a href="https://github.com/aipcnk3176/djy/blob/master/gb/20/8/23/n12351212.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官媒揭王思聪投资游戏平台涉黄严重    >-009fcc?logoWidth=1" title="中共官媒揭王思聪投资游戏平台涉黄严重  " alt="中共官媒揭王思聪投资游戏平台涉黄严重  "></a></p>
 <p><a href="https://github.com/aipcnk3176/djy/blob/master/gb/20/8/23/n12351944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抗共大事记：中共拒脱钩 美先进战机齐出(8/>-009fcc?logoWidth=1" title="抗共大事记：中共拒脱钩 美先进战机齐出(8/17-8/23)  " alt="抗共大事记：中共拒脱钩 美先进战机齐出(8/17-8/23)  "></a></p>
-<p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/23/a102924677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/七夕起源多久远？现代考古发现超乎想像    >-009fcc?logoWidth=1" title="七夕起源多久远？现代考古发现超乎想像  " alt="七夕起源多久远？现代考古发现超乎想像  "></a></p>
+<p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/23/a102924728.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/毛泽东秘密结盟日军，卖国求生        >-009fcc?logoWidth=1" title="毛泽东秘密结盟日军，卖国求生  " alt="毛泽东秘密结盟日军，卖国求生  "></a></p>
 <p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/23/a102924398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“大佛洗脚”中国变天？ 上一次恰逢1949年>-009fcc?logoWidth=1" title="“大佛洗脚”中国变天？ 上一次恰逢1949年  " alt="“大佛洗脚”中国变天？ 上一次恰逢1949年  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -262,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://aipcnk3176.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?banfb">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?isxsq">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?zfcms">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?izwxd">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -308,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ecwcv">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?retju">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?xrzsp">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?rakhf">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -488,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aipcnk3176/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aipcnk3176/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aipcnk3176/www/blob/master/README.md?u#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/aipcnk3176/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aipcnk3176/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aipcnk3176/www/master/index.html?l">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aipcnk3176/www/blob/master/README.md?r#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/aipcnk3176/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gcccc">git.io/gcccc</a></div>
+<div align="center">短网址: <a href="https://git.io/bcccc">git.io/bcccc</a></div>
 
