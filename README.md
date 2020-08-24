@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rrychn331/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rrychn331/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tiiii">git.io/tiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppv">x.co/ppv</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/n9999">git.io/n9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/vaa">x.co/vaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/rrychn331/ntdtv/blob/master/gb/2020/08/24/a102924955.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/深圳特区40周年 陆媒罕见报导邓小平孙子  >-009fcc?logoWidth=1" title="深圳特区40周年 陆媒罕见报导邓小平孙子  " alt="深圳特区40周年 陆媒罕见报导邓小平孙子  "></a></p>
 <p><a href="https://github.com/rrychn331/ntdtv/blob/master/gb/2020/08/24/a102924890.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/剑指曾庆红？ 陆媒曝中粮骆家駹江西帮背景  >-009fcc?logoWidth=1" title="剑指曾庆红？ 陆媒曝中粮骆家駹江西帮背景  " alt="剑指曾庆红？ 陆媒曝中粮骆家駹江西帮背景  "></a></p>
 <p><a href="https://github.com/rrychn331/ntdtv/blob/master/gb/2020/08/24/a102924868.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刘伯温预言正兑现：繁华市变汪洋 高楼阁变泥岗>-009fcc?logoWidth=1" title="刘伯温预言正兑现：繁华市变汪洋 高楼阁变泥岗  " alt="刘伯温预言正兑现：繁华市变汪洋 高楼阁变泥岗  "></a></p>
+<p><a href="https://github.com/rrychn331/ntdtv/blob/master/gb/2020/08/24/a102925406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美再捕千人计划成员 德州教授被控窃取航天资源>-009fcc?logoWidth=1" title="美再捕千人计划成员 德州教授被控窃取航天资源  " alt="美再捕千人计划成员 德州教授被控窃取航天资源  "></a></p>
+<p><a href="https://github.com/rrychn331/ntdtv/blob/master/gb/2020/08/24/a102925408.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒:中共密会南海诸国外交官 对美示“诚意”>-009fcc?logoWidth=1" title="港媒:中共密会南海诸国外交官 对美示“诚意”  " alt="港媒:中共密会南海诸国外交官 对美示“诚意”  "></a></p>
 <p><a href="https://github.com/rrychn331/ntdtv/blob/master/gb/2020/08/24/a102925184.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/奥巴马也不看好拜登：不要低估乔闯祸能力   >-009fcc?logoWidth=1" title="奥巴马也不看好拜登：不要低估乔闯祸能力  " alt="奥巴马也不看好拜登：不要低估乔闯祸能力  "></a></p>
 <p><a href="https://github.com/rrychn331/ntdtv/blob/master/gb/2020/08/24/a102925368.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分化美欧同盟？王毅紧追蓬佩奥出访欧洲    >-009fcc?logoWidth=1" title="分化美欧同盟？王毅紧追蓬佩奥出访欧洲  " alt="分化美欧同盟？王毅紧追蓬佩奥出访欧洲  "></a></p>
 <p><a href="https://github.com/rrychn331/ntdtv/blob/master/gb/2020/08/24/a102925349.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普获共和党总统候选提名 新政纲续推与中共脱>-009fcc?logoWidth=1" title="川普获共和党总统候选提名 新政纲续推与中共脱钩  " alt="川普获共和党总统候选提名 新政纲续推与中共脱钩  "></a></p>
-<p><a href="https://github.com/rrychn331/ntdtv/blob/master/gb/2020/08/24/a102925214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/掩耳盗铃？腾讯企业微信改名欲避禁令或无效  >-009fcc?logoWidth=1" title="掩耳盗铃？腾讯企业微信改名欲避禁令或无效  " alt="掩耳盗铃？腾讯企业微信改名欲避禁令或无效  "></a></p>
-<p><a href="https://github.com/rrychn331/ntdtv/blob/master/gb/2020/08/24/a102925289.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/ 8.24川普就食品盒计划发表讲话（同声翻译>-009fcc?logoWidth=1" title=" 8.24川普就食品盒计划发表讲话（同声翻译）  " alt=" 8.24川普就食品盒计划发表讲话（同声翻译）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rrychn331/djy/blob/master/gb/20/8/24/n12352544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：党媒连发5篇社论 中共急于表白什么？ >-009fcc?logoWidth=1" title="田云：党媒连发5篇社论 中共急于表白什么？  " alt="田云：党媒连发5篇社论 中共急于表白什么？  "></a></p>
 <p><a href="https://github.com/rrychn331/djy/blob/master/gb/20/8/24/n12352600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习要访韩解困？神秘光球照关东        >-009fcc?logoWidth=1" title="习要访韩解困？神秘光球照关东  " alt="习要访韩解困？神秘光球照关东  "></a></p>
@@ -36,21 +36,18 @@
 <p><a href="https://github.com/rrychn331/djy/blob/master/gb/20/8/18/n12341063.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连GDP暴跌 内部文件曝真相       >-009fcc?logoWidth=1" title="大连GDP暴跌 内部文件曝真相  " alt="大连GDP暴跌 内部文件曝真相  "></a></p>
 <p><a href="https://github.com/rrychn331/djy/blob/master/gb/20/8/24/n12353848.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：川普一旦连任 更会放开手脚打击中共  >-009fcc?logoWidth=1" title="专家：川普一旦连任 更会放开手脚打击中共  " alt="专家：川普一旦连任 更会放开手脚打击中共  "></a></p>
 <p><a href="https://github.com/rrychn331/djy/blob/master/gb/20/8/24/n12353143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒揭秘“邓家唯一从政第3代”：邓卓棣   >-009fcc?logoWidth=1" title="陆媒揭秘“邓家唯一从政第3代”：邓卓棣  " alt="陆媒揭秘“邓家唯一从政第3代”：邓卓棣  "></a></p>
+<p><a href="https://github.com/rrychn331/djy/blob/master/gb/20/8/24/n12352694.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国药企高管走私毒品在美被捕 当庭认罪   >-009fcc?logoWidth=1" title="中国药企高管走私毒品在美被捕 当庭认罪  " alt="中国药企高管走私毒品在美被捕 当庭认罪  "></a></p>
 <p><a href="https://github.com/rrychn331/djy/blob/master/gb/20/8/24/n12354097.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“光盘行动”成笑料 学者：饥荒来自独裁统治 >-009fcc?logoWidth=1" title="“光盘行动”成笑料 学者：饥荒来自独裁统治  " alt="“光盘行动”成笑料 学者：饥荒来自独裁统治  "></a></p>
-<p><a href="https://github.com/rrychn331/djy/blob/master/gb/20/8/24/n12353798.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民调：台湾5成6民众认为 中共非中国    >-009fcc?logoWidth=1" title="民调：台湾5成6民众认为 中共非中国  " alt="民调：台湾5成6民众认为 中共非中国  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/rrychn331/djy/blob/master/gb/20/8/24/n12352546.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官二代爆王沪宁给习出馊主意         >-009fcc?logoWidth=1" title="官二代爆王沪宁给习出馊主意  " alt="官二代爆王沪宁给习出馊主意  "></a></p>
 <p><a href="https://github.com/rrychn331/ntdtv/blob/master/gb/2020/08/24/a102924818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平刚去安徽考察 当地又出大事(视频)  >-009fcc?logoWidth=1" title="习近平刚去安徽考察 当地又出大事(视频)  " alt="习近平刚去安徽考察 当地又出大事(视频)  "></a></p>
-<p><a href="https://github.com/rrychn331/djy/blob/master/gb/20/8/24/n12353559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/WeChat悄悄更名 腾讯微信官方没发通告 >-009fcc?logoWidth=1" title="WeChat悄悄更名 腾讯微信官方没发通告  " alt="WeChat悄悄更名 腾讯微信官方没发通告  "></a></p>
-<p><a href="https://github.com/rrychn331/djy/blob/master/gb/20/8/24/n12352847.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆社交平台催泪视频层出 或摆拍或为赚钱  >-009fcc?logoWidth=1" title="大陆社交平台催泪视频层出 或摆拍或为赚钱  " alt="大陆社交平台催泪视频层出 或摆拍或为赚钱  "></a></p>
 <p><a href="https://github.com/rrychn331/ntdtv/blob/master/gb/2020/08/24/a102924908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为什么老爱熬夜？5招戒除“睡前拖延症”   >-009fcc?logoWidth=1" title="为什么老爱熬夜？5招戒除“睡前拖延症”  " alt="为什么老爱熬夜？5招戒除“睡前拖延症”  "></a></p>
 <p><a href="https://github.com/rrychn331/ntdtv/blob/master/gb/2020/08/23/a102924583.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/得道喇嘛的现世预言句句成真 只剩一件大事正在>-009fcc?logoWidth=1" title="得道喇嘛的现世预言句句成真 只剩一件大事正在应验中  " alt="得道喇嘛的现世预言句句成真 只剩一件大事正在应验中  "></a></p>
-<p><a href="https://github.com/rrychn331/djy/blob/master/gb/20/8/23/n12351999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：猛踩油门回文革？——王沪宁败主不倦 >-009fcc?logoWidth=1" title="李正宽：猛踩油门回文革？——王沪宁败主不倦  " alt="李正宽：猛踩油门回文革？——王沪宁败主不倦  "></a></p>
-<p><a href="https://github.com/rrychn331/djy/blob/master/gb/20/8/24/n12352399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：吉林政法厅官落马 牵出江泽民的罪恶 >-009fcc?logoWidth=1" title="陈思敏：吉林政法厅官落马 牵出江泽民的罪恶  " alt="陈思敏：吉林政法厅官落马 牵出江泽民的罪恶  "></a></p>
+<p><a href="https://github.com/rrychn331/djy/blob/master/gb/20/8/24/n12353798.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民调：台湾5成6民众认为 中共非中国    >-009fcc?logoWidth=1" title="民调：台湾5成6民众认为 中共非中国  " alt="民调：台湾5成6民众认为 中共非中国  "></a></p>
+<p><a href="https://github.com/rrychn331/djy/blob/master/gb/20/8/24/n12354383.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共四大海域同步军演 专家：虚张声势    >-009fcc?logoWidth=1" title="中共四大海域同步军演 专家：虚张声势  " alt="中共四大海域同步军演 专家：虚张声势  "></a></p>
 <p><a href="https://github.com/rrychn331/ntdtv/blob/master/gb/2020/08/24/a102924828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印太联军围剿中共？ 环太平洋军演10国舰艇齐>-009fcc?logoWidth=1" title="印太联军围剿中共？ 环太平洋军演10国舰艇齐聚  " alt="印太联军围剿中共？ 环太平洋军演10国舰艇齐聚  "></a></p>
 <p><a href="https://github.com/rrychn331/ntdtv/blob/master/gb/2020/08/23/a102924454.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/造假无底线！央视新闻穿帮集锦笑翻网络(视频）>-009fcc?logoWidth=1" title="造假无底线！央视新闻穿帮集锦笑翻网络(视频）  " alt="造假无底线！央视新闻穿帮集锦笑翻网络(视频）  "></a></p>
-<p><a href="https://github.com/rrychn331/djy/blob/master/gb/20/8/24/n12353148.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：对法轮功“清零行动”是中共自灭之举 >-009fcc?logoWidth=1" title="王友群：对法轮功“清零行动”是中共自灭之举  " alt="王友群：对法轮功“清零行动”是中共自灭之举  "></a></p>
-<p><a href="https://github.com/rrychn331/djy/blob/master/gb/20/8/24/n12352870.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传华为停止开发新品 或将退出手机市场    >-009fcc?logoWidth=1" title="传华为停止开发新品 或将退出手机市场  " alt="传华为停止开发新品 或将退出手机市场  "></a></p>
+<p><a href="https://github.com/rrychn331/djy/blob/master/gb/20/8/23/n12352269.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中冲突的新火药桶             >-009fcc?logoWidth=1" title="美中冲突的新火药桶  " alt="美中冲突的新火药桶  "></a></p>
+<p><a href="https://github.com/rrychn331/djy/blob/master/gb/20/8/24/n12353559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/WeChat悄悄更名 腾讯微信官方没发通告 >-009fcc?logoWidth=1" title="WeChat悄悄更名 腾讯微信官方没发通告  " alt="WeChat悄悄更名 腾讯微信官方没发通告  "></a></p>
 <p><a href="https://github.com/rrychn331/ntdtv/blob/master/gb/2020/08/23/a102924728.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/毛泽东秘密结盟日军，卖国求生        >-009fcc?logoWidth=1" title="毛泽东秘密结盟日军，卖国求生  " alt="毛泽东秘密结盟日军，卖国求生  "></a></p>
 <p><a href="https://github.com/rrychn331/ntdtv/blob/master/gb/2020/08/23/a102924766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共播“惠州舰”实射片耀武 被揭错漏百出沦笑>-009fcc?logoWidth=1" title="中共播“惠州舰”实射片耀武 被揭错漏百出沦笑料（组图）  " alt="中共播“惠州舰”实射片耀武 被揭错漏百出沦笑料（组图）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -264,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://rrychn331.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?zribk">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?wfvyy">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?zlnof">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?fxjvp">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -310,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?khvhs">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?zjbvu">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?btbnc">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?fhkbv">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -490,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/rrychn331/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rrychn331/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rrychn331/www/master/index.html?r">高速版平台</a></strong></p>
+<p><strong><a href="https://github.com/rrychn331/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rrychn331/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rrychn331/www/master/index.html?t">高速版平台</a></strong></p>
 <h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rrychn331/www/blob/master/README.md?a#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/rrychn331/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/tiiii">git.io/tiiii</a></div>
+<div align="center">短网址: <a href="https://git.io/n9999">git.io/n9999</a></div>
 
