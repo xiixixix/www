@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aipcnk3176/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aipcnk3176/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyyy">git.io/yyyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp6">x.co/pp6</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/x7777">git.io/x7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/daa">x.co/daa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/24/a102924818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平刚去安徽考察 当地又出大事(视频)  >-009fcc?logoWidth=1" title="习近平刚去安徽考察 当地又出大事(视频)  " alt="习近平刚去安徽考察 当地又出大事(视频)  "></a></p>
 <p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/23/a102924621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/无论做什么 习都在加速解体中共/美中冲突新火>-009fcc?logoWidth=1" title="无论做什么 习都在加速解体中共/美中冲突新火药桶  " alt="无论做什么 习都在加速解体中共/美中冲突新火药桶  "></a></p>
 <p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/23/a102924524.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长江大洪水肆虐 上下游全淹         >-009fcc?logoWidth=1" title="长江大洪水肆虐 上下游全淹  " alt="长江大洪水肆虐 上下游全淹  "></a></p>
+<p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/24/a102924918.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉再现“万家宴” 电音节狂欢令外媒哗然  >-009fcc?logoWidth=1" title="武汉再现“万家宴” 电音节狂欢令外媒哗然  " alt="武汉再现“万家宴” 电音节狂欢令外媒哗然  "></a></p>
 <p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/24/a102924888.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧冠决赛封闭香榭大道 巴黎饮恨爆警民冲突  >-009fcc?logoWidth=1" title="欧冠决赛封闭香榭大道 巴黎饮恨爆警民冲突  " alt="欧冠决赛封闭香榭大道 巴黎饮恨爆警民冲突  "></a></p>
 <p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/24/a102924852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刷新日本宪政史 安倍连续在任首相2799天 >-009fcc?logoWidth=1" title="刷新日本宪政史 安倍连续在任首相2799天  " alt="刷新日本宪政史 安倍连续在任首相2799天  "></a></p>
 <p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/24/a102924843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制止假新闻策略：起诉媒体          >-009fcc?logoWidth=1" title="制止假新闻策略：起诉媒体  " alt="制止假新闻策略：起诉媒体  "></a></p>
 <p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/24/a102924832.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普总统在白宫举行重要新闻发布会（中文同声翻>-009fcc?logoWidth=1" title="川普总统在白宫举行重要新闻发布会（中文同声翻译）  " alt="川普总统在白宫举行重要新闻发布会（中文同声翻译）  "></a></p>
-<p><a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/2020/08/23/a102924686.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川母狗跳入洪水中救回宝宝 感动人心    >-009fcc?logoWidth=1" title="四川母狗跳入洪水中救回宝宝 感动人心  " alt="四川母狗跳入洪水中救回宝宝 感动人心  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aipcnk3176/djy/blob/master/gb/20/8/19/n12341252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件曝中共压制负面新闻手法       >-009fcc?logoWidth=1" title="内部文件曝中共压制负面新闻手法  " alt="内部文件曝中共压制负面新闻手法  "></a></p>
 <p><a href="https://github.com/aipcnk3176/djy/blob/master/gb/20/8/23/n12351841.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普8.23发布会：血浆疗法治愈率35   >-009fcc?logoWidth=1" title="川普8.23发布会：血浆疗法治愈率35  " alt="川普8.23发布会：血浆疗法治愈率35  "></a></p>
@@ -262,9 +262,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://aipcnk3176.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?wmqeh">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?rmizo">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?gmurc">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?nkupl">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -308,8 +308,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?qyopc">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?gffbd">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ancld">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?nhupu">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -489,7 +489,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/aipcnk3176/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aipcnk3176/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aipcnk3176/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aipcnk3176/www/blob/master/README.md?i#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/aipcnk3176/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aipcnk3176/www/blob/master/README.md?m#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/aipcnk3176/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/yyyyyy">git.io/yyyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/x7777">git.io/x7777</a></div>
 
