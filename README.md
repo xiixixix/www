@@ -10,17 +10,17 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ejzkav3446/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ejzkav3446/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nbbbb">git.io/nbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a6a">x.co/a6a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nnnnnn">git.io/nnnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p9p">x.co/p9p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/ejzkav3446/ntdtv/blob/master/gb/2020/08/25/a102925679.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国发布黄色预警 巴威恐成中国东北史上最强台>-009fcc?logoWidth=1" title="中国发布黄色预警 巴威恐成中国东北史上最强台风  " alt="中国发布黄色预警 巴威恐成中国东北史上最强台风  "></a></p>
 <p><a href="https://github.com/ejzkav3446/ntdtv/blob/master/gb/2020/08/25/a102925641.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强重庆勘灾 叹“里面都烂了，你看！”(视>-009fcc?logoWidth=1" title="李克强重庆勘灾 叹“里面都烂了，你看！”(视频)  " alt="李克强重庆勘灾 叹“里面都烂了，你看！”(视频)  "></a></p>
 <p><a href="https://github.com/ejzkav3446/ntdtv/blob/master/gb/2020/08/25/a102925647.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞：中共威胁全球 希望各国联手阻止中共渗透>-009fcc?logoWidth=1" title="蔡霞：中共威胁全球 希望各国联手阻止中共渗透  " alt="蔡霞：中共威胁全球 希望各国联手阻止中共渗透  "></a></p>
 <p><a href="https://github.com/ejzkav3446/ntdtv/blob/master/gb/2020/08/25/a102925612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普︰下一任期 将对中共更强硬       >-009fcc?logoWidth=1" title="川普︰下一任期 将对中共更强硬  " alt="川普︰下一任期 将对中共更强硬  "></a></p>
 <p><a href="https://github.com/ejzkav3446/ntdtv/blob/master/gb/2020/08/25/a102925560.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:震撼！中美全脱钩5政纲登场/美要立法禁>-009fcc?logoWidth=1" title="文昭:震撼！中美全脱钩5政纲登场/美要立法禁称习“国家主席”  " alt="文昭:震撼！中美全脱钩5政纲登场/美要立法禁称习“国家主席”  "></a></p>
 <p><a href="https://github.com/ejzkav3446/ntdtv/blob/master/gb/2020/08/24/a102925435.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为通知上游厂商暂停供货 疑将退出手机市场 >-009fcc?logoWidth=1" title="华为通知上游厂商暂停供货 疑将退出手机市场  " alt="华为通知上游厂商暂停供货 疑将退出手机市场  "></a></p>
-<p><a href="https://github.com/ejzkav3446/ntdtv/blob/master/gb/2020/08/24/a102925408.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：中共密会南海诸国外交官 对美示“诚意”>-009fcc?logoWidth=1" title="港媒：中共密会南海诸国外交官 对美示“诚意”  " alt="港媒：中共密会南海诸国外交官 对美示“诚意”  "></a></p>
-<p><a href="https://github.com/ejzkav3446/ntdtv/blob/master/gb/2020/08/25/a102925679.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国发布黄色预警 巴威恐成中国东北史上最强台>-009fcc?logoWidth=1" title="中国发布黄色预警 巴威恐成中国东北史上最强台风  " alt="中国发布黄色预警 巴威恐成中国东北史上最强台风  "></a></p>
+<p><a href="https://github.com/ejzkav3446/ntdtv/blob/master/gb/2020/08/25/a102925715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共求和另有用意 川普誓言不怕脱钩     >-009fcc?logoWidth=1" title="中共求和另有用意 川普誓言不怕脱钩  " alt="中共求和另有用意 川普誓言不怕脱钩  "></a></p>
 <p><a href="https://github.com/ejzkav3446/ntdtv/blob/master/gb/2020/08/25/a102925675.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新闻联播现“新中国联邦旗” 网友：央视有战友>-009fcc?logoWidth=1" title="新闻联播现“新中国联邦旗” 网友：央视有战友啊！  " alt="新闻联播现“新中国联邦旗” 网友：央视有战友啊！  "></a></p>
 <p><a href="https://github.com/ejzkav3446/ntdtv/blob/master/gb/2020/08/25/a102925666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/章天亮：川普誓言第二任期拔掉中共经济输血管 >-009fcc?logoWidth=1" title="章天亮：川普誓言第二任期拔掉中共经济输血管  " alt="章天亮：川普誓言第二任期拔掉中共经济输血管  "></a></p>
 <p><a href="https://github.com/ejzkav3446/ntdtv/blob/master/gb/2020/08/25/a102925658.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共担心蔡霞效应？ 急划“党校人姓党”红线 >-009fcc?logoWidth=1" title="中共担心蔡霞效应？ 急划“党校人姓党”红线  " alt="中共担心蔡霞效应？ 急划“党校人姓党”红线  "></a></p>
@@ -44,6 +44,7 @@
 <p><a href="https://github.com/ejzkav3446/ntdtv/blob/master/gb/2020/08/25/a102925705.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩又传昏迷 朝鲜承认内循环失败     >-009fcc?logoWidth=1" title="金正恩又传昏迷 朝鲜承认内循环失败  " alt="金正恩又传昏迷 朝鲜承认内循环失败  "></a></p>
 <p><a href="https://github.com/ejzkav3446/djy/blob/master/gb/20/7/28/n12290301.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/章家敦：中共的行为已失控          >-009fcc?logoWidth=1" title="章家敦：中共的行为已失控  " alt="章家敦：中共的行为已失控  "></a></p>
 <p><a href="https://github.com/ejzkav3446/djy/blob/master/gb/20/8/24/n12354809.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普赢得提名 拜登选战二大败笔？      >-009fcc?logoWidth=1" title="川普赢得提名 拜登选战二大败笔？  " alt="川普赢得提名 拜登选战二大败笔？  "></a></p>
+<p><a href="https://github.com/ejzkav3446/ntdtv/blob/master/gb/2020/08/24/a102925408.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港媒：中共密会南海诸国外交官 对美示“诚意”>-009fcc?logoWidth=1" title="港媒：中共密会南海诸国外交官 对美示“诚意”  " alt="港媒：中共密会南海诸国外交官 对美示“诚意”  "></a></p>
 <p><a href="https://github.com/ejzkav3446/djy/blob/master/gb/20/8/24/n12354383.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共四大海域同步军演 专家：虚张声势    >-009fcc?logoWidth=1" title="中共四大海域同步军演 专家：虚张声势  " alt="中共四大海域同步军演 专家：虚张声势  "></a></p>
 <p><a href="https://github.com/ejzkav3446/djy/blob/master/gb/20/8/24/n12354097.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“光盘行动”成笑料 学者：饥荒来自独裁统治 >-009fcc?logoWidth=1" title="“光盘行动”成笑料 学者：饥荒来自独裁统治  " alt="“光盘行动”成笑料 学者：饥荒来自独裁统治  "></a></p>
 <p><a href="https://github.com/ejzkav3446/ntdtv/blob/master/gb/2020/08/24/a102924996.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强上党媒晚3天 分析：北戴河内斗仍在延续>-009fcc?logoWidth=1" title="李克强上党媒晚3天 分析：北戴河内斗仍在延续  " alt="李克强上党媒晚3天 分析：北戴河内斗仍在延续  "></a></p>
@@ -259,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://ejzkav3446.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?gumwf">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?lcjjm">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?qrzyn">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?acosw">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?slkqw">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ttixw">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?iovjv">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?fiuax">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ejzkav3446/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ejzkav3446/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ejzkav3446/www/master/index.html?j">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ejzkav3446/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ejzkav3446/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ejzkav3446/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ejzkav3446/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ejzkav3446/www/master/index.html?m">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ejzkav3446/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ejzkav3446/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/nbbbb">git.io/nbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/nnnnnn">git.io/nnnnnn</a></div>
 
