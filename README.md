@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mozrmf3241/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mozrmf3241/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/zpppp">git.io/zpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/kaa">x.co/kaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ruuuu">git.io/ruuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aua">x.co/aua</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/mozrmf3241/ntdtv/blob/master/gb/2020/08/25/a102925641.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强重庆勘灾 叹“里面都烂了，你看！”(视>-009fcc?logoWidth=1" title="李克强重庆勘灾 叹“里面都烂了，你看！”(视频)  " alt="李克强重庆勘灾 叹“里面都烂了，你看！”(视频)  "></a></p>
 <p><a href="https://github.com/mozrmf3241/ntdtv/blob/master/gb/2020/08/25/a102926120.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中脱钩继续  路透：富士康等亚企拟在墨西哥>-009fcc?logoWidth=1" title="美中脱钩继续  路透：富士康等亚企拟在墨西哥建厂  " alt="美中脱钩继续  路透：富士康等亚企拟在墨西哥建厂  "></a></p>
 <p><a href="https://github.com/mozrmf3241/ntdtv/blob/master/gb/2020/08/25/a102926086.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/古巴逃亡商人RNC发言:选川普即选择自由  >-009fcc?logoWidth=1" title="古巴逃亡商人RNC发言:选川普即选择自由  " alt="古巴逃亡商人RNC发言:选川普即选择自由  "></a></p>
+<p><a href="https://github.com/mozrmf3241/ntdtv/blob/master/gb/2020/08/25/a102926102.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“共产党比黑社会还黑”江苏老党员退党    >-009fcc?logoWidth=1" title="“共产党比黑社会还黑”江苏老党员退党  " alt="“共产党比黑社会还黑”江苏老党员退党  "></a></p>
 <p><a href="https://github.com/mozrmf3241/ntdtv/blob/master/gb/2020/08/25/a102925997.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/以色列18岁青年挖到宝 425枚纯金打造千年>-009fcc?logoWidth=1" title="以色列18岁青年挖到宝 425枚纯金打造千年金币  " alt="以色列18岁青年挖到宝 425枚纯金打造千年金币  "></a></p>
 <p><a href="https://github.com/mozrmf3241/ntdtv/blob/master/gb/2020/08/25/a102925985.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/清华北大博士生 做街道维稳人员引议     >-009fcc?logoWidth=1" title="清华北大博士生 做街道维稳人员引议  " alt="清华北大博士生 做街道维稳人员引议  "></a></p>
-<p><a href="https://github.com/mozrmf3241/ntdtv/blob/master/gb/2020/08/25/a102925984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭台风巴威吹翻 日本渔船1船员海上漂流2天获>-009fcc?logoWidth=1" title="遭台风巴威吹翻 日本渔船1船员海上漂流2天获救  " alt="遭台风巴威吹翻 日本渔船1船员海上漂流2天获救  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/mozrmf3241/djy/blob/master/gb/20/8/24/n12352380.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中围绕中共搞军民融合的较量        >-009fcc?logoWidth=1" title="美中围绕中共搞军民融合的较量  " alt="美中围绕中共搞军民融合的较量  "></a></p>
 <p><a href="https://github.com/mozrmf3241/djy/blob/master/gb/20/8/25/n12355059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普若连任 中共扫下历史舞台？       >-009fcc?logoWidth=1" title="川普若连任 中共扫下历史舞台？  " alt="川普若连任 中共扫下历史舞台？  "></a></p>
@@ -263,9 +263,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://mozrmf3241.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?khtzh">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?klmqx">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?gyqor">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?uufvz">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -309,8 +309,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?pbykm">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?wjmdg">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?drgbt">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ipvoq">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -489,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/mozrmf3241/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mozrmf3241/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mozrmf3241/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mozrmf3241/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mozrmf3241/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/mozrmf3241/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mozrmf3241/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mozrmf3241/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mozrmf3241/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mozrmf3241/www/blob/master/README.md?x%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/zpppp">git.io/zpppp</a></div>
+<div align="center">短网址: <a href="https://git.io/ruuuu">git.io/ruuuu</a></div>
 
