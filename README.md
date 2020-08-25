@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/kqfudw3418/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/kqfudw3418/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/888888">git.io/888888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aia">x.co/aia</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fdddd">git.io/fdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/npp">x.co/npp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,14 +39,14 @@
 <p><a href="https://github.com/kqfudw3418/djy/blob/master/gb/20/8/24/n12353143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒揭秘“邓家唯一从政第3代”：邓卓棣   >-009fcc?logoWidth=1" title="陆媒揭秘“邓家唯一从政第3代”：邓卓棣  " alt="陆媒揭秘“邓家唯一从政第3代”：邓卓棣  "></a></p>
 <p><a href="https://github.com/kqfudw3418/djy/blob/master/gb/20/7/28/n12290301.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/章家敦：中共的行为已失控          >-009fcc?logoWidth=1" title="章家敦：中共的行为已失控  " alt="章家敦：中共的行为已失控  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/kqfudw3418/ntdtv/blob/master/gb/2020/08/24/a102925446.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国拟禁共产党员入境与蔡霞决裂共产党    >-009fcc?logoWidth=1" title="美国拟禁共产党员入境与蔡霞决裂共产党  " alt="美国拟禁共产党员入境与蔡霞决裂共产党  "></a></p>
 <p><a href="https://github.com/kqfudw3418/djy/blob/master/gb/20/8/24/n12354809.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普赢得提名 拜登选战二大败笔？      >-009fcc?logoWidth=1" title="川普赢得提名 拜登选战二大败笔？  " alt="川普赢得提名 拜登选战二大败笔？  "></a></p>
 <p><a href="https://github.com/kqfudw3418/djy/blob/master/gb/20/8/24/n12354383.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共四大海域同步军演 专家：虚张声势    >-009fcc?logoWidth=1" title="中共四大海域同步军演 专家：虚张声势  " alt="中共四大海域同步军演 专家：虚张声势  "></a></p>
 <p><a href="https://github.com/kqfudw3418/ntdtv/blob/master/gb/2020/08/24/a102924996.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强上党媒晚3天 分析：北戴河内斗仍在延续>-009fcc?logoWidth=1" title="李克强上党媒晚3天 分析：北戴河内斗仍在延续  " alt="李克强上党媒晚3天 分析：北戴河内斗仍在延续  "></a></p>
-<p><a href="https://github.com/kqfudw3418/ntdtv/blob/master/gb/2020/08/24/a102925184.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/奥巴马也不看好拜登：不要低估乔闯祸能力   >-009fcc?logoWidth=1" title="奥巴马也不看好拜登：不要低估乔闯祸能力  " alt="奥巴马也不看好拜登：不要低估乔闯祸能力  "></a></p>
 <p><a href="https://github.com/kqfudw3418/djy/blob/master/gb/20/8/24/n12354097.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“光盘行动”成笑料 学者：饥荒来自独裁统治 >-009fcc?logoWidth=1" title="“光盘行动”成笑料 学者：饥荒来自独裁统治  " alt="“光盘行动”成笑料 学者：饥荒来自独裁统治  "></a></p>
 <p><a href="https://github.com/kqfudw3418/djy/blob/master/gb/20/8/24/n12353798.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民调：台湾5成6民众认为 中共非中国    >-009fcc?logoWidth=1" title="民调：台湾5成6民众认为 中共非中国  " alt="民调：台湾5成6民众认为 中共非中国  "></a></p>
+<p><a href="https://github.com/kqfudw3418/ntdtv/blob/master/gb/2020/08/24/a102925184.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/奥巴马也不看好拜登：不要低估乔闯祸能力   >-009fcc?logoWidth=1" title="奥巴马也不看好拜登：不要低估乔闯祸能力  " alt="奥巴马也不看好拜登：不要低估乔闯祸能力  "></a></p>
 <p><a href="https://github.com/kqfudw3418/ntdtv/blob/master/gb/2020/08/25/a102925567.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/猛踩油门回文革？王沪宁败主不倦       >-009fcc?logoWidth=1" title="猛踩油门回文革？王沪宁败主不倦  " alt="猛踩油门回文革？王沪宁败主不倦  "></a></p>
-<p><a href="https://github.com/kqfudw3418/ntdtv/blob/master/gb/2020/08/24/a102925106.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国人卖房收到数字货币？财经人士诠释    >-009fcc?logoWidth=1" title="中国人卖房收到数字货币？财经人士诠释  " alt="中国人卖房收到数字货币？财经人士诠释  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -258,9 +258,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://kqfudw3418.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?yvrhl">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?bhjpc">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?rjijt">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?aboqz">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -304,8 +304,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?nppzh">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?cwwiy">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?hnmls">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?zpcen">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,7 +485,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/kqfudw3418/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kqfudw3418/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/kqfudw3418/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kqfudw3418/www/blob/master/README.md?n#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/kqfudw3418/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kqfudw3418/www/blob/master/README.md?z#1<br><img src="http://fo04.szzdcdn.tv/v.php?action=qrcode&url=https://github.com/kqfudw3418/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/888888">git.io/888888</a></div>
+<div align="center">短网址: <a href="https://git.io/fdddd">git.io/fdddd</a></div>
 
