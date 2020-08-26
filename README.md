@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ziwjct344/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ziwjct344/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dgggg">git.io/dgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9pp">x.co/9pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/66666666">git.io/66666666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3339">x.co/3339</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,18 +39,16 @@
 <p><a href="https://github.com/ziwjct344/djy/blob/master/gb/20/8/26/n12357756.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王安顺大管家落马 北京官场或掀新一轮清洗  >-009fcc?logoWidth=1" title="王安顺大管家落马 北京官场或掀新一轮清洗  " alt="王安顺大管家落马 北京官场或掀新一轮清洗  "></a></p>
 <p><a href="https://github.com/ziwjct344/djy/blob/master/gb/20/8/26/n12359252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山东13名男生轮奸初二女生 爆料人传被喝茶 >-009fcc?logoWidth=1" title="山东13名男生轮奸初二女生 爆料人传被喝茶  " alt="山东13名男生轮奸初二女生 爆料人传被喝茶  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ziwjct344/djy/blob/master/gb/20/8/26/n12359268.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逃美前副市长曝中共官场黑暗 一次旅游花百万 >-009fcc?logoWidth=1" title="逃美前副市长曝中共官场黑暗 一次旅游花百万  " alt="逃美前副市长曝中共官场黑暗 一次旅游花百万  "></a></p>
+<p><a href="https://github.com/ziwjct344/djy/blob/master/gb/20/8/26/n12359650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乌鲁木齐严封小区 住户开个门缝被抓     >-009fcc?logoWidth=1" title="乌鲁木齐严封小区 住户开个门缝被抓  " alt="乌鲁木齐严封小区 住户开个门缝被抓  "></a></p>
 <p><a href="https://github.com/ziwjct344/ntdtv/blob/master/gb/2020/08/26/a102926520.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：中共如果武力攻台 北京知道我会做什么 >-009fcc?logoWidth=1" title="川普：中共如果武力攻台 北京知道我会做什么  " alt="川普：中共如果武力攻台 北京知道我会做什么  "></a></p>
-<p><a href="https://github.com/ziwjct344/djy/blob/master/gb/20/8/26/n12357822.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俞元：美“屠龙斩”破中共九大毒招      >-009fcc?logoWidth=1" title="俞元：美“屠龙斩”破中共九大毒招  " alt="俞元：美“屠龙斩”破中共九大毒招  "></a></p>
-<p><a href="https://github.com/ziwjct344/djy/blob/master/gb/20/8/26/n12358259.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国500政要富豪花钱移民塞浦路斯     >-009fcc?logoWidth=1" title="中国500政要富豪花钱移民塞浦路斯  " alt="中国500政要富豪花钱移民塞浦路斯  "></a></p>
 <p><a href="https://github.com/ziwjct344/ntdtv/blob/master/gb/2020/08/26/a102926752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020美国大选 川普会赢多少票      >-009fcc?logoWidth=1" title="2020美国大选 川普会赢多少票  " alt="2020美国大选 川普会赢多少票  "></a></p>
 <p><a href="https://github.com/ziwjct344/ntdtv/blob/master/gb/2020/08/26/a102926705.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/男港警偷拍女子裙底当场被抓 对方是高级督察 >-009fcc?logoWidth=1" title="男港警偷拍女子裙底当场被抓 对方是高级督察  " alt="男港警偷拍女子裙底当场被抓 对方是高级督察  "></a></p>
-<p><a href="https://github.com/ziwjct344/djy/blob/master/gb/20/8/26/n12359559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/光盘运动怪招频现 天津“女版盒饭”惹议   >-009fcc?logoWidth=1" title="光盘运动怪招频现 天津“女版盒饭”惹议  " alt="光盘运动怪招频现 天津“女版盒饭”惹议  "></a></p>
-<p><a href="https://github.com/ziwjct344/djy/blob/master/gb/20/8/26/n12358001.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福建退休官员组织百余女子卖淫 近2万人次  >-009fcc?logoWidth=1" title="福建退休官员组织百余女子卖淫 近2万人次  " alt="福建退休官员组织百余女子卖淫 近2万人次  "></a></p>
+<p><a href="https://github.com/ziwjct344/djy/blob/master/gb/20/8/26/n12359268.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逃美前副市长曝中共官场黑暗 一次旅游花百万 >-009fcc?logoWidth=1" title="逃美前副市长曝中共官场黑暗 一次旅游花百万  " alt="逃美前副市长曝中共官场黑暗 一次旅游花百万  "></a></p>
+<p><a href="https://github.com/ziwjct344/djy/blob/master/gb/20/8/26/n12359229.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞：美国应加大制裁 贸易战已撼动中共极权统>-009fcc?logoWidth=1" title="蔡霞：美国应加大制裁 贸易战已撼动中共极权统治  " alt="蔡霞：美国应加大制裁 贸易战已撼动中共极权统治  "></a></p>
 <p><a href="https://github.com/ziwjct344/ntdtv/blob/master/gb/2020/08/26/a102926420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:李克强抗内循环被贬 陆媒深夜狂批蓬佩奥>-009fcc?logoWidth=1" title="文昭:李克强抗内循环被贬 陆媒深夜狂批蓬佩奥为什么？  " alt="文昭:李克强抗内循环被贬 陆媒深夜狂批蓬佩奥为什么？  "></a></p>
 <p><a href="https://github.com/ziwjct344/ntdtv/blob/master/gb/2020/08/25/a102926241.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新华社三万字长文狂批蓬佩奥 核心内容不敢提 >-009fcc?logoWidth=1" title="新华社三万字长文狂批蓬佩奥 核心内容不敢提  " alt="新华社三万字长文狂批蓬佩奥 核心内容不敢提  "></a></p>
-<p><a href="https://github.com/ziwjct344/djy/blob/master/gb/20/8/25/n12356647.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哥哥受中共迫害 面临遣返 妹妹求助美国政府 >-009fcc?logoWidth=1" title="哥哥受中共迫害 面临遣返 妹妹求助美国政府  " alt="哥哥受中共迫害 面临遣返 妹妹求助美国政府  "></a></p>
-<p><a href="https://github.com/ziwjct344/djy/blob/master/gb/20/8/26/n12357751.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港警大搜捕 议员林卓廷许智峯等16人被抓  >-009fcc?logoWidth=1" title="港警大搜捕 议员林卓廷许智峯等16人被抓  " alt="港警大搜捕 议员林卓廷许智峯等16人被抓  "></a></p>
+<p><a href="https://github.com/ziwjct344/djy/blob/master/gb/20/8/26/n12358259.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国500政要富豪花钱移民塞浦路斯     >-009fcc?logoWidth=1" title="中国500政要富豪花钱移民塞浦路斯  " alt="中国500政要富豪花钱移民塞浦路斯  "></a></p>
+<p><a href="https://github.com/ziwjct344/djy/blob/master/gb/20/8/26/n12359559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/光盘运动怪招频现 天津“女版盒饭”惹议   >-009fcc?logoWidth=1" title="光盘运动怪招频现 天津“女版盒饭”惹议  " alt="光盘运动怪招频现 天津“女版盒饭”惹议  "></a></p>
 <p><a href="https://github.com/ziwjct344/ntdtv/blob/master/gb/2020/08/25/a102926068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国人再次震惊韩国社会 让韩国人如何瞧得起中>-009fcc?logoWidth=1" title="中国人再次震惊韩国社会 让韩国人如何瞧得起中国人？  " alt="中国人再次震惊韩国社会 让韩国人如何瞧得起中国人？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -263,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://ziwjct344.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?qyevx">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?izchr">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?lxzow">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?oqjba">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -309,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?tucea">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?kvzgg">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?kndal">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?czqcm">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -489,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ziwjct344/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ziwjct344/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ziwjct344/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ziwjct344/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ziwjct344/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ziwjct344/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ziwjct344/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ziwjct344/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ziwjct344/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ziwjct344/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/dgggg">git.io/dgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/66666666">git.io/66666666</a></div>
 
