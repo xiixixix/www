@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/spaktb3504/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/spaktb3504/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/n5555">git.io/n5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppz">x.co/ppz</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yffff">git.io/yffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppu">x.co/ppu</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -42,7 +42,7 @@
 <p><a href="https://github.com/spaktb3504/djy/blob/master/gb/20/8/25/n12355187.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共南非侨领开宝马车 当街被抢匪开6枪身亡 >-009fcc?logoWidth=1" title="中共南非侨领开宝马车 当街被抢匪开6枪身亡  " alt="中共南非侨领开宝马车 当街被抢匪开6枪身亡  "></a></p>
 <p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/26/a102926542.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最准预测称川普胜算91 百年仅错两次    >-009fcc?logoWidth=1" title="最准预测称川普胜算91 百年仅错两次  " alt="最准预测称川普胜算91 百年仅错两次  "></a></p>
 <p><a href="https://github.com/spaktb3504/djy/blob/master/gb/20/8/25/n12356492.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国日益面临粮食短缺的威胁         >-009fcc?logoWidth=1" title="中国日益面临粮食短缺的威胁  " alt="中国日益面临粮食短缺的威胁  "></a></p>
-<p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/25/a102926297.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥演讲打痛中共 党媒罕见三整版反驳   >-009fcc?logoWidth=1" title="蓬佩奥演讲打痛中共 党媒罕见三整版反驳  " alt="蓬佩奥演讲打痛中共 党媒罕见三整版反驳  "></a></p>
+<p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/25/a102926241.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新华社三万字长文狂批蓬佩奥 核心内容不敢提 >-009fcc?logoWidth=1" title="新华社三万字长文狂批蓬佩奥 核心内容不敢提  " alt="新华社三万字长文狂批蓬佩奥 核心内容不敢提  "></a></p>
 <p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/26/a102926502.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/塞浦路斯护照吸引中国有钱人         >-009fcc?logoWidth=1" title="塞浦路斯护照吸引中国有钱人  " alt="塞浦路斯护照吸引中国有钱人  "></a></p>
 <p><a href="https://github.com/spaktb3504/djy/blob/master/gb/20/8/25/n12356273.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩陷健康危机？韩防长：金与正掌实权   >-009fcc?logoWidth=1" title="金正恩陷健康危机？韩防长：金与正掌实权  " alt="金正恩陷健康危机？韩防长：金与正掌实权  "></a></p>
 <p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/25/a102926206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020美共和党全代会首日 川普：终止依赖中>-009fcc?logoWidth=1" title="2020美共和党全代会首日 川普：终止依赖中国  " alt="2020美共和党全代会首日 川普：终止依赖中国  "></a></p>
@@ -262,9 +262,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://spaktb3504.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?wtads">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?wgqgy">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?exqvo">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?fndyz">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -308,8 +308,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?kuggh">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?woiay">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?onqvu">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?mqzap">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/spaktb3504/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/spaktb3504/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/spaktb3504/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/spaktb3504/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/spaktb3504/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/spaktb3504/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/spaktb3504/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/spaktb3504/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/n5555">git.io/n5555</a></div>
+<div align="center">短网址: <a href="https://git.io/yffff">git.io/yffff</a></div>
 
