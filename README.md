@@ -10,10 +10,11 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qebocj387/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qebocj387/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/zxxxx">git.io/zxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/cpp">x.co/cpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gxxxx">git.io/gxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aea">x.co/aea</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/qebocj387/ntdtv/blob/master/gb/2020/08/26/a102926420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:李克强抗内循环被贬 陆媒深夜狂批蓬佩奥>-009fcc?logoWidth=1" title="文昭:李克强抗内循环被贬 陆媒深夜狂批蓬佩奥为什么？  " alt="文昭:李克强抗内循环被贬 陆媒深夜狂批蓬佩奥为什么？  "></a></p>
 <p><a href="https://github.com/qebocj387/ntdtv/blob/master/gb/2020/08/25/a102926330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共敷衍边境谈判暗扩张 印度警告或采军事行动>-009fcc?logoWidth=1" title="中共敷衍边境谈判暗扩张 印度警告或采军事行动  " alt="中共敷衍边境谈判暗扩张 印度警告或采军事行动  "></a></p>
 <p><a href="https://github.com/qebocj387/ntdtv/blob/master/gb/2020/08/25/a102926292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美防长:美已准备好对抗中共 各国交往共军宜慎>-009fcc?logoWidth=1" title="美防长:美已准备好对抗中共 各国交往共军宜慎  " alt="美防长:美已准备好对抗中共 各国交往共军宜慎  "></a></p>
 <p><a href="https://github.com/qebocj387/ntdtv/blob/master/gb/2020/08/25/a102925951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新闻联播现“新中国联邦”旗/北京又一虎落马 >-009fcc?logoWidth=1" title="新闻联播现“新中国联邦”旗/北京又一虎落马  " alt="新闻联播现“新中国联邦”旗/北京又一虎落马  "></a></p>
@@ -38,12 +39,12 @@
 <p><a href="https://github.com/qebocj387/djy/blob/master/gb/20/8/25/n12356676.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港荷兰比利时二度染疫者 专家：无终身免疫 >-009fcc?logoWidth=1" title="香港荷兰比利时二度染疫者 专家：无终身免疫  " alt="香港荷兰比利时二度染疫者 专家：无终身免疫  "></a></p>
 <p><a href="https://github.com/qebocj387/djy/blob/master/gb/20/8/24/n12354614.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆过激防疫手段曝光 民众崩溃群吼视频流出 >-009fcc?logoWidth=1" title="新疆过激防疫手段曝光 民众崩溃群吼视频流出  " alt="新疆过激防疫手段曝光 民众崩溃群吼视频流出  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/qebocj387/ntdtv/blob/master/gb/2020/08/25/a102926079.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登再陷“中共傀儡”沼泽？幕僚注册为阿里巴巴>-009fcc?logoWidth=1" title="拜登再陷“中共傀儡”沼泽？幕僚注册为阿里巴巴说客  " alt="拜登再陷“中共傀儡”沼泽？幕僚注册为阿里巴巴说客  "></a></p>
+<p><a href="https://github.com/qebocj387/ntdtv/blob/master/gb/2020/08/25/a102925875.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄河遇最大洪峰 山东强拆54座浮桥(视频) >-009fcc?logoWidth=1" title="黄河遇最大洪峰 山东强拆54座浮桥(视频)  " alt="黄河遇最大洪峰 山东强拆54座浮桥(视频)  "></a></p>
 <p><a href="https://github.com/qebocj387/ntdtv/blob/master/gb/2020/08/25/a102925641.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强重庆勘灾 叹“里面都烂了，你看！”(视>-009fcc?logoWidth=1" title="李克强重庆勘灾 叹“里面都烂了，你看！”(视频)  " alt="李克强重庆勘灾 叹“里面都烂了，你看！”(视频)  "></a></p>
-<p><a href="https://github.com/qebocj387/ntdtv/blob/master/gb/2020/08/25/a102926241.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新华社三万字长文狂批蓬佩奥 核心内容不敢提 >-009fcc?logoWidth=1" title="新华社三万字长文狂批蓬佩奥 核心内容不敢提  " alt="新华社三万字长文狂批蓬佩奥 核心内容不敢提  "></a></p>
-<p><a href="https://github.com/qebocj387/ntdtv/blob/master/gb/2020/08/25/a102926269.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不明种子邮件来源现踪迹 疑部分为台湾共谍寄出>-009fcc?logoWidth=1" title="不明种子邮件来源现踪迹 疑部分为台湾共谍寄出  " alt="不明种子邮件来源现踪迹 疑部分为台湾共谍寄出  "></a></p>
 <p><a href="https://github.com/qebocj387/djy/blob/master/gb/20/8/25/n12355341.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政庇绿卡换护照 纽约中领馆逼签保证书    >-009fcc?logoWidth=1" title="政庇绿卡换护照 纽约中领馆逼签保证书  " alt="政庇绿卡换护照 纽约中领馆逼签保证书  "></a></p>
 <p><a href="https://github.com/qebocj387/djy/blob/master/gb/20/8/25/n12356643.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川民嘲讽公安“遗臭万年” 警察上门让删帖  >-009fcc?logoWidth=1" title="川民嘲讽公安“遗臭万年” 警察上门让删帖  " alt="川民嘲讽公安“遗臭万年” 警察上门让删帖  "></a></p>
-<p><a href="https://github.com/qebocj387/ntdtv/blob/master/gb/2020/08/25/a102926258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/收购TikTok难保安全 微软与中共关系受审>-009fcc?logoWidth=1" title="收购TikTok难保安全 微软与中共关系受审查  " alt="收购TikTok难保安全 微软与中共关系受审查  "></a></p>
+<p><a href="https://github.com/qebocj387/ntdtv/blob/master/gb/2020/08/25/a102926208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/荷兰比利时也现二次感染  专家：再感染恐成常>-009fcc?logoWidth=1" title="荷兰比利时也现二次感染  专家：再感染恐成常态  " alt="荷兰比利时也现二次感染  专家：再感染恐成常态  "></a></p>
 <p><a href="https://github.com/qebocj387/ntdtv/blob/master/gb/2020/08/25/a102926033.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共四海军演 台湾 小心内鬼        >-009fcc?logoWidth=1" title="中共四海军演 台湾 小心内鬼  " alt="中共四海军演 台湾 小心内鬼  "></a></p>
 <p><a href="https://github.com/qebocj387/djy/blob/master/gb/20/8/25/n12356886.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回应习近平讲话 美防长：美军已准备好    >-009fcc?logoWidth=1" title="回应习近平讲话 美防长：美军已准备好  " alt="回应习近平讲话 美防长：美军已准备好  "></a></p>
 <p><a href="https://github.com/qebocj387/djy/blob/master/gb/20/8/24/n12354397.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：北京大学副校长翦伯赞文革自杀之谜  >-009fcc?logoWidth=1" title="王友群：北京大学副校长翦伯赞文革自杀之谜  " alt="王友群：北京大学副校长翦伯赞文革自杀之谜  "></a></p>
@@ -259,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://qebocj387.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?hgukw">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?rbgzl">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?hlpvw">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?dlead">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ltggm">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?vcbda">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?rhttw">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?cuapk">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -416,12 +417,12 @@
 <p><strong>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年的腥风血雨，二十多年的凌辱折磨，岁月飞逝，历史见证，迫害善良原本就是违背道义不得民心的...</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;99年中共因法轮功修炼人数超过党员而疯狂镇压，不惜制造一个个谎言，导演天安门自焚案栽赃法轮功，对坚持信仰的学员绑架抄家，用尽酷刑，导致数以百万计的家破人亡、妻离子散！然而中共高估了自己的造假宣传。各国政府纷纷谴责中共暴行，高度肯定法轮功提升道德、净化心灵、强身健体的卓越成效。在国内，声援法轮功的事件此起彼伏。成千上万人为被非法抓捕的学员请愿，演绎了不畏强权反迫害的一幕又一幕。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年过去了。如今法轮功“真善忍”普世价值观，超越民族文化，洪传世界一百多个国家，仅台湾就有八十万人修炼，其主要著作被译成四十多种文字，举世赞誉！而中共江泽民却因罪恶迫害，在海内外被数百万人联署举报，被二十多万人实名起诉。在这场对善良打压中，中共把法制、道德伦理都推向崩溃边缘。民心丧尽、天怒人怨!人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/U3fG3s" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="https://is.gd/G65y4l" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
 </details>
 
 <div align="center">
 <img src="https://raw.githubusercontent.com/qebocj387/www/master/t/01.jpg">
-<h1><strong><a href="https://is.gd/U3fG3s" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
+<h1><strong><a href="https://is.gd/G65y4l" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/qebocj387/www/master/t/03.jpg"><br>
@@ -481,12 +482,12 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;于中共无所不在的欺骗洗脑与暴力胁迫下，有多少人放弃了诚实宽厚、仁爱谦和的道德底线，变得见风使舵、落井下石，甚至为一己之私而无恶不作。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;稍微盘点中共的罪恶，让人感到心情无比的沉重。了解了中共，才明白什么叫做罪恶滔天，罄竹难书。</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/U3fG3s" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://is.gd/G65y4l" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qebocj387/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qebocj387/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qebocj387/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qebocj387/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qebocj387/www/blob/master/README.md?h%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qebocj387/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qebocj387/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qebocj387/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qebocj387/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qebocj387/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/zxxxx">git.io/zxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/gxxxx">git.io/gxxxx</a></div>
 
