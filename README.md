@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/spaktb3504/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/spaktb3504/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jssss">git.io/jssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pxp">x.co/pxp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/n5555">git.io/n5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppz">x.co/ppz</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/26/a102926602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/更大风暴来临！中纪委点名批政法委和中宣部  >-009fcc?logoWidth=1" title="更大风暴来临！中纪委点名批政法委和中宣部  " alt="更大风暴来临！中纪委点名批政法委和中宣部  "></a></p>
 <p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/26/a102926556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武统台湾为何“不开第一枪”？专家揭中共两怕 >-009fcc?logoWidth=1" title="武统台湾为何“不开第一枪”？专家揭中共两怕  " alt="武统台湾为何“不开第一枪”？专家揭中共两怕  "></a></p>
 <p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/26/a102926508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罕见！习近平以个人名义开会 排除李克强   >-009fcc?logoWidth=1" title="罕见！习近平以个人名义开会 排除李克强  " alt="罕见！习近平以个人名义开会 排除李克强  "></a></p>
 <p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/26/a102926504.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国富豪悄悄移民 人大、政协名单曝光    >-009fcc?logoWidth=1" title="中国富豪悄悄移民 人大、政协名单曝光  " alt="中国富豪悄悄移民 人大、政协名单曝光  "></a></p>
 <p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/26/a102926486.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平9名“国师”曝光 学者讽武大郎开店  >-009fcc?logoWidth=1" title="习近平9名“国师”曝光 学者讽武大郎开店  " alt="习近平9名“国师”曝光 学者讽武大郎开店  "></a></p>
 <p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/26/a102926473.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共在多海域进行军演 专家：虚张声势    >-009fcc?logoWidth=1" title="中共在多海域进行军演 专家：虚张声势  " alt="中共在多海域进行军演 专家：虚张声势  "></a></p>
-<p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/26/a102926444.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅出访脸丢大了 各国“哪壶不开提哪壶”  >-009fcc?logoWidth=1" title="王毅出访脸丢大了 各国“哪壶不开提哪壶”  " alt="王毅出访脸丢大了 各国“哪壶不开提哪壶”  "></a></p>
+<p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/26/a102926623.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暴雨致洪灾 阿富汗首都北方30人罹难    >-009fcc?logoWidth=1" title="暴雨致洪灾 阿富汗首都北方30人罹难  " alt="暴雨致洪灾 阿富汗首都北方30人罹难  "></a></p>
 <p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/26/a102926566.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/足球震撼弹 梅西抛出终止与巴塞罗隆纳合约  >-009fcc?logoWidth=1" title="足球震撼弹 梅西抛出终止与巴塞罗隆纳合约  " alt="足球震撼弹 梅西抛出终止与巴塞罗隆纳合约  "></a></p>
 <p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/26/a102926575.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/非洲小国出土442克拉原钻 市值达1800万>-009fcc?logoWidth=1" title="非洲小国出土442克拉原钻 市值达1800万美元  " alt="非洲小国出土442克拉原钻 市值达1800万美元  "></a></p>
+<p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/26/a102926577.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法官非法庭审 枉判法轮功学员商兆香3年   >-009fcc?logoWidth=1" title="法官非法庭审 枉判法轮功学员商兆香3年  " alt="法官非法庭审 枉判法轮功学员商兆香3年  "></a></p>
 <p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/26/a102926555.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加州野火烧掉6个纽约市 夺走7命4人失踪  >-009fcc?logoWidth=1" title="加州野火烧掉6个纽约市 夺走7命4人失踪  " alt="加州野火烧掉6个纽约市 夺走7命4人失踪  "></a></p>
-<p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/26/a102926520.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普:中共如果武力攻台   北京知道我会做什>-009fcc?logoWidth=1" title="川普:中共如果武力攻台   北京知道我会做什么  " alt="川普:中共如果武力攻台   北京知道我会做什么  "></a></p>
-<p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/26/a102926507.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/医生全国大罢工 韩国政府下令立即复工    >-009fcc?logoWidth=1" title="医生全国大罢工 韩国政府下令立即复工  " alt="医生全国大罢工 韩国政府下令立即复工  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/spaktb3504/djy/blob/master/gb/20/8/26/n12358137.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平座谈会九经济智囊曝光 李克强被边缘化 >-009fcc?logoWidth=1" title="习近平座谈会九经济智囊曝光 李克强被边缘化  " alt="习近平座谈会九经济智囊曝光 李克强被边缘化  "></a></p>
 <p><a href="https://github.com/spaktb3504/djy/blob/master/gb/20/8/22/n12349700.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阿里云前高级技术员：美国净网倡议有必要   >-009fcc?logoWidth=1" title="阿里云前高级技术员：美国净网倡议有必要  " alt="阿里云前高级技术员：美国净网倡议有必要  "></a></p>
@@ -262,9 +262,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://spaktb3504.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?duans">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?wtads">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?olepx">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?exqvo">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -308,8 +308,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?heowo">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?spwru">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?kuggh">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?woiay">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/spaktb3504/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/spaktb3504/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/spaktb3504/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/spaktb3504/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/spaktb3504/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/spaktb3504/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/spaktb3504/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/spaktb3504/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jssss">git.io/jssss</a></div>
+<div align="center">短网址: <a href="https://git.io/n5555">git.io/n5555</a></div>
 
