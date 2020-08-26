@@ -10,14 +10,14 @@
 <div align="center">
 <a target="_blank" href="https://github.com/spaktb3504/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/spaktb3504/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/3aaaa">git.io/3aaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u33">x.co/u33</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yzzzz">git.io/yzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u33">x.co/u33</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/26/a102926556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武统台湾为何“不开第一枪”？专家揭中共两怕 >-009fcc?logoWidth=1" title="武统台湾为何“不开第一枪”？专家揭中共两怕  " alt="武统台湾为何“不开第一枪”？专家揭中共两怕  "></a></p>
 <p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/26/a102926508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罕见！习近平以个人名义开会 排除李克强   >-009fcc?logoWidth=1" title="罕见！习近平以个人名义开会 排除李克强  " alt="罕见！习近平以个人名义开会 排除李克强  "></a></p>
 <p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/26/a102926504.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国富豪悄悄移民 人大、政协名单曝光    >-009fcc?logoWidth=1" title="中国富豪悄悄移民 人大、政协名单曝光  " alt="中国富豪悄悄移民 人大、政协名单曝光  "></a></p>
-<p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/26/a102926486.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平9名“国师”曝光 学者讽：五大郎开店 >-009fcc?logoWidth=1" title="习近平9名“国师”曝光 学者讽：五大郎开店  " alt="习近平9名“国师”曝光 学者讽：五大郎开店  "></a></p>
+<p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/26/a102926486.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平9名“国师”曝光 学者讽武大郎开店  >-009fcc?logoWidth=1" title="习近平9名“国师”曝光 学者讽武大郎开店  " alt="习近平9名“国师”曝光 学者讽武大郎开店  "></a></p>
 <p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/26/a102926473.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共在多海域进行军演 专家：虚张声势    >-009fcc?logoWidth=1" title="中共在多海域进行军演 专家：虚张声势  " alt="中共在多海域进行军演 专家：虚张声势  "></a></p>
 <p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/26/a102926444.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅出访脸丢大了 各国“哪壶不开提哪壶”  >-009fcc?logoWidth=1" title="王毅出访脸丢大了 各国“哪壶不开提哪壶”  " alt="王毅出访脸丢大了 各国“哪壶不开提哪壶”  "></a></p>
 <p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/26/a102926555.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加州野火烧掉6个纽约市 夺走7命4人失踪  >-009fcc?logoWidth=1" title="加州野火烧掉6个纽约市 夺走7命4人失踪  " alt="加州野火烧掉6个纽约市 夺走7命4人失踪  "></a></p>
@@ -48,8 +48,8 @@
 <p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/25/a102925675.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新闻联播现“新中国联邦旗” 网友：央视有战友>-009fcc?logoWidth=1" title="新闻联播现“新中国联邦旗” 网友：央视有战友啊！  " alt="新闻联播现“新中国联邦旗” 网友：央视有战友啊！  "></a></p>
 <p><a href="https://github.com/spaktb3504/djy/blob/master/gb/20/8/25/n12357023.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020美国大选 川普会赢多少票      >-009fcc?logoWidth=1" title="2020美国大选 川普会赢多少票  " alt="2020美国大选 川普会赢多少票  "></a></p>
 <p><a href="https://github.com/spaktb3504/djy/blob/master/gb/20/8/25/n12356419.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中贸谈触红线？中共4海军演遭呛      >-009fcc?logoWidth=1" title="美中贸谈触红线？中共4海军演遭呛  " alt="美中贸谈触红线？中共4海军演遭呛  "></a></p>
-<p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/24/a102925393.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前国会议长：川普会成功连任 巨大胜利将远超预>-009fcc?logoWidth=1" title="前国会议长：川普会成功连任 巨大胜利将远超预期  " alt="前国会议长：川普会成功连任 巨大胜利将远超预期  "></a></p>
 <p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/25/a102926068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国人再次震惊韩国社会 让韩国人如何瞧得起中>-009fcc?logoWidth=1" title="中国人再次震惊韩国社会 让韩国人如何瞧得起中国人？  " alt="中国人再次震惊韩国社会 让韩国人如何瞧得起中国人？  "></a></p>
+<p><a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/2020/08/25/a102925641.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强重庆勘灾 叹“里面都烂了，你看！”(视>-009fcc?logoWidth=1" title="李克强重庆勘灾 叹“里面都烂了，你看！”(视频)  " alt="李克强重庆勘灾 叹“里面都烂了，你看！”(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -261,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://spaktb3504.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?sgbfq">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?klsrs">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?zxehn">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?uxudx">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?nondb">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?uhmsj">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?mpwix">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?qbvwc">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/spaktb3504/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/spaktb3504/www/master/index.html?n">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/spaktb3504/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/spaktb3504/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/spaktb3504/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/spaktb3504/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/spaktb3504/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/spaktb3504/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/spaktb3504/www/blob/master/README.md?u%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/3aaaa">git.io/3aaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/yzzzz">git.io/yzzzz</a></div>
 
