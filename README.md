@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/vtfrag334/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/vtfrag334/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/sssss">git.io/sssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9944">x.co/9944</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aaaaaa">git.io/aaaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2777">x.co/2777</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -41,15 +41,14 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/vtfrag334/djy/blob/master/gb/20/8/26/n12360071.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：为何又一批中共政法官员厄运临头？%3F%3F>-009fcc?logoWidth=1" title="王友群：为何又一批中共政法官员厄运临头？??  " alt="王友群：为何又一批中共政法官员厄运临头？??  "></a></p>
 <p><a href="https://github.com/vtfrag334/ntdtv/blob/master/gb/2020/08/27/a102927523.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传12名香港抗争者偷渡台湾失败 遭中共海警扣>-009fcc?logoWidth=1" title="传12名香港抗争者偷渡台湾失败 遭中共海警扣押  " alt="传12名香港抗争者偷渡台湾失败 遭中共海警扣押  "></a></p>
-<p><a href="https://github.com/vtfrag334/ntdtv/blob/master/gb/2020/08/27/a102927545.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军步步紧逼 U--2闯入共军演习禁区    >-009fcc?logoWidth=1" title="美军步步紧逼 U-2闯入共军演习禁区  " alt="美军步步紧逼 U-2闯入共军演习禁区  "></a></p>
 <p><a href="https://github.com/vtfrag334/ntdtv/blob/master/gb/2020/08/27/a102927388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微信被封号 21岁用户从腾讯公司11楼跳楼身>-009fcc?logoWidth=1" title="微信被封号 21岁用户从腾讯公司11楼跳楼身亡  " alt="微信被封号 21岁用户从腾讯公司11楼跳楼身亡  "></a></p>
-<p><a href="https://github.com/vtfrag334/djy/blob/master/gb/20/8/23/n12352151.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/清朝官场惊魂奇闻 原是前世埋下祸根     >-009fcc?logoWidth=1" title="清朝官场惊魂奇闻 原是前世埋下祸根  " alt="清朝官场惊魂奇闻 原是前世埋下祸根  "></a></p>
-<p><a href="https://github.com/vtfrag334/djy/blob/master/gb/20/8/26/n12359559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/光盘运动怪招频现 天津“女版盒饭”惹议   >-009fcc?logoWidth=1" title="光盘运动怪招频现 天津“女版盒饭”惹议  " alt="光盘运动怪招频现 天津“女版盒饭”惹议  "></a></p>
 <p><a href="https://github.com/vtfrag334/ntdtv/blob/master/gb/2020/08/26/a102926817.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英预言家2020下半年大预言        >-009fcc?logoWidth=1" title="英预言家2020下半年大预言  " alt="英预言家2020下半年大预言  "></a></p>
+<p><a href="https://github.com/vtfrag334/djy/blob/master/gb/20/8/23/n12352151.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/清朝官场惊魂奇闻 原是前世埋下祸根     >-009fcc?logoWidth=1" title="清朝官场惊魂奇闻 原是前世埋下祸根  " alt="清朝官场惊魂奇闻 原是前世埋下祸根  "></a></p>
 <p><a href="https://github.com/vtfrag334/ntdtv/blob/master/gb/2020/08/26/a102926638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国预言家：中国将爆发大骚乱 多地大地震  >-009fcc?logoWidth=1" title="英国预言家：中国将爆发大骚乱 多地大地震  " alt="英国预言家：中国将爆发大骚乱 多地大地震  "></a></p>
-<p><a href="https://github.com/vtfrag334/djy/blob/master/gb/20/8/26/n12359268.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逃美前副市长曝中共官场黑暗 一次旅游花百万 >-009fcc?logoWidth=1" title="逃美前副市长曝中共官场黑暗 一次旅游花百万  " alt="逃美前副市长曝中共官场黑暗 一次旅游花百万  "></a></p>
-<p><a href="https://github.com/vtfrag334/djy/blob/master/gb/20/8/27/n12361073.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/掸封尘：美国最富总统PK中共最“富”总书记 >-009fcc?logoWidth=1" title="掸封尘：美国最富总统PK中共最“富”总书记  " alt="掸封尘：美国最富总统PK中共最“富”总书记  "></a></p>
 <p><a href="https://github.com/vtfrag334/ntdtv/blob/master/gb/2020/08/27/a102927426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胃癌大多是吃出来的！少碰3种食物 不让癌上身>-009fcc?logoWidth=1" title="胃癌大多是吃出来的！少碰3种食物 不让癌上身  " alt="胃癌大多是吃出来的！少碰3种食物 不让癌上身  "></a></p>
+<p><a href="https://github.com/vtfrag334/djy/blob/master/gb/20/8/26/n12359559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/光盘运动怪招频现 天津“女版盒饭”惹议   >-009fcc?logoWidth=1" title="光盘运动怪招频现 天津“女版盒饭”惹议  " alt="光盘运动怪招频现 天津“女版盒饭”惹议  "></a></p>
+<p><a href="https://github.com/vtfrag334/djy/blob/master/gb/20/8/26/n12359268.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逃美前副市长曝中共官场黑暗 一次旅游花百万 >-009fcc?logoWidth=1" title="逃美前副市长曝中共官场黑暗 一次旅游花百万  " alt="逃美前副市长曝中共官场黑暗 一次旅游花百万  "></a></p>
+<p><a href="https://github.com/vtfrag334/ntdtv/blob/master/gb/2020/08/27/a102927545.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军步步紧逼 U--2闯入共军演习禁区    >-009fcc?logoWidth=1" title="美军步步紧逼 U-2闯入共军演习禁区  " alt="美军步步紧逼 U-2闯入共军演习禁区  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -261,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://vtfrag334.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?lgnkn">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?khiwz">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?nddff">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?cbdft">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?pscky">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?cqtwp">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?dfdig">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?mnhrs">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/vtfrag334/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vtfrag334/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/vtfrag334/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vtfrag334/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vtfrag334/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/vtfrag334/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vtfrag334/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/vtfrag334/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vtfrag334/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vtfrag334/www/blob/master/README.md?a%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/sssss">git.io/sssss</a></div>
+<div align="center">短网址: <a href="https://git.io/aaaaaa">git.io/aaaaaa</a></div>
 
