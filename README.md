@@ -10,46 +10,44 @@
 <div align="center">
 <a target="_blank" href="https://github.com/oaxdni3756/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/oaxdni3756/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pyyyy">git.io/pyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp6">x.co/pp6</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/sgggg">git.io/sgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aea">x.co/aea</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/oaxdni3756/ntdtv/blob/master/gb/2020/08/27/a102927415.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王岐山隐身逾两月 其国民党军官父亲家世曝光 >-009fcc?logoWidth=1" title="王岐山隐身逾两月 其国民党军官父亲家世曝光  " alt="王岐山隐身逾两月 其国民党军官父亲家世曝光  "></a></p>
 <p><a href="https://github.com/oaxdni3756/ntdtv/blob/master/gb/2020/08/27/a102927381.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传朝鲜大权易主 金正恩生死成谜       >-009fcc?logoWidth=1" title="传朝鲜大权易主 金正恩生死成谜  " alt="传朝鲜大权易主 金正恩生死成谜  "></a></p>
-<p><a href="https://github.com/oaxdni3756/ntdtv/blob/master/gb/2020/08/27/a102927372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/秦岭别墅案揭秘：各级官员糊弄习 案件屡查不绝>-009fcc?logoWidth=1" title="秦岭别墅案揭秘：各级官员糊弄习 案件屡查不绝  " alt="秦岭别墅案揭秘：各级官员糊弄习 案件屡查不绝  "></a></p>
 <p><a href="https://github.com/oaxdni3756/ntdtv/blob/master/gb/2020/08/27/a102927318.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习接掌国务院“刀把子” 授旗式不见李克强  >-009fcc?logoWidth=1" title="习接掌国务院“刀把子” 授旗式不见李克强  " alt="习接掌国务院“刀把子” 授旗式不见李克强  "></a></p>
+<p><a href="https://github.com/oaxdni3756/ntdtv/blob/master/gb/2020/08/27/a102927329.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平恢复党主席头衔？李克强已被边缘化   >-009fcc?logoWidth=1" title="习近平恢复党主席头衔？李克强已被边缘化  " alt="习近平恢复党主席头衔？李克强已被边缘化  "></a></p>
 <p><a href="https://github.com/oaxdni3756/ntdtv/blob/master/gb/2020/08/27/a102927263.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京气氛诡异：王岐山避不出山 中南海闭门谢客>-009fcc?logoWidth=1" title="北京气氛诡异：王岐山避不出山 中南海闭门谢客  " alt="北京气氛诡异：王岐山避不出山 中南海闭门谢客  "></a></p>
-<p><a href="https://github.com/oaxdni3756/ntdtv/blob/master/gb/2020/08/27/a102927254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前鸡西市副市长出逃美国：像蔡霞一样的人挺多 >-009fcc?logoWidth=1" title="前鸡西市副市长出逃美国：像蔡霞一样的人挺多  " alt="前鸡西市副市长出逃美国：像蔡霞一样的人挺多  "></a></p>
 <p><a href="https://github.com/oaxdni3756/ntdtv/blob/master/gb/2020/08/27/a102927192.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:U--2是引中共开火的饵？习近平对美军“>-009fcc?logoWidth=1" title="文昭:U-2是引中共开火的饵？习近平对美军“准备好了”没理解  " alt="文昭:U-2是引中共开火的饵？习近平对美军“准备好了”没理解  "></a></p>
+<p><a href="https://github.com/oaxdni3756/ntdtv/blob/master/gb/2020/08/27/a102927523.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传12名香港抗争者偷渡台湾失败 遭中共海警扣>-009fcc?logoWidth=1" title="传12名香港抗争者偷渡台湾失败 遭中共海警扣押  " alt="传12名香港抗争者偷渡台湾失败 遭中共海警扣押  "></a></p>
 <p><a href="https://github.com/oaxdni3756/ntdtv/blob/master/gb/2020/08/27/a102927483.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共权贵富商大逃亡：没人想跟习近平一起疯  >-009fcc?logoWidth=1" title="中共权贵富商大逃亡：没人想跟习近平一起疯  " alt="中共权贵富商大逃亡：没人想跟习近平一起疯  "></a></p>
 <p><a href="https://github.com/oaxdni3756/ntdtv/blob/master/gb/2020/08/27/a102927477.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国节俭怪招频现 天津“女版盒饭”减量不减价>-009fcc?logoWidth=1" title="中国节俭怪招频现 天津“女版盒饭”减量不减价  " alt="中国节俭怪招频现 天津“女版盒饭”减量不减价  "></a></p>
-<p><a href="https://github.com/oaxdni3756/ntdtv/blob/master/gb/2020/08/27/a102927473.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国第一夫人诠释四重角色 支持川普连任   >-009fcc?logoWidth=1" title="美国第一夫人诠释四重角色 支持川普连任  " alt="美国第一夫人诠释四重角色 支持川普连任  "></a></p>
 <p><a href="https://github.com/oaxdni3756/ntdtv/blob/master/gb/2020/08/27/a102927472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上任不满3个月 TikTok执行长离职   >-009fcc?logoWidth=1" title="上任不满3个月 TikTok执行长离职  " alt="上任不满3个月 TikTok执行长离职  "></a></p>
 <p><a href="https://github.com/oaxdni3756/ntdtv/blob/master/gb/2020/08/27/a102927445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4级飓风萝拉恐掀暴潮 德州州长：让人存活不了>-009fcc?logoWidth=1" title="4级飓风萝拉恐掀暴潮 德州州长：让人存活不了快疏散  " alt="4级飓风萝拉恐掀暴潮 德州州长：让人存活不了快疏散  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/oaxdni3756/djy/blob/master/gb/20/8/26/n12359708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共南海射导弹 美防长回应习近平      >-009fcc?logoWidth=1" title="中共南海射导弹 美防长回应习近平  " alt="中共南海射导弹 美防长回应习近平  "></a></p>
 <p><a href="https://github.com/oaxdni3756/djy/blob/master/gb/20/8/26/n12359211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁24家中共国企 对若干高管限制签证  >-009fcc?logoWidth=1" title="美制裁24家中共国企 对若干高管限制签证  " alt="美制裁24家中共国企 对若干高管限制签证  "></a></p>
 <p><a href="https://github.com/oaxdni3756/djy/blob/master/gb/20/8/27/n12360085.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共认怂 称美国可审计任何一家国企     >-009fcc?logoWidth=1" title="中共认怂 称美国可审计任何一家国企  " alt="中共认怂 称美国可审计任何一家国企  "></a></p>
+<p><a href="https://github.com/oaxdni3756/djy/blob/master/gb/20/8/27/n12360599.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杜绝粮食浪费？ 北京媒体暗访餐厅报导翻车  >-009fcc?logoWidth=1" title="杜绝粮食浪费？ 北京媒体暗访餐厅报导翻车  " alt="杜绝粮食浪费？ 北京媒体暗访餐厅报导翻车  "></a></p>
 <p><a href="https://github.com/oaxdni3756/djy/blob/master/gb/20/8/26/n12359229.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞：美应加大制裁 贸易战撼动中共极权统治 >-009fcc?logoWidth=1" title="蔡霞：美应加大制裁 贸易战撼动中共极权统治  " alt="蔡霞：美应加大制裁 贸易战撼动中共极权统治  "></a></p>
-<p><a href="https://github.com/oaxdni3756/djy/blob/master/gb/20/8/26/n12358137.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平座谈会九经济智囊曝光 李克强被边缘化 >-009fcc?logoWidth=1" title="习近平座谈会九经济智囊曝光 李克强被边缘化  " alt="习近平座谈会九经济智囊曝光 李克强被边缘化  "></a></p>
 <p><a href="https://github.com/oaxdni3756/djy/blob/master/gb/20/8/26/n12359650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乌鲁木齐住户开个门缝都被抓         >-009fcc?logoWidth=1" title="乌鲁木齐住户开个门缝都被抓  " alt="乌鲁木齐住户开个门缝都被抓  "></a></p>
-<p><a href="https://github.com/oaxdni3756/djy/blob/master/gb/20/8/26/n12357708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：国际抗共大潮起 华人感谢法轮功    >-009fcc?logoWidth=1" title="田云：国际抗共大潮起 华人感谢法轮功  " alt="田云：国际抗共大潮起 华人感谢法轮功  "></a></p>
+<p><a href="https://github.com/oaxdni3756/djy/blob/master/gb/20/8/26/n12359559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/光盘运动怪招频现 天津“女版盒饭”惹议   >-009fcc?logoWidth=1" title="光盘运动怪招频现 天津“女版盒饭”惹议  " alt="光盘运动怪招频现 天津“女版盒饭”惹议  "></a></p>
 <p><a href="https://github.com/oaxdni3756/djy/blob/master/gb/20/8/26/n12357508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大疫下 触目惊心的全国绑架案        >-009fcc?logoWidth=1" title="大疫下 触目惊心的全国绑架案  " alt="大疫下 触目惊心的全国绑架案  "></a></p>
 <p><a href="https://github.com/oaxdni3756/djy/blob/master/gb/20/8/26/n12360071.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：为何又一批中共政法官员厄运临头？%3F >-009fcc?logoWidth=1" title="王友群：为何又一批中共政法官员厄运临头？?  " alt="王友群：为何又一批中共政法官员厄运临头？?  "></a></p>
+<p><a href="https://github.com/oaxdni3756/djy/blob/master/gb/20/8/26/n12357708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：国际抗共大潮起 华人感谢法轮功    >-009fcc?logoWidth=1" title="田云：国际抗共大潮起 华人感谢法轮功  " alt="田云：国际抗共大潮起 华人感谢法轮功  "></a></p>
 <p><a href="https://github.com/oaxdni3756/djy/blob/master/gb/20/8/27/n12360407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习召开经济会议 李克强未列席        >-009fcc?logoWidth=1" title="习召开经济会议 李克强未列席  " alt="习召开经济会议 李克强未列席  "></a></p>
-<p><a href="https://github.com/oaxdni3756/djy/blob/master/gb/20/8/27/n12360599.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杜绝粮食浪费？ 北京媒体暗访餐厅报导翻车  >-009fcc?logoWidth=1" title="杜绝粮食浪费？ 北京媒体暗访餐厅报导翻车  " alt="杜绝粮食浪费？ 北京媒体暗访餐厅报导翻车  "></a></p>
-<p><a href="https://github.com/oaxdni3756/djy/blob/master/gb/20/8/27/n12360857.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强接连缺席两个重要场合 引外界关注   >-009fcc?logoWidth=1" title="李克强接连缺席两个重要场合 引外界关注  " alt="李克强接连缺席两个重要场合 引外界关注  "></a></p>
+<p><a href="https://github.com/oaxdni3756/djy/blob/master/gb/20/8/26/n12357559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/百官糊弄习 秦岭办整改报告揭秘       >-009fcc?logoWidth=1" title="百官糊弄习 秦岭办整改报告揭秘  " alt="百官糊弄习 秦岭办整改报告揭秘  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/oaxdni3756/djy/blob/master/gb/20/8/26/n12360071.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：为何又一批中共政法官员厄运临头？%3F%3F>-009fcc?logoWidth=1" title="王友群：为何又一批中共政法官员厄运临头？??  " alt="王友群：为何又一批中共政法官员厄运临头？??  "></a></p>
-<p><a href="https://github.com/oaxdni3756/ntdtv/blob/master/gb/2020/08/23/a102924362.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共试剂又出大包 瑞典3700人伪阳性   >-009fcc?logoWidth=1" title="中共试剂又出大包 瑞典3700人伪阳性  " alt="中共试剂又出大包 瑞典3700人伪阳性  "></a></p>
-<p><a href="https://github.com/oaxdni3756/djy/blob/master/gb/20/8/26/n12357559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/百官糊弄习 秦岭办整改报告揭秘       >-009fcc?logoWidth=1" title="百官糊弄习 秦岭办整改报告揭秘  " alt="百官糊弄习 秦岭办整改报告揭秘  "></a></p>
 <p><a href="https://github.com/oaxdni3756/djy/blob/master/gb/20/8/26/n12359268.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逃美前副市长曝中共官场黑暗 一次旅游花百万 >-009fcc?logoWidth=1" title="逃美前副市长曝中共官场黑暗 一次旅游花百万  " alt="逃美前副市长曝中共官场黑暗 一次旅游花百万  "></a></p>
+<p><a href="https://github.com/oaxdni3756/ntdtv/blob/master/gb/2020/08/23/a102924362.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共试剂又出大包 瑞典3700人伪阳性   >-009fcc?logoWidth=1" title="中共试剂又出大包 瑞典3700人伪阳性  " alt="中共试剂又出大包 瑞典3700人伪阳性  "></a></p>
 <p><a href="https://github.com/oaxdni3756/ntdtv/blob/master/gb/2020/08/26/a102926602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/更大风暴来临！中纪委点名批政法委和中宣部  >-009fcc?logoWidth=1" title="更大风暴来临！中纪委点名批政法委和中宣部  " alt="更大风暴来临！中纪委点名批政法委和中宣部  "></a></p>
 <p><a href="https://github.com/oaxdni3756/ntdtv/blob/master/gb/2020/08/26/a102926638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国预言家：中国将爆发大骚乱 多地大地震  >-009fcc?logoWidth=1" title="英国预言家：中国将爆发大骚乱 多地大地震  " alt="英国预言家：中国将爆发大骚乱 多地大地震  "></a></p>
-<p><a href="https://github.com/oaxdni3756/djy/blob/master/gb/20/8/26/n12359559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/光盘运动怪招频现 天津“女版盒饭”惹议   >-009fcc?logoWidth=1" title="光盘运动怪招频现 天津“女版盒饭”惹议  " alt="光盘运动怪招频现 天津“女版盒饭”惹议  "></a></p>
+<p><a href="https://github.com/oaxdni3756/djy/blob/master/gb/20/8/27/n12360857.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强接连缺席两个重要场合 引外界关注   >-009fcc?logoWidth=1" title="李克强接连缺席两个重要场合 引外界关注  " alt="李克强接连缺席两个重要场合 引外界关注  "></a></p>
+<p><a href="https://github.com/oaxdni3756/djy/blob/master/gb/20/8/26/n12359252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山东13名男生轮奸初二女生 爆料人传被喝茶 >-009fcc?logoWidth=1" title="山东13名男生轮奸初二女生 爆料人传被喝茶  " alt="山东13名男生轮奸初二女生 爆料人传被喝茶  "></a></p>
 <p><a href="https://github.com/oaxdni3756/ntdtv/blob/master/gb/2020/08/26/a102926508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罕见！习近平以个人名义开会 排除李克强   >-009fcc?logoWidth=1" title="罕见！习近平以个人名义开会 排除李克强  " alt="罕见！习近平以个人名义开会 排除李克强  "></a></p>
 <p><a href="https://github.com/oaxdni3756/ntdtv/blob/master/gb/2020/08/26/a102926817.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英预言家2020下半年大预言        >-009fcc?logoWidth=1" title="英预言家2020下半年大预言  " alt="英预言家2020下半年大预言  "></a></p>
-<p><a href="https://github.com/oaxdni3756/djy/blob/master/gb/20/8/26/n12359252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山东13名男生轮奸初二女生 爆料人传被喝茶 >-009fcc?logoWidth=1" title="山东13名男生轮奸初二女生 爆料人传被喝茶  " alt="山东13名男生轮奸初二女生 爆料人传被喝茶  "></a></p>
-<p><a href="https://github.com/oaxdni3756/ntdtv/blob/master/gb/2020/08/26/a102927056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共抗议美U--2军机闯演习区 美呛:正常飞行>-009fcc?logoWidth=1" title="中共抗议美U-2军机闯演习区 美呛:正常飞行以后继续  " alt="中共抗议美U-2军机闯演习区 美呛:正常飞行以后继续  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -261,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://oaxdni3756.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?bgvdt">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?vnrbm">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?emzzw">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?sdgcu">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?bztzn">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?kfyjf">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ckksh">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ljyxj">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/oaxdni3756/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/oaxdni3756/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/oaxdni3756/www/master/index.html?e">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/oaxdni3756/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/oaxdni3756/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/oaxdni3756/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/oaxdni3756/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/oaxdni3756/www/master/index.html?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/oaxdni3756/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/oaxdni3756/www/blob/master/README.md?z%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/pyyyy">git.io/pyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/sgggg">git.io/sgggg</a></div>
 
