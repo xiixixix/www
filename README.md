@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nhrsoo370/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nhrsoo370/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ydddd">git.io/ydddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/iaa">x.co/iaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/xrrrr">git.io/xrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j88">x.co/j88</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,7 +20,7 @@
 <p><a href="https://github.com/nhrsoo370/ntdtv/blob/master/gb/2020/08/26/a102927047.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“巴威”发威多地变汪洋 登陆辽宁创最强记录 >-009fcc?logoWidth=1" title="“巴威”发威多地变汪洋 登陆辽宁创最强记录  " alt="“巴威”发威多地变汪洋 登陆辽宁创最强记录  "></a></p>
 <p><a href="https://github.com/nhrsoo370/ntdtv/blob/master/gb/2020/08/27/a102927415.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王岐山隐身逾两月 其国民党军官父亲家世曝光 >-009fcc?logoWidth=1" title="王岐山隐身逾两月 其国民党军官父亲家世曝光  " alt="王岐山隐身逾两月 其国民党军官父亲家世曝光  "></a></p>
 <p><a href="https://github.com/nhrsoo370/ntdtv/blob/master/gb/2020/08/27/a102927381.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传朝鲜大权易主 金正恩生死成谜       >-009fcc?logoWidth=1" title="传朝鲜大权易主 金正恩生死成谜  " alt="传朝鲜大权易主 金正恩生死成谜  "></a></p>
-<p><a href="https://github.com/nhrsoo370/ntdtv/blob/master/gb/2020/08/27/a102927835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阎丽梦：中国新冠疫苗接种者很多出现严重副作用>-009fcc?logoWidth=1" title="阎丽梦：中国新冠疫苗接种者很多出现严重副作用  " alt="阎丽梦：中国新冠疫苗接种者很多出现严重副作用  "></a></p>
+<p><a href="https://github.com/nhrsoo370/ntdtv/blob/master/gb/2020/08/27/a102927835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阎丽梦：中共病毒疫苗中国接种者很多出现严重副>-009fcc?logoWidth=1" title="阎丽梦：中共病毒疫苗中国接种者很多出现严重副作用  " alt="阎丽梦：中共病毒疫苗中国接种者很多出现严重副作用  "></a></p>
 <p><a href="https://github.com/nhrsoo370/ntdtv/blob/master/gb/2020/08/23/a102924362.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共加大审查封堵 疫情至今共封关键字逾200>-009fcc?logoWidth=1" title="中共加大审查封堵 疫情至今共封关键字逾2000  " alt="中共加大审查封堵 疫情至今共封关键字逾2000  "></a></p>
 <p><a href="https://github.com/nhrsoo370/ntdtv/blob/master/gb/2020/08/27/a102927870.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/特斯拉接受中共贷款 Space X或失去NA>-009fcc?logoWidth=1" title="特斯拉接受中共贷款 Space X或失去NASA合同  " alt="特斯拉接受中共贷款 Space X或失去NASA合同  "></a></p>
 <p><a href="https://github.com/nhrsoo370/ntdtv/blob/master/gb/2020/08/27/a102927908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共监狱奴工产业 人“像牲畜一样干活”   >-009fcc?logoWidth=1" title="中共监狱奴工产业 人“像牲畜一样干活”  " alt="中共监狱奴工产业 人“像牲畜一样干活”  "></a></p>
@@ -261,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://nhrsoo370.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?gcaro">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?umeeu">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ysncv">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?uvxql">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?zahfb">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?lebnv">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?jubxi">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?nxtij">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nhrsoo370/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nhrsoo370/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nhrsoo370/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nhrsoo370/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nhrsoo370/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nhrsoo370/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nhrsoo370/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nhrsoo370/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nhrsoo370/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nhrsoo370/www/blob/master/README.md?q%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ydddd">git.io/ydddd</a></div>
+<div align="center">短网址: <a href="https://git.io/xrrrr">git.io/xrrrr</a></div>
 
