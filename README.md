@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qrykyq3445/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qrykyq3445/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f9999">git.io/f9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/sdd">x.co/sdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gdddd">git.io/gdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aay">x.co/aay</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/qrykyq3445/ntdtv/blob/master/gb/2020/08/28/a102928141.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军2款先进飞弹 反制中共东风导弹     >-009fcc?logoWidth=1" title="美军2款先进飞弹 反制中共东风导弹  " alt="美军2款先进飞弹 反制中共东风导弹  "></a></p>
 <p><a href="https://github.com/qrykyq3445/ntdtv/blob/master/gb/2020/08/28/a102928572.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“黑命贵”白宫外围攻与会者 参议员感谢警察救>-009fcc?logoWidth=1" title="“黑命贵”白宫外围攻与会者 参议员感谢警察救命  " alt="“黑命贵”白宫外围攻与会者 参议员感谢警察救命  "></a></p>
 <p><a href="https://github.com/qrykyq3445/ntdtv/blob/master/gb/2020/08/28/a102928531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情中听闻避难信息 纽约女子感动而泣    >-009fcc?logoWidth=1" title="疫情中听闻避难信息 纽约女子感动而泣  " alt="疫情中听闻避难信息 纽约女子感动而泣  "></a></p>
+<p><a href="https://github.com/qrykyq3445/ntdtv/blob/master/gb/2020/08/28/a102928525.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/共和党大会第四天  科顿：对抗中共 拜登和川>-009fcc?logoWidth=1" title="共和党大会第四天  科顿：对抗中共 拜登和川普没法比  " alt="共和党大会第四天  科顿：对抗中共 拜登和川普没法比  "></a></p>
 <p><a href="https://github.com/qrykyq3445/ntdtv/blob/master/gb/2020/08/28/a102928502.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国掀逃亡潮 巴尔干半岛成低端人口首选地  >-009fcc?logoWidth=1" title="中国掀逃亡潮 巴尔干半岛成低端人口首选地  " alt="中国掀逃亡潮 巴尔干半岛成低端人口首选地  "></a></p>
 <p><a href="https://github.com/qrykyq3445/ntdtv/blob/master/gb/2020/08/28/a102928292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫汇编记者档案 严厉打击报导川普假新闻  >-009fcc?logoWidth=1" title="白宫汇编记者档案 严厉打击报导川普假新闻  " alt="白宫汇编记者档案 严厉打击报导川普假新闻  "></a></p>
-<p><a href="https://github.com/qrykyq3445/ntdtv/blob/master/gb/2020/08/28/a102928507.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/历经野火肆虐 蒙特利县居民协力走出阴霾   >-009fcc?logoWidth=1" title="历经野火肆虐 蒙特利县居民协力走出阴霾  " alt="历经野火肆虐 蒙特利县居民协力走出阴霾  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qrykyq3445/djy/blob/master/gb/20/8/28/n12362868.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：习近平夺刀把子 曾庆红另类反扑   >-009fcc?logoWidth=1" title="李正宽：习近平夺刀把子 曾庆红另类反扑  " alt="李正宽：习近平夺刀把子 曾庆红另类反扑  "></a></p>
 <p><a href="https://github.com/qrykyq3445/djy/blob/master/gb/20/8/28/n12363549.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本首相安倍晋三宣布辞职          >-009fcc?logoWidth=1" title="日本首相安倍晋三宣布辞职  " alt="日本首相安倍晋三宣布辞职  "></a></p>
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://qrykyq3445.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?cwdmo">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?boich">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?zrpfo">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ipmvy">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?dadoi">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?phanz">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?kolmi">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?jbudc">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/qrykyq3445/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qrykyq3445/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qrykyq3445/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qrykyq3445/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qrykyq3445/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/qrykyq3445/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qrykyq3445/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qrykyq3445/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qrykyq3445/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qrykyq3445/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/f9999">git.io/f9999</a></div>
+<div align="center">短网址: <a href="https://git.io/gdddd">git.io/gdddd</a></div>
 
