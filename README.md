@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nhrsoo370/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nhrsoo370/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/xffff">git.io/xffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pxp">x.co/pxp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/i7777">git.io/i7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j44">x.co/j44</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/nhrsoo370/ntdtv/blob/master/gb/2020/08/28/a102928061.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京上空惊现“手指”云 网友联想李克强伸中指>-009fcc?logoWidth=1" title="北京上空惊现“手指”云 网友联想李克强伸中指  " alt="北京上空惊现“手指”云 网友联想李克强伸中指  "></a></p>
 <p><a href="https://github.com/nhrsoo370/ntdtv/blob/master/gb/2020/08/28/a102928014.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅访欧遭连环抗议 民众高喊“打倒共产党” >-009fcc?logoWidth=1" title="王毅访欧遭连环抗议 民众高喊“打倒共产党”  " alt="王毅访欧遭连环抗议 民众高喊“打倒共产党”  "></a></p>
 <p><a href="https://github.com/nhrsoo370/ntdtv/blob/master/gb/2020/08/28/a102928016.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美暗助习近平？ 专家：他能“一手搞垮中共” >-009fcc?logoWidth=1" title="美暗助习近平？ 专家：他能“一手搞垮中共”  " alt="美暗助习近平？ 专家：他能“一手搞垮中共”  "></a></p>
 <p><a href="https://github.com/nhrsoo370/ntdtv/blob/master/gb/2020/08/27/a102927842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共向南海射导弹 美军舰次日直闯西沙“禁区”>-009fcc?logoWidth=1" title="中共向南海射导弹 美军舰次日直闯西沙“禁区”  " alt="中共向南海射导弹 美军舰次日直闯西沙“禁区”  "></a></p>
 <p><a href="https://github.com/nhrsoo370/ntdtv/blob/master/gb/2020/08/27/a102927666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普支持率飙升创记录 大量非裔与民主党人士转>-009fcc?logoWidth=1" title="川普支持率飙升创记录 大量非裔与民主党人士转投川普  " alt="川普支持率飙升创记录 大量非裔与民主党人士转投川普  "></a></p>
 <p><a href="https://github.com/nhrsoo370/ntdtv/blob/master/gb/2020/08/27/a102927509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习恢复党主席头衔？李克强已被边缘化     >-009fcc?logoWidth=1" title="习恢复党主席头衔？李克强已被边缘化  " alt="习恢复党主席头衔？李克强已被边缘化  "></a></p>
-<p><a href="https://github.com/nhrsoo370/ntdtv/blob/master/gb/2020/08/26/a102927047.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“巴威”发威多地变汪洋 登陆辽宁创最强记录 >-009fcc?logoWidth=1" title="“巴威”发威多地变汪洋 登陆辽宁创最强记录  " alt="“巴威”发威多地变汪洋 登陆辽宁创最强记录  "></a></p>
 <p><a href="https://github.com/nhrsoo370/ntdtv/blob/master/gb/2020/08/28/a102928015.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林匡正：跳出中共圈套 争取选举       >-009fcc?logoWidth=1" title="林匡正：跳出中共圈套 争取选举  " alt="林匡正：跳出中共圈套 争取选举  "></a></p>
 <p><a href="https://github.com/nhrsoo370/ntdtv/blob/master/gb/2020/08/28/a102928025.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国政府对中共恶意软件宣战         >-009fcc?logoWidth=1" title="美国政府对中共恶意软件宣战  " alt="美国政府对中共恶意软件宣战  "></a></p>
 <p><a href="https://github.com/nhrsoo370/ntdtv/blob/master/gb/2020/08/28/a102928005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/担心拜登惨败？ 佩洛西促取消总统大选辩论  >-009fcc?logoWidth=1" title="担心拜登惨败？ 佩洛西促取消总统大选辩论  " alt="担心拜登惨败？ 佩洛西促取消总统大选辩论  "></a></p>
@@ -263,9 +263,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://nhrsoo370.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?gsjwq">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?gkoaa">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?nlscu">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?heksp">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -309,8 +309,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?kkdrr">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?yymla">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?efczy">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?zqkyc">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -489,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nhrsoo370/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nhrsoo370/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nhrsoo370/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nhrsoo370/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nhrsoo370/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nhrsoo370/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nhrsoo370/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nhrsoo370/www/master/index.html?a">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nhrsoo370/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nhrsoo370/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/xffff">git.io/xffff</a></div>
+<div align="center">短网址: <a href="https://git.io/i7777">git.io/i7777</a></div>
 
