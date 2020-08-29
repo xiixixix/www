@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bhtakl332/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bhtakl332/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/p5555">git.io/p5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aam">x.co/aam</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rdddd">git.io/rdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/kdd">x.co/kdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,17 +39,16 @@
 <p><a href="https://github.com/bhtakl332/djy/blob/master/gb/20/8/29/n12365626.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军方学者偷美机密机场被抓        >-009fcc?logoWidth=1" title="中共军方学者偷美机密机场被抓  " alt="中共军方学者偷美机密机场被抓  "></a></p>
 <p><a href="https://github.com/bhtakl332/djy/blob/master/gb/20/8/28/n12364056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何将健康人摧残致疯（5）       >-009fcc?logoWidth=1" title="中共为何将健康人摧残致疯（5）  " alt="中共为何将健康人摧残致疯（5）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102929166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山西省一饭店坍塌 至少5死1伤37人受困  >-009fcc?logoWidth=1" title="山西省一饭店坍塌 至少5死1伤37人受困  " alt="山西省一饭店坍塌 至少5死1伤37人受困  "></a></p>
-<p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/28/a102928551.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英预言家：中国下半年多地地震、大骚乱 习日子>-009fcc?logoWidth=1" title="英预言家：中国下半年多地地震、大骚乱 习日子很难过  " alt="英预言家：中国下半年多地地震、大骚乱 习日子很难过  "></a></p>
-<p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102929213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巨变中の时代（中）：天呈异象，预示天下大乱？>-009fcc?logoWidth=1" title="巨变中の时代（中）：天呈异象，预示天下大乱？是老天在警告我们吗？  " alt="巨变中の时代（中）：天呈异象，预示天下大乱？是老天在警告我们吗？  "></a></p>
+<p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102929068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普面临的最严重威胁不是拜登而是这个    >-009fcc?logoWidth=1" title="川普面临的最严重威胁不是拜登而是这个  " alt="川普面临的最严重威胁不是拜登而是这个  "></a></p>
+<p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/28/a102928384.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河习妥协 习胡再度联手？        >-009fcc?logoWidth=1" title="北戴河习妥协 习胡再度联手？  " alt="北戴河习妥协 习胡再度联手？  "></a></p>
+<p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102929153.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官方称粮价稳中有涨 网民嘲讽：涨得很稳 >-009fcc?logoWidth=1" title="中共官方称粮价稳中有涨 网民嘲讽：涨得很稳  " alt="中共官方称粮价稳中有涨 网民嘲讽：涨得很稳  "></a></p>
 <p><a href="https://github.com/bhtakl332/djy/blob/master/gb/20/8/25/n12357101.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/单挑毛江 黄万里预言三峡加剧灾情      >-009fcc?logoWidth=1" title="单挑毛江 黄万里预言三峡加剧灾情  " alt="单挑毛江 黄万里预言三峡加剧灾情  "></a></p>
 <p><a href="https://github.com/bhtakl332/djy/blob/master/gb/20/8/28/n12365096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/电科院博士被黑户20年 军人妻子遭酷刑致残 >-009fcc?logoWidth=1" title="电科院博士被黑户20年 军人妻子遭酷刑致残  " alt="电科院博士被黑户20年 军人妻子遭酷刑致残  "></a></p>
-<p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102928969.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又抓到间谍 中国学生盗走美教授17年研究心血>-009fcc?logoWidth=1" title="又抓到间谍 中国学生盗走美教授17年研究心血  " alt="又抓到间谍 中国学生盗走美教授17年研究心血  "></a></p>
-<p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102929063.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵立坚闯祸 胡锡进叼盘侠变“醋精”？    >-009fcc?logoWidth=1" title="赵立坚闯祸 胡锡进叼盘侠变“醋精”？  " alt="赵立坚闯祸 胡锡进叼盘侠变“醋精”？  "></a></p>
+<p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102929166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山西省一饭店坍塌 至少5死1伤37人受困  >-009fcc?logoWidth=1" title="山西省一饭店坍塌 至少5死1伤37人受困  " alt="山西省一饭店坍塌 至少5死1伤37人受困  "></a></p>
 <p><a href="https://github.com/bhtakl332/djy/blob/master/gb/20/8/29/n12366026.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张慧东：3万字狂批蓬佩奥是中共绝望的表现  >-009fcc?logoWidth=1" title="张慧东：3万字狂批蓬佩奥是中共绝望的表现  " alt="张慧东：3万字狂批蓬佩奥是中共绝望的表现  "></a></p>
 <p><a href="https://github.com/bhtakl332/djy/blob/master/gb/20/8/29/n12366059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/残疾金被苛扣 老兵举报贪官被打死县委大院  >-009fcc?logoWidth=1" title="残疾金被苛扣 老兵举报贪官被打死县委大院  " alt="残疾金被苛扣 老兵举报贪官被打死县委大院  "></a></p>
-<p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/28/a102928752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：美国大选已无多少悬念 习近平更钟意谁>-009fcc?logoWidth=1" title="陈破空：美国大选已无多少悬念 习近平更钟意谁？  " alt="陈破空：美国大选已无多少悬念 习近平更钟意谁？  "></a></p>
-<p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/28/a102928348.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“脱贫”梦碎 官方罕见承认：9省1.3>-009fcc?logoWidth=1" title="习近平“脱贫”梦碎 官方罕见承认：9省1.3万户恐返贫  " alt="习近平“脱贫”梦碎 官方罕见承认：9省1.3万户恐返贫  "></a></p>
+<p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/28/a102928551.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英预言家：中国下半年多地地震、大骚乱 习日子>-009fcc?logoWidth=1" title="英预言家：中国下半年多地地震、大骚乱 习日子很难过  " alt="英预言家：中国下半年多地地震、大骚乱 习日子很难过  "></a></p>
+<p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102929213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巨变中の时代（中）：天呈异象，预示天下大乱？>-009fcc?logoWidth=1" title="巨变中の时代（中）：天呈异象，预示天下大乱？是老天在警告我们吗？  " alt="巨变中の时代（中）：天呈异象，预示天下大乱？是老天在警告我们吗？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -261,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://bhtakl332.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ppsng">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?xfnze">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?pfksp">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?zsumo">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ixiuf">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?zoozv">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?slpls">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ilkes">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bhtakl332/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bhtakl332/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bhtakl332/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bhtakl332/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bhtakl332/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bhtakl332/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bhtakl332/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bhtakl332/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/p5555">git.io/p5555</a></div>
+<div align="center">短网址: <a href="https://git.io/rdddd">git.io/rdddd</a></div>
 
