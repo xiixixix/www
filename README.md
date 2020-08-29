@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bhtakl332/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bhtakl332/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/d3333">git.io/d3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j44">x.co/j44</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/j2222">git.io/j2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2aa">x.co/2aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102928997.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/盗窃美国机密逃跑 中共军方研究员机场被抓  >-009fcc?logoWidth=1" title="盗窃美国机密逃跑 中共军方研究员机场被抓  " alt="盗窃美国机密逃跑 中共军方研究员机场被抓  "></a></p>
 <p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102929028.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅访欧吃闭门羹 安倍继任者谁       >-009fcc?logoWidth=1" title="王毅访欧吃闭门羹 安倍继任者谁  " alt="王毅访欧吃闭门羹 安倍继任者谁  "></a></p>
 <p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102928935.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中共突射东风导弹是一大败笔 凸显内部危>-009fcc?logoWidth=1" title="分析：中共突射东风导弹是一大败笔 凸显内部危局  " alt="分析：中共突射东风导弹是一大败笔 凸显内部危局  "></a></p>
+<p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102929470.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜恐怖防疫:接近中国边境1公里一律枪毙  >-009fcc?logoWidth=1" title="朝鲜恐怖防疫:接近中国边境1公里一律枪毙  " alt="朝鲜恐怖防疫:接近中国边境1公里一律枪毙  "></a></p>
+<p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102929455.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵立坚要人民当中共“铜墙铁壁” 网友痛骂  >-009fcc?logoWidth=1" title="赵立坚要人民当中共“铜墙铁壁” 网友痛骂  " alt="赵立坚要人民当中共“铜墙铁壁” 网友痛骂  "></a></p>
 <p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102929472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/替中共工作 两中国籍研究员在美被捕     >-009fcc?logoWidth=1" title="替中共工作 两中国籍研究员在美被捕  " alt="替中共工作 两中国籍研究员在美被捕  "></a></p>
 <p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102929417.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/安倍请辞日相 下任首相对中态度成焦点    >-009fcc?logoWidth=1" title="安倍请辞日相 下任首相对中态度成焦点  " alt="安倍请辞日相 下任首相对中态度成焦点  "></a></p>
 <p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102929415.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾开放美猪牛 彭斯：为强化贸易伙伴关系开大>-009fcc?logoWidth=1" title="台湾开放美猪牛 彭斯：为强化贸易伙伴关系开大门  " alt="台湾开放美猪牛 彭斯：为强化贸易伙伴关系开大门  "></a></p>
-<p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102929385.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/受疫情影响付不出房贷怎么办         >-009fcc?logoWidth=1" title="受疫情影响付不出房贷怎么办  " alt="受疫情影响付不出房贷怎么办  "></a></p>
-<p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102929382.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/药品羟氯喹与中共病毒            >-009fcc?logoWidth=1" title="药品羟氯喹与中共病毒  " alt="药品羟氯喹与中共病毒  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bhtakl332/djy/blob/master/gb/20/8/29/n12365613.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/离美前毁硬盘瞒军方关系 国防科大学生被捕  >-009fcc?logoWidth=1" title="离美前毁硬盘瞒军方关系 国防科大学生被捕  " alt="离美前毁硬盘瞒军方关系 国防科大学生被捕  "></a></p>
 <p><a href="https://github.com/bhtakl332/djy/blob/master/gb/20/8/28/n12365039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：发射东风导弹是中共军事一大败笔    >-009fcc?logoWidth=1" title="沈舟：发射东风导弹是中共军事一大败笔  " alt="沈舟：发射东风导弹是中共军事一大败笔  "></a></p>
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://bhtakl332.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?xwlxi">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?intdq">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?iyxiq">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?xrrlw">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?upqgq">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?sdeca">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?vxwmb">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?eiuqq">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bhtakl332/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bhtakl332/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bhtakl332/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bhtakl332/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bhtakl332/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bhtakl332/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bhtakl332/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bhtakl332/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/d3333">git.io/d3333</a></div>
+<div align="center">短网址: <a href="https://git.io/j2222">git.io/j2222</a></div>
 
