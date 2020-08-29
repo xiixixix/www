@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/thblzx3540/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/thblzx3540/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cgggg">git.io/cgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u88">x.co/u88</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/guuuu">git.io/guuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3337">x.co/3337</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/thblzx3540/ntdtv/blob/master/gb/2020/08/28/a102928348.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“脱贫”梦碎 官方罕见承认：9省1.3>-009fcc?logoWidth=1" title="习近平“脱贫”梦碎 官方罕见承认：9省1.3万户恐返贫  " alt="习近平“脱贫”梦碎 官方罕见承认：9省1.3万户恐返贫  "></a></p>
 <p><a href="https://github.com/thblzx3540/ntdtv/blob/master/gb/2020/08/28/a102928502.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国掀逃亡潮 巴尔干半岛成低端人口首选地  >-009fcc?logoWidth=1" title="中国掀逃亡潮 巴尔干半岛成低端人口首选地  " alt="中国掀逃亡潮 巴尔干半岛成低端人口首选地  "></a></p>
 <p><a href="https://github.com/thblzx3540/ntdtv/blob/master/gb/2020/08/28/a102928309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战狼华春莹惧怕美军？发推文引网友嘲笑    >-009fcc?logoWidth=1" title="战狼华春莹惧怕美军？发推文引网友嘲笑  " alt="战狼华春莹惧怕美军？发推文引网友嘲笑  "></a></p>
 <p><a href="https://github.com/thblzx3540/ntdtv/blob/master/gb/2020/08/28/a102928261.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境流血冲突 阵亡中共军人信息曝光   >-009fcc?logoWidth=1" title="中印边境流血冲突 阵亡中共军人信息曝光  " alt="中印边境流血冲突 阵亡中共军人信息曝光  "></a></p>
 <p><a href="https://github.com/thblzx3540/ntdtv/blob/master/gb/2020/08/28/a102928304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日媒：安倍晋三辞职 与习近平一项约定落空  >-009fcc?logoWidth=1" title="日媒：安倍晋三辞职 与习近平一项约定落空  " alt="日媒：安倍晋三辞职 与习近平一项约定落空  "></a></p>
 <p><a href="https://github.com/thblzx3540/ntdtv/blob/master/gb/2020/08/28/a102928251.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境流血冲突 阵亡中共军人信息曝光   >-009fcc?logoWidth=1" title="中印边境流血冲突 阵亡中共军人信息曝光  " alt="中印边境流血冲突 阵亡中共军人信息曝光  "></a></p>
-<p><a href="https://github.com/thblzx3540/ntdtv/blob/master/gb/2020/08/28/a102928232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵立坚鼓动中国人不用苹果 发推文却用iPho>-009fcc?logoWidth=1" title="赵立坚鼓动中国人不用苹果 发推文却用iPhone  " alt="赵立坚鼓动中国人不用苹果 发推文却用iPhone  "></a></p>
 <p><a href="https://github.com/thblzx3540/ntdtv/blob/master/gb/2020/08/23/a102924362.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前中共海军军官姚诚：中美战争随时爆发    >-009fcc?logoWidth=1" title="前中共海军军官姚诚：中美战争随时爆发  " alt="前中共海军军官姚诚：中美战争随时爆发  "></a></p>
 <p><a href="https://github.com/thblzx3540/ntdtv/blob/master/gb/2020/08/28/a102928806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳媒曝光中共“千人计划”名单 震动政坛   >-009fcc?logoWidth=1" title="澳媒曝光中共“千人计划”名单 震动政坛  " alt="澳媒曝光中共“千人计划”名单 震动政坛  "></a></p>
 <p><a href="https://github.com/thblzx3540/ntdtv/blob/master/gb/2020/08/28/a102928761.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约巡警工会主席RNC挺川普 对抗极端左派 >-009fcc?logoWidth=1" title="纽约巡警工会主席RNC挺川普 对抗极端左派  " alt="纽约巡警工会主席RNC挺川普 对抗极端左派  "></a></p>
@@ -49,6 +49,7 @@
 <p><a href="https://github.com/thblzx3540/djy/blob/master/gb/20/8/28/n12363089.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高峰：强推数字货币将加速中共垮台      >-009fcc?logoWidth=1" title="高峰：强推数字货币将加速中共垮台  " alt="高峰：强推数字货币将加速中共垮台  "></a></p>
 <p><a href="https://github.com/thblzx3540/djy/blob/master/gb/20/8/28/n12363037.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共向南海发射4枚弹道导弹 五角大楼回应  >-009fcc?logoWidth=1" title="中共向南海发射4枚弹道导弹 五角大楼回应  " alt="中共向南海发射4枚弹道导弹 五角大楼回应  "></a></p>
 <p><a href="https://github.com/thblzx3540/ntdtv/blob/master/gb/2020/08/28/a102927996.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共4弹挑衅后认怂 美军“海狼号”核潜艇现身>-009fcc?logoWidth=1" title="中共4弹挑衅后认怂 美军“海狼号”核潜艇现身/法加意外长连怼王毅 美日印澳结盟反共  " alt="中共4弹挑衅后认怂 美军“海狼号”核潜艇现身/法加意外长连怼王毅 美日印澳结盟反共  "></a></p>
+<p><a href="https://github.com/thblzx3540/ntdtv/blob/master/gb/2020/08/28/a102928232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵立坚鼓动中国人不用苹果 发推文却用iPho>-009fcc?logoWidth=1" title="赵立坚鼓动中国人不用苹果 发推文却用iPhone  " alt="赵立坚鼓动中国人不用苹果 发推文却用iPhone  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -260,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://thblzx3540.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?atyhu">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?omygq">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ubves">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?lfffg">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?xscvo">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ibypl">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?bddop">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?eeiub">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/thblzx3540/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/thblzx3540/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/thblzx3540/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/thblzx3540/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/thblzx3540/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/thblzx3540/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/thblzx3540/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/thblzx3540/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/thblzx3540/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/thblzx3540/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/cgggg">git.io/cgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/guuuu">git.io/guuuu</a></div>
 
