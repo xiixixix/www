@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bhtakl332/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bhtakl332/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qxxxx">git.io/qxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/bpp">x.co/bpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyyyy">git.io/yyyyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/eaa">x.co/eaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102928997.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/盗窃美国机密逃跑 中共军方研究员机场被抓  >-009fcc?logoWidth=1" title="盗窃美国机密逃跑 中共军方研究员机场被抓  " alt="盗窃美国机密逃跑 中共军方研究员机场被抓  "></a></p>
 <p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102929028.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅访欧吃闭门羹 安倍继任者谁       >-009fcc?logoWidth=1" title="王毅访欧吃闭门羹 安倍继任者谁  " alt="王毅访欧吃闭门羹 安倍继任者谁  "></a></p>
 <p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102928935.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中共突射东风导弹是一大败笔 凸显内部危>-009fcc?logoWidth=1" title="分析：中共突射东风导弹是一大败笔 凸显内部危局  " alt="分析：中共突射东风导弹是一大败笔 凸显内部危局  "></a></p>
+<p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102929334.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传残骸落广西 中共南海射导弹数量成疑   >-009fcc?logoWidth=1" title="网传残骸落广西 中共南海射导弹数量成疑  " alt="网传残骸落广西 中共南海射导弹数量成疑  "></a></p>
+<p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102929360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罕见 白宫国安顾问演讲直呼“中华民国”   >-009fcc?logoWidth=1" title="罕见 白宫国安顾问演讲直呼“中华民国”  " alt="罕见 白宫国安顾问演讲直呼“中华民国”  "></a></p>
+<p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102929353.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳孔子学院同意讨论六四却无下文 华人吁兑现承>-009fcc?logoWidth=1" title="澳孔子学院同意讨论六四却无下文 华人吁兑现承诺  " alt="澳孔子学院同意讨论六四却无下文 华人吁兑现承诺  "></a></p>
+<p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102929327.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/援朝老军人被克扣残疾金上访 被打死在县委大院>-009fcc?logoWidth=1" title="援朝老军人被克扣残疾金上访 被打死在县委大院  " alt="援朝老军人被克扣残疾金上访 被打死在县委大院  "></a></p>
 <p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102929224.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暴徒滋扰共和党大会与会议员 川普强烈谴责获民>-009fcc?logoWidth=1" title="暴徒滋扰共和党大会与会议员 川普强烈谴责获民力挺  " alt="暴徒滋扰共和党大会与会议员 川普强烈谴责获民力挺  "></a></p>
-<p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102929219.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“端点星”案家属控告公检滥用职权不受理   >-009fcc?logoWidth=1" title="“端点星”案家属控告公检滥用职权不受理  " alt="“端点星”案家属控告公检滥用职权不受理  "></a></p>
-<p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102929214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前中共海军参谋姚诚：美中首战就是核战    >-009fcc?logoWidth=1" title="前中共海军参谋姚诚：美中首战就是核战  " alt="前中共海军参谋姚诚：美中首战就是核战  "></a></p>
-<p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/23/a102924362.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前中共海军军官姚诚：中美战争随时爆发    >-009fcc?logoWidth=1" title="前中共海军军官姚诚：中美战争随时爆发  " alt="前中共海军军官姚诚：中美战争随时爆发  "></a></p>
-<p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102929166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山西省一饭店坍塌 至少5死1伤37人受困  >-009fcc?logoWidth=1" title="山西省一饭店坍塌 至少5死1伤37人受困  " alt="山西省一饭店坍塌 至少5死1伤37人受困  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bhtakl332/djy/blob/master/gb/20/8/28/n12365039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：发射东风导弹是中共军事一大败笔    >-009fcc?logoWidth=1" title="沈舟：发射东风导弹是中共军事一大败笔  " alt="沈舟：发射东风导弹是中共军事一大败笔  "></a></p>
 <p><a href="https://github.com/bhtakl332/djy/blob/master/gb/20/8/28/n12365093.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普要对中共追责 更多证据曝中共瞒疫内幕  >-009fcc?logoWidth=1" title="川普要对中共追责 更多证据曝中共瞒疫内幕  " alt="川普要对中共追责 更多证据曝中共瞒疫内幕  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/bhtakl332/djy/blob/master/gb/20/8/29/n12365626.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军方学者偷美机密机场被抓        >-009fcc?logoWidth=1" title="中共军方学者偷美机密机场被抓  " alt="中共军方学者偷美机密机场被抓  "></a></p>
 <p><a href="https://github.com/bhtakl332/djy/blob/master/gb/20/8/28/n12364056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何将健康人摧残致疯（5）       >-009fcc?logoWidth=1" title="中共为何将健康人摧残致疯（5）  " alt="中共为何将健康人摧残致疯（5）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102929166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山西省一饭店坍塌 至少5死1伤37人受困  >-009fcc?logoWidth=1" title="山西省一饭店坍塌 至少5死1伤37人受困  " alt="山西省一饭店坍塌 至少5死1伤37人受困  "></a></p>
 <p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/28/a102928551.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英预言家：中国下半年多地地震、大骚乱 习日子>-009fcc?logoWidth=1" title="英预言家：中国下半年多地地震、大骚乱 习日子很难过  " alt="英预言家：中国下半年多地地震、大骚乱 习日子很难过  "></a></p>
 <p><a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/2020/08/29/a102929213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巨变中の时代（中）：天呈异象，预示天下大乱？>-009fcc?logoWidth=1" title="巨变中の时代（中）：天呈异象，预示天下大乱？是老天在警告我们吗？  " alt="巨变中の时代（中）：天呈异象，预示天下大乱？是老天在警告我们吗？  "></a></p>
 <p><a href="https://github.com/bhtakl332/djy/blob/master/gb/20/8/25/n12357101.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/单挑毛江 黄万里预言三峡加剧灾情      >-009fcc?logoWidth=1" title="单挑毛江 黄万里预言三峡加剧灾情  " alt="单挑毛江 黄万里预言三峡加剧灾情  "></a></p>
@@ -260,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://bhtakl332.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?xmflc">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?myyxd">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?bkfmc">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?gipzs">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?fpgmp">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?yjlxo">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?llbei">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?nivhf">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/bhtakl332/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bhtakl332/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bhtakl332/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bhtakl332/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bhtakl332/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bhtakl332/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bhtakl332/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bhtakl332/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/bhtakl332/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qxxxx">git.io/qxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/yyyyyyy">git.io/yyyyyyy</a></div>
 
