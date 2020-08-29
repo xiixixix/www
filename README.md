@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/vxfjyj3317/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/vxfjyj3317/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kiiii">git.io/kiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a3a">x.co/a3a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uzzzz">git.io/uzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3pp">x.co/3pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/2020/08/29/a102929152.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成龙北京豪宅突被查封拍卖/川普面临的最严重威>-009fcc?logoWidth=1" title="成龙北京豪宅突被查封拍卖/川普面临的最严重威胁不是拜登  " alt="成龙北京豪宅突被查封拍卖/川普面临的最严重威胁不是拜登  "></a></p>
 <p><a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/2020/08/29/a102929093.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成龙北京豪宅突被查封拍卖 儿子曾在此吸毒  >-009fcc?logoWidth=1" title="成龙北京豪宅突被查封拍卖 儿子曾在此吸毒  " alt="成龙北京豪宅突被查封拍卖 儿子曾在此吸毒  "></a></p>
 <p><a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/2020/08/29/a102929051.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情击垮中国“鞋王” 达芙妮宣布关闭所有店铺>-009fcc?logoWidth=1" title="疫情击垮中国“鞋王” 达芙妮宣布关闭所有店铺  " alt="疫情击垮中国“鞋王” 达芙妮宣布关闭所有店铺  "></a></p>
 <p><a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/2020/08/29/a102928997.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/盗窃美国机密逃跑 中共军方研究员机场被抓  >-009fcc?logoWidth=1" title="盗窃美国机密逃跑 中共军方研究员机场被抓  " alt="盗窃美国机密逃跑 中共军方研究员机场被抓  "></a></p>
 <p><a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/2020/08/29/a102929028.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅访欧吃闭门羹 安倍继任者谁       >-009fcc?logoWidth=1" title="王毅访欧吃闭门羹 安倍继任者谁  " alt="王毅访欧吃闭门羹 安倍继任者谁  "></a></p>
 <p><a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/2020/08/29/a102928935.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中共突射东风导弹是一大败笔 凸显内部危>-009fcc?logoWidth=1" title="分析：中共突射东风导弹是一大败笔 凸显内部危局  " alt="分析：中共突射东风导弹是一大败笔 凸显内部危局  "></a></p>
-<p><a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/2020/08/29/a102928869.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外汇跌破1兆美元 中共怪罪公民境外赌博旅游 >-009fcc?logoWidth=1" title="外汇跌破1兆美元 中共怪罪公民境外赌博旅游  " alt="外汇跌破1兆美元 中共怪罪公民境外赌博旅游  "></a></p>
+<p><a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/2020/08/29/a102929166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山西省一饭店坍塌 至少10人被埋 5死1伤 >-009fcc?logoWidth=1" title="山西省一饭店坍塌 至少10人被埋 5死1伤  " alt="山西省一饭店坍塌 至少10人被埋 5死1伤  "></a></p>
 <p><a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/2020/08/29/a102929153.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官方称粮价稳中有涨 网民嘲讽：涨得很稳 >-009fcc?logoWidth=1" title="中共官方称粮价稳中有涨 网民嘲讽：涨得很稳  " alt="中共官方称粮价稳中有涨 网民嘲讽：涨得很稳  "></a></p>
 <p><a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/2020/08/29/a102929126.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜血腥防疫 靠近中国边境1公里者一律枪毙 >-009fcc?logoWidth=1" title="朝鲜血腥防疫 靠近中国边境1公里者一律枪毙  " alt="朝鲜血腥防疫 靠近中国边境1公里者一律枪毙  "></a></p>
 <p><a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/2020/08/29/a102929097.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/毛泽东前秘书女儿：三峡大坝最好炸掉     >-009fcc?logoWidth=1" title="毛泽东前秘书女儿：三峡大坝最好炸掉  " alt="毛泽东前秘书女儿：三峡大坝最好炸掉  "></a></p>
 <p><a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/2020/08/29/a102929015.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国公布11家中共军企名单 面临制裁命运  >-009fcc?logoWidth=1" title="美国公布11家中共军企名单 面临制裁命运  " alt="美国公布11家中共军企名单 面临制裁命运  "></a></p>
-<p><a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/2020/08/29/a102929012.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法国装甲运钞车刚驶出银行 遭包夹劫走900万>-009fcc?logoWidth=1" title="法国装甲运钞车刚驶出银行 遭包夹劫走900万欧元  " alt="法国装甲运钞车刚驶出银行 遭包夹劫走900万欧元  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/vxfjyj3317/djy/blob/master/gb/20/8/28/n12365039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：发射东风导弹是中共军事一大败笔    >-009fcc?logoWidth=1" title="沈舟：发射东风导弹是中共军事一大败笔  " alt="沈舟：发射东风导弹是中共军事一大败笔  "></a></p>
 <p><a href="https://github.com/vxfjyj3317/djy/blob/master/gb/20/8/28/n12365106.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共发导弹美舰进西沙 抗美有本钱？     >-009fcc?logoWidth=1" title="中共发导弹美舰进西沙 抗美有本钱？  " alt="中共发导弹美舰进西沙 抗美有本钱？  "></a></p>
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://vxfjyj3317.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ihuzk">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ngtgr">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ruqpj">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?iejhl">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ixhik">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?rtwsc">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?iubyn">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?dsppp">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/vxfjyj3317/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/vxfjyj3317/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vxfjyj3317/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vxfjyj3317/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/vxfjyj3317/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/vxfjyj3317/www/master/index.html?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vxfjyj3317/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vxfjyj3317/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kiiii">git.io/kiiii</a></div>
+<div align="center">短网址: <a href="https://git.io/uzzzz">git.io/uzzzz</a></div>
 
