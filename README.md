@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/vxfjyj3317/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/vxfjyj3317/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bffff">git.io/bffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/sdd">x.co/sdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/3mmmm">git.io/3mmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppd">x.co/ppd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/2020/08/28/a102928348.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“脱贫”梦碎 官方罕见承认：9省1.3>-009fcc?logoWidth=1" title="习近平“脱贫”梦碎 官方罕见承认：9省1.3万户恐返贫  " alt="习近平“脱贫”梦碎 官方罕见承认：9省1.3万户恐返贫  "></a></p>
 <p><a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/2020/08/28/a102928502.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国掀逃亡潮 巴尔干半岛成低端人口首选地  >-009fcc?logoWidth=1" title="中国掀逃亡潮 巴尔干半岛成低端人口首选地  " alt="中国掀逃亡潮 巴尔干半岛成低端人口首选地  "></a></p>
 <p><a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/2020/08/28/a102928384.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河习妥协 习胡再度联手？        >-009fcc?logoWidth=1" title="北戴河习妥协 习胡再度联手？  " alt="北戴河习妥协 习胡再度联手？  "></a></p>
+<p><a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/2020/08/29/a102929015.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国公布11家中共军企名单 面临制裁命运  >-009fcc?logoWidth=1" title="美国公布11家中共军企名单 面临制裁命运  " alt="美国公布11家中共军企名单 面临制裁命运  "></a></p>
 <p><a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/2020/08/29/a102929012.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法国装甲运钞车刚驶出银行 遭包夹劫走900万>-009fcc?logoWidth=1" title="法国装甲运钞车刚驶出银行 遭包夹劫走900万欧元  " alt="法国装甲运钞车刚驶出银行 遭包夹劫走900万欧元  "></a></p>
 <p><a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/2020/08/29/a102928959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“沙皇炸弹”核爆影片曝光 为广岛原爆3千倍(>-009fcc?logoWidth=1" title="“沙皇炸弹”核爆影片曝光 为广岛原爆3千倍(视频)  " alt="“沙皇炸弹”核爆影片曝光 为广岛原爆3千倍(视频)  "></a></p>
+<p><a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/2020/08/29/a102928969.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又抓到间谍 中国学生盗走美教授17年研究心血>-009fcc?logoWidth=1" title="又抓到间谍 中国学生盗走美教授17年研究心血  " alt="又抓到间谍 中国学生盗走美教授17年研究心血  "></a></p>
 <p><a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/2020/08/29/a102928948.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/力抗大肠癌4年 漫威电影“黑豹”男星惊传病逝>-009fcc?logoWidth=1" title="力抗大肠癌4年 漫威电影“黑豹”男星惊传病逝  " alt="力抗大肠癌4年 漫威电影“黑豹”男星惊传病逝  "></a></p>
-<p><a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/2020/08/29/a102928923.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家警告中共莫误判形势 否则面临美日台三方开>-009fcc?logoWidth=1" title="专家警告中共莫误判形势 否则面临美日台三方开战  " alt="专家警告中共莫误判形势 否则面临美日台三方开战  "></a></p>
-<p><a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/2020/08/29/a102928920.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南加州例行训练 黑鹰直升机坠毁2死3伤   >-009fcc?logoWidth=1" title="南加州例行训练 黑鹰直升机坠毁2死3伤  " alt="南加州例行训练 黑鹰直升机坠毁2死3伤  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/vxfjyj3317/djy/blob/master/gb/20/8/28/n12365039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：发射东风导弹是中共军事一大败笔    >-009fcc?logoWidth=1" title="沈舟：发射东风导弹是中共军事一大败笔  " alt="沈舟：发射东风导弹是中共军事一大败笔  "></a></p>
 <p><a href="https://github.com/vxfjyj3317/djy/blob/master/gb/20/8/28/n12364611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：川普或打算于第二任期内解体中共    >-009fcc?logoWidth=1" title="专家：川普或打算于第二任期内解体中共  " alt="专家：川普或打算于第二任期内解体中共  "></a></p>
@@ -40,11 +40,11 @@
 <p><a href="https://github.com/vxfjyj3317/djy/blob/master/gb/20/8/28/n12364967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日教授：中共挑起战端 面临与美日台同时作战 >-009fcc?logoWidth=1" title="日教授：中共挑起战端 面临与美日台同时作战  " alt="日教授：中共挑起战端 面临与美日台同时作战  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/vxfjyj3317/djy/blob/master/gb/20/8/28/n12364967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本教授：中共挑起战端 面临与美日台同时作战>-009fcc?logoWidth=1" title="日本教授：中共挑起战端 面临与美日台同时作战  " alt="日本教授：中共挑起战端 面临与美日台同时作战  "></a></p>
-<p><a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/2020/08/29/a102928969.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又抓到间谍 中国学生盗走美教授17年研究心血>-009fcc?logoWidth=1" title="又抓到间谍 中国学生盗走美教授17年研究心血  " alt="又抓到间谍 中国学生盗走美教授17年研究心血  "></a></p>
 <p><a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/2020/08/29/a102928850.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抵押房产救唐娟 神秘C先生是谁？/美防长隔空>-009fcc?logoWidth=1" title="抵押房产救唐娟 神秘C先生是谁？/美防长隔空下战书 “马斯廷”号入西沙  " alt="抵押房产救唐娟 神秘C先生是谁？/美防长隔空下战书 “马斯廷”号入西沙  "></a></p>
 <p><a href="https://github.com/vxfjyj3317/djy/blob/master/gb/20/8/28/n12364790.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/应聘者需“无信仰”中共迫害宗教信徒及家属  >-009fcc?logoWidth=1" title="应聘者需“无信仰”中共迫害宗教信徒及家属  " alt="应聘者需“无信仰”中共迫害宗教信徒及家属  "></a></p>
 <p><a href="https://github.com/vxfjyj3317/djy/blob/master/gb/20/8/28/n12365159.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“被扼着喉咙的歌手”            >-009fcc?logoWidth=1" title="“被扼着喉咙的歌手”  " alt="“被扼着喉咙的歌手”  "></a></p>
 <p><a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/2020/08/28/a102928806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳媒曝光中共“千人计划”名单 震动政坛   >-009fcc?logoWidth=1" title="澳媒曝光中共“千人计划”名单 震动政坛  " alt="澳媒曝光中共“千人计划”名单 震动政坛  "></a></p>
+<p><a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/2020/08/29/a102928923.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家警告中共莫误判形势 否则面临美日台三方开>-009fcc?logoWidth=1" title="专家警告中共莫误判形势 否则面临美日台三方开战  " alt="专家警告中共莫误判形势 否则面临美日台三方开战  "></a></p>
 <p><a href="https://github.com/vxfjyj3317/djy/blob/master/gb/20/8/28/n12364485.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川悬崖村“精准扶贫” 村民生活仍维艰   >-009fcc?logoWidth=1" title="四川悬崖村“精准扶贫” 村民生活仍维艰  " alt="四川悬崖村“精准扶贫” 村民生活仍维艰  "></a></p>
 <p><a href="https://github.com/vxfjyj3317/djy/blob/master/gb/20/8/28/n12362868.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：习近平夺刀把子 曾庆红另类反扑   >-009fcc?logoWidth=1" title="李正宽：习近平夺刀把子 曾庆红另类反扑  " alt="李正宽：习近平夺刀把子 曾庆红另类反扑  "></a></p>
 <p><a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/2020/08/28/a102928752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：美国大选已无多少悬念 习近平更钟意谁>-009fcc?logoWidth=1" title="陈破空：美国大选已无多少悬念 习近平更钟意谁？  " alt="陈破空：美国大选已无多少悬念 习近平更钟意谁？  "></a></p>
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://vxfjyj3317.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?jnumj">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?mjusg">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?maegf">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?naaqy">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ymbzf">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?kdwel">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?wyqea">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?foddi">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/vxfjyj3317/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/vxfjyj3317/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vxfjyj3317/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vxfjyj3317/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/vxfjyj3317/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vxfjyj3317/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/vxfjyj3317/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vxfjyj3317/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vxfjyj3317/www/blob/master/README.md?b%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bffff">git.io/bffff</a></div>
+<div align="center">短网址: <a href="https://git.io/3mmmm">git.io/3mmmm</a></div>
 
