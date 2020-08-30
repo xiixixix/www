@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/utwpym373/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/utwpym373/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/adddd">git.io/adddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3335">x.co/3335</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/r7777">git.io/r7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j44">x.co/j44</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,17 +39,17 @@
 <p><a href="https://github.com/utwpym373/djy/blob/master/gb/20/8/30/n12367721.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉市民指王毅欧洲甩锅疫情         >-009fcc?logoWidth=1" title="武汉市民指王毅欧洲甩锅疫情  " alt="武汉市民指王毅欧洲甩锅疫情  "></a></p>
 <p><a href="https://github.com/utwpym373/djy/blob/master/gb/20/8/30/n12367128.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：中共党媒忽然自曝隐瞒疫情新证据    >-009fcc?logoWidth=1" title="杨威：中共党媒忽然自曝隐瞒疫情新证据  " alt="杨威：中共党媒忽然自曝隐瞒疫情新证据  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/utwpym373/ntdtv/blob/master/gb/2020/08/30/a102929780.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：安倍辞职 日本将迎来强硬反共首相  >-009fcc?logoWidth=1" title="周晓辉：安倍辞职 日本将迎来强硬反共首相  " alt="周晓辉：安倍辞职 日本将迎来强硬反共首相  "></a></p>
-<p><a href="https://github.com/utwpym373/ntdtv/blob/master/gb/2020/08/30/a102929754.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/合作开发疫苗不许出境 加拿大再次被坑    >-009fcc?logoWidth=1" title="合作开发疫苗不许出境 加拿大再次被坑  " alt="合作开发疫苗不许出境 加拿大再次被坑  "></a></p>
-<p><a href="https://github.com/utwpym373/ntdtv/blob/master/gb/2020/08/29/a102929455.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵立坚要人民当中共“铜墙铁壁” 网友痛骂  >-009fcc?logoWidth=1" title="赵立坚要人民当中共“铜墙铁壁” 网友痛骂  " alt="赵立坚要人民当中共“铜墙铁壁” 网友痛骂  "></a></p>
+<p><a href="https://github.com/utwpym373/ntdtv/blob/master/gb/2020/08/29/a102929421.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共监所恐怖刑具视频流出 网友震惊（多视频）>-009fcc?logoWidth=1" title="中共监所恐怖刑具视频流出 网友震惊（多视频）  " alt="中共监所恐怖刑具视频流出 网友震惊（多视频）  "></a></p>
+<p><a href="https://github.com/utwpym373/ntdtv/blob/master/gb/2020/08/30/a102929650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罕见！美国首次公布台湾F--16飞行员在美受训>-009fcc?logoWidth=1" title="罕见！美国首次公布台湾F-16飞行员在美受训照片  " alt="罕见！美国首次公布台湾F-16飞行员在美受训照片  "></a></p>
+<p><a href="https://github.com/utwpym373/ntdtv/blob/master/gb/2020/08/30/a102929680.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国紧张局势升温 蒙族全民抗议文化灭绝   >-009fcc?logoWidth=1" title="中国紧张局势升温 蒙族全民抗议文化灭绝  " alt="中国紧张局势升温 蒙族全民抗议文化灭绝  "></a></p>
+<p><a href="https://github.com/utwpym373/ntdtv/blob/master/gb/2020/08/30/a102929576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/马克龙会见王毅 “强烈关切”香港等中国人权问>-009fcc?logoWidth=1" title="马克龙会见王毅 “强烈关切”香港等中国人权问题  " alt="马克龙会见王毅 “强烈关切”香港等中国人权问题  "></a></p>
 <p><a href="https://github.com/utwpym373/djy/blob/master/gb/20/8/29/n12366639.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全国律界被整治 湖南上千律师执业证被撤销  >-009fcc?logoWidth=1" title="全国律界被整治 湖南上千律师执业证被撤销  " alt="全国律界被整治 湖南上千律师执业证被撤销  "></a></p>
 <p><a href="https://github.com/utwpym373/djy/blob/master/gb/20/8/29/n12365776.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/馆长遇袭谁搞鬼？川普连任台受益       >-009fcc?logoWidth=1" title="馆长遇袭谁搞鬼？川普连任台受益  " alt="馆长遇袭谁搞鬼？川普连任台受益  "></a></p>
-<p><a href="https://github.com/utwpym373/ntdtv/blob/master/gb/2020/08/29/a102929334.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传残骸落广西 中共南海射导弹数量成疑   >-009fcc?logoWidth=1" title="网传残骸落广西 中共南海射导弹数量成疑  " alt="网传残骸落广西 中共南海射导弹数量成疑  "></a></p>
-<p><a href="https://github.com/utwpym373/ntdtv/blob/master/gb/2020/08/28/a102928384.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河习妥协 习胡再度联手？        >-009fcc?logoWidth=1" title="北戴河习妥协 习胡再度联手？  " alt="北戴河习妥协 习胡再度联手？  "></a></p>
+<p><a href="https://github.com/utwpym373/ntdtv/blob/master/gb/2020/08/30/a102929539.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惊!民主党大本营6市长挺川普/佩洛西劝拜登别>-009fcc?logoWidth=1" title="惊!民主党大本营6市长挺川普/佩洛西劝拜登别参加辩论？  " alt="惊!民主党大本营6市长挺川普/佩洛西劝拜登别参加辩论？  "></a></p>
 <p><a href="https://github.com/utwpym373/djy/blob/master/gb/20/8/29/n12366327.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传中印冲突中方士兵墓碑照 官媒转发后急删 >-009fcc?logoWidth=1" title="网传中印冲突中方士兵墓碑照 官媒转发后急删  " alt="网传中印冲突中方士兵墓碑照 官媒转发后急删  "></a></p>
 <p><a href="https://github.com/utwpym373/djy/blob/master/gb/20/8/29/n12366882.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国三大航空净利同比骤降500 龙江航空将被>-009fcc?logoWidth=1" title="中国三大航空净利同比骤降500 龙江航空将被拍卖  " alt="中国三大航空净利同比骤降500 龙江航空将被拍卖  "></a></p>
-<p><a href="https://github.com/utwpym373/ntdtv/blob/master/gb/2020/08/29/a102929213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乐山大佛显灵%3F!天呈异象必有大事      >-009fcc?logoWidth=1" title="乐山大佛显灵?!天呈异象必有大事  " alt="乐山大佛显灵?!天呈异象必有大事  "></a></p>
-<p><a href="https://github.com/utwpym373/ntdtv/blob/master/gb/2020/08/29/a102929113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/ 中共真能3天攻下台湾？美国会袖手旁观吗？ >-009fcc?logoWidth=1" title=" 中共真能3天攻下台湾？美国会袖手旁观吗？  " alt=" 中共真能3天攻下台湾？美国会袖手旁观吗？  "></a></p>
+<p><a href="https://github.com/utwpym373/ntdtv/blob/master/gb/2020/08/30/a102929780.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：安倍辞职 日本将迎来强硬反共首相  >-009fcc?logoWidth=1" title="周晓辉：安倍辞职 日本将迎来强硬反共首相  " alt="周晓辉：安倍辞职 日本将迎来强硬反共首相  "></a></p>
+<p><a href="https://github.com/utwpym373/ntdtv/blob/master/gb/2020/08/30/a102929754.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/合作开发疫苗不许出境 加拿大再次被坑    >-009fcc?logoWidth=1" title="合作开发疫苗不许出境 加拿大再次被坑  " alt="合作开发疫苗不许出境 加拿大再次被坑  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -261,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://utwpym373.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?wirxv">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?fqirc">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?herfb">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?hwdqd">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?dqdhw">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?wheio">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ahkcl">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?pqzlt">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -488,7 +488,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/utwpym373/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/utwpym373/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/utwpym373/www/master/index.html?i">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/utwpym373/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/utwpym373/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/utwpym373/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/utwpym373/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/adddd">git.io/adddd</a></div>
+<div align="center">短网址: <a href="https://git.io/r7777">git.io/r7777</a></div>
 
