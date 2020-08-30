@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/euavxz3788/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/euavxz3788/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/3hhhh">git.io/3hhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2299">x.co/2299</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fzzzz">git.io/fzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9pp">x.co/9pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -31,18 +31,17 @@
 <p><a href="https://github.com/euavxz3788/djy/blob/master/gb/20/8/29/n12366747.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港法轮功真相点遭亲共者涂污 市民帮报警  >-009fcc?logoWidth=1" title="香港法轮功真相点遭亲共者涂污 市民帮报警  " alt="香港法轮功真相点遭亲共者涂污 市民帮报警  "></a></p>
 <p><a href="https://github.com/euavxz3788/djy/blob/master/gb/20/8/29/n12366223.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵立坚刚说不用苹果手机 自己却用iPhone>-009fcc?logoWidth=1" title="赵立坚刚说不用苹果手机 自己却用iPhone发文  " alt="赵立坚刚说不用苹果手机 自己却用iPhone发文  "></a></p>
 <p><a href="https://github.com/euavxz3788/djy/blob/master/gb/20/8/29/n12366756.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普支持率飙升 拜登不敢辩论？       >-009fcc?logoWidth=1" title="川普支持率飙升 拜登不敢辩论？  " alt="川普支持率飙升 拜登不敢辩论？  "></a></p>
-<p><a href="https://github.com/euavxz3788/djy/blob/master/gb/20/8/26/n12358317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/6.3万新疆网民遭中共处置调查       >-009fcc?logoWidth=1" title="6.3万新疆网民遭中共处置调查  " alt="6.3万新疆网民遭中共处置调查  "></a></p>
+<p><a href="https://github.com/euavxz3788/djy/blob/master/gb/20/8/30/n12367264.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/无惧中共 捷克参议院议长率大阵仗访团抵台  >-009fcc?logoWidth=1" title="无惧中共 捷克参议院议长率大阵仗访团抵台  " alt="无惧中共 捷克参议院议长率大阵仗访团抵台  "></a></p>
 <p><a href="https://github.com/euavxz3788/djy/blob/master/gb/20/8/28/n12365136.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乌克兰前总理进重症室            >-009fcc?logoWidth=1" title="乌克兰前总理进重症室  " alt="乌克兰前总理进重症室  "></a></p>
-<p><a href="https://github.com/euavxz3788/djy/blob/master/gb/20/8/28/n12365093.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普要对中共追责 更多证据曝中共瞒疫内幕  >-009fcc?logoWidth=1" title="川普要对中共追责 更多证据曝中共瞒疫内幕  " alt="川普要对中共追责 更多证据曝中共瞒疫内幕  "></a></p>
-<p><a href="https://github.com/euavxz3788/djy/blob/master/gb/20/8/29/n12366370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI解密：来自金星的科学家        >-009fcc?logoWidth=1" title="FBI解密：来自金星的科学家  " alt="FBI解密：来自金星的科学家  "></a></p>
 <p><a href="https://github.com/euavxz3788/djy/blob/master/gb/20/8/30/n12367207.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵立坚撒谎 自我打脸            >-009fcc?logoWidth=1" title="赵立坚撒谎 自我打脸  " alt="赵立坚撒谎 自我打脸  "></a></p>
+<p><a href="https://github.com/euavxz3788/djy/blob/master/gb/20/8/29/n12366370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI解密：来自金星的科学家        >-009fcc?logoWidth=1" title="FBI解密：来自金星的科学家  " alt="FBI解密：来自金星的科学家  "></a></p>
 <p><a href="https://github.com/euavxz3788/djy/blob/master/gb/20/8/29/n12366327.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传中印冲突中方士兵墓碑照 官媒转发后急删 >-009fcc?logoWidth=1" title="网传中印冲突中方士兵墓碑照 官媒转发后急删  " alt="网传中印冲突中方士兵墓碑照 官媒转发后急删  "></a></p>
 <p><a href="https://github.com/euavxz3788/djy/blob/master/gb/20/8/30/n12367128.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：中共党媒忽然自曝隐瞒疫情新证据    >-009fcc?logoWidth=1" title="杨威：中共党媒忽然自曝隐瞒疫情新证据  " alt="杨威：中共党媒忽然自曝隐瞒疫情新证据  "></a></p>
+<p><a href="https://github.com/euavxz3788/djy/blob/master/gb/20/8/29/n12366639.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全国律界被整治 湖南上千律师执业证被撤销  >-009fcc?logoWidth=1" title="全国律界被整治 湖南上千律师执业证被撤销  " alt="全国律界被整治 湖南上千律师执业证被撤销  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/euavxz3788/ntdtv/blob/master/gb/2020/08/29/a102929334.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传残骸落广西 中共南海射导弹数量成疑   >-009fcc?logoWidth=1" title="网传残骸落广西 中共南海射导弹数量成疑  " alt="网传残骸落广西 中共南海射导弹数量成疑  "></a></p>
 <p><a href="https://github.com/euavxz3788/ntdtv/blob/master/gb/2020/08/30/a102929605.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/馆长中枪最新疑点？中共导弹乱射昏招频出！  >-009fcc?logoWidth=1" title="馆长中枪最新疑点？中共导弹乱射昏招频出！  " alt="馆长中枪最新疑点？中共导弹乱射昏招频出！  "></a></p>
 <p><a href="https://github.com/euavxz3788/ntdtv/blob/master/gb/2020/08/29/a102929388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共南海军演最后一天 美4军机飞临创纪录  >-009fcc?logoWidth=1" title="中共南海军演最后一天 美4军机飞临创纪录  " alt="中共南海军演最后一天 美4军机飞临创纪录  "></a></p>
-<p><a href="https://github.com/euavxz3788/djy/blob/master/gb/20/8/29/n12366639.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全国律界被整治 湖南上千律师执业证被撤销  >-009fcc?logoWidth=1" title="全国律界被整治 湖南上千律师执业证被撤销  " alt="全国律界被整治 湖南上千律师执业证被撤销  "></a></p>
 <p><a href="https://github.com/euavxz3788/djy/blob/master/gb/20/8/29/n12365776.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/馆长遇袭谁搞鬼？川普连任台受益       >-009fcc?logoWidth=1" title="馆长遇袭谁搞鬼？川普连任台受益  " alt="馆长遇袭谁搞鬼？川普连任台受益  "></a></p>
 <p><a href="https://github.com/euavxz3788/ntdtv/blob/master/gb/2020/08/30/a102929539.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惊!民主党大本营6市长挺川普/佩洛西劝拜登别>-009fcc?logoWidth=1" title="惊!民主党大本营6市长挺川普/佩洛西劝拜登别参加辩论？  " alt="惊!民主党大本营6市长挺川普/佩洛西劝拜登别参加辩论？  "></a></p>
 <p><a href="https://github.com/euavxz3788/ntdtv/blob/master/gb/2020/08/28/a102928384.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北戴河习妥协 习胡再度联手？        >-009fcc?logoWidth=1" title="北戴河习妥协 习胡再度联手？  " alt="北戴河习妥协 习胡再度联手？  "></a></p>
@@ -261,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://euavxz3788.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?vrwdc">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ygriu">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?mzfqy">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ftsec">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?hvezx">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?yofun">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ayvkm">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?qvoiz">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/euavxz3788/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/euavxz3788/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/euavxz3788/www/master/index.html?s">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/euavxz3788/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/euavxz3788/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/euavxz3788/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/euavxz3788/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/euavxz3788/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/euavxz3788/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/euavxz3788/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/3hhhh">git.io/3hhhh</a></div>
+<div align="center">短网址: <a href="https://git.io/fzzzz">git.io/fzzzz</a></div>
 
