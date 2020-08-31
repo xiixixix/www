@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zxivak3555/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zxivak3555/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/x7777">git.io/x7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u44">x.co/u44</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/888888">git.io/888888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p6p">x.co/p6p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -24,7 +24,7 @@
 <p><a href="https://github.com/zxivak3555/ntdtv/blob/master/gb/2020/08/30/a102930031.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/TikTok交易再添变数 无中共批准母公司不>-009fcc?logoWidth=1" title="TikTok交易再添变数 无中共批准母公司不得出售  " alt="TikTok交易再添变数 无中共批准母公司不得出售  "></a></p>
 <p><a href="https://github.com/zxivak3555/ntdtv/blob/master/gb/2020/08/30/a102930002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度军舰部署南海 严密监视共军动向     >-009fcc?logoWidth=1" title="印度军舰部署南海 严密监视共军动向  " alt="印度军舰部署南海 严密监视共军动向  "></a></p>
 <p><a href="https://github.com/zxivak3555/ntdtv/blob/master/gb/2020/08/30/a102930000.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/TikTok出售添变数 公司称严守中共管制新>-009fcc?logoWidth=1" title="TikTok出售添变数 公司称严守中共管制新规  " alt="TikTok出售添变数 公司称严守中共管制新规  "></a></p>
-<p><a href="https://github.com/zxivak3555/ntdtv/blob/master/gb/2020/08/30/a102930009.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉千亿芯片生产线 面临“烂尾”风险    >-009fcc?logoWidth=1" title="武汉千亿芯片生产线 面临“烂尾”风险  " alt="武汉千亿芯片生产线 面临“烂尾”风险  "></a></p>
+<p><a href="https://github.com/zxivak3555/ntdtv/blob/master/gb/2020/08/30/a102929990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/奥布莱恩：全面抵制中共侵略 美以实力求和平 >-009fcc?logoWidth=1" title="奥布莱恩：全面抵制中共侵略 美以实力求和平  " alt="奥布莱恩：全面抵制中共侵略 美以实力求和平  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zxivak3555/djy/blob/master/gb/20/8/27/n12362241.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/强关P2P平台 中共维稳手段曝光      >-009fcc?logoWidth=1" title="强关P2P平台 中共维稳手段曝光  " alt="强关P2P平台 中共维稳手段曝光  "></a></p>
 <p><a href="https://github.com/zxivak3555/djy/blob/master/gb/20/8/30/n12367264.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/无惧中共 捷克参议院议长率大阵仗访团抵台  >-009fcc?logoWidth=1" title="无惧中共 捷克参议院议长率大阵仗访团抵台  " alt="无惧中共 捷克参议院议长率大阵仗访团抵台  "></a></p>
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://zxivak3555.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?oebmr">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?urgyh">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?tydbc">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?exylj">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?gsxuz">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?yzwqm">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?rmjbs">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?xwzog">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/zxivak3555/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zxivak3555/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zxivak3555/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zxivak3555/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zxivak3555/www/blob/master/README.md?a%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/zxivak3555/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zxivak3555/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zxivak3555/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zxivak3555/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zxivak3555/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/x7777">git.io/x7777</a></div>
+<div align="center">短网址: <a href="https://git.io/888888">git.io/888888</a></div>
 
