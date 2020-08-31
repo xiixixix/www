@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zxivak3555/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zxivak3555/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tkkkk">git.io/tkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u88">x.co/u88</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/zzzzzzzz">git.io/zzzzzzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppz">x.co/ppz</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,33 +20,34 @@
 <p><a href="https://github.com/zxivak3555/ntdtv/blob/master/gb/2020/08/30/a102929953.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/芯片国产梦碎 中国唯一7纳米光刻机被抵押  >-009fcc?logoWidth=1" title="芯片国产梦碎 中国唯一7纳米光刻机被抵押  " alt="芯片国产梦碎 中国唯一7纳米光刻机被抵押  "></a></p>
 <p><a href="https://github.com/zxivak3555/ntdtv/blob/master/gb/2020/08/30/a102929783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家:习顾忌一事 中美不会开战       >-009fcc?logoWidth=1" title="专家:习顾忌一事 中美不会开战  " alt="专家:习顾忌一事 中美不会开战  "></a></p>
 <p><a href="https://github.com/zxivak3555/ntdtv/blob/master/gb/2020/08/30/a102929748.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美战争一触即发 首战即核战？       >-009fcc?logoWidth=1" title="中美战争一触即发 首战即核战？  " alt="中美战争一触即发 首战即核战？  "></a></p>
+<p><a href="https://github.com/zxivak3555/ntdtv/blob/master/gb/2020/08/31/a102930126.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/捷克议长大阵仗访台 重击战狼外交 欧洲恐仿效>-009fcc?logoWidth=1" title="捷克议长大阵仗访台 重击战狼外交 欧洲恐仿效(视频)  " alt="捷克议长大阵仗访台 重击战狼外交 欧洲恐仿效(视频)  "></a></p>
 <p><a href="https://github.com/zxivak3555/ntdtv/blob/master/gb/2020/08/31/a102930116.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/云南蝗灾肆虐11个县  灾情迅速扩展难以控制>-009fcc?logoWidth=1" title="云南蝗灾肆虐11个县  灾情迅速扩展难以控制  " alt="云南蝗灾肆虐11个县  灾情迅速扩展难以控制  "></a></p>
 <p><a href="https://github.com/zxivak3555/ntdtv/blob/master/gb/2020/08/31/a102930095.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/萝拉过境路州停电 美国世纪互联网路大当机  >-009fcc?logoWidth=1" title="萝拉过境路州停电 美国世纪互联网路大当机  " alt="萝拉过境路州停电 美国世纪互联网路大当机  "></a></p>
 <p><a href="https://github.com/zxivak3555/ntdtv/blob/master/gb/2020/08/31/a102930077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/捷克议长访台 强调绝不向中共低头      >-009fcc?logoWidth=1" title="捷克议长访台 强调绝不向中共低头  " alt="捷克议长访台 强调绝不向中共低头  "></a></p>
 <p><a href="https://github.com/zxivak3555/ntdtv/blob/master/gb/2020/08/23/a102924362.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黑龙江大学防疫出新招 学生“十天洗一次澡” >-009fcc?logoWidth=1" title="黑龙江大学防疫出新招 学生“十天洗一次澡”  " alt="黑龙江大学防疫出新招 学生“十天洗一次澡”  "></a></p>
-<p><a href="https://github.com/zxivak3555/ntdtv/blob/master/gb/2020/08/30/a102930031.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/TikTok交易两头受限 中共称未经批准不得>-009fcc?logoWidth=1" title="TikTok交易两头受限 中共称未经批准不得出售  " alt="TikTok交易两头受限 中共称未经批准不得出售  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zxivak3555/djy/blob/master/gb/20/8/27/n12362241.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/强关P2P平台 中共维稳手段曝光      >-009fcc?logoWidth=1" title="强关P2P平台 中共维稳手段曝光  " alt="强关P2P平台 中共维稳手段曝光  "></a></p>
-<p><a href="https://github.com/zxivak3555/djy/blob/master/gb/20/8/30/n12367264.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/无惧中共 捷克参议院议长率大阵仗访团抵台  >-009fcc?logoWidth=1" title="无惧中共 捷克参议院议长率大阵仗访团抵台  " alt="无惧中共 捷克参议院议长率大阵仗访团抵台  "></a></p>
+<p><a href="https://github.com/zxivak3555/djy/blob/master/gb/20/8/31/n12368938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：全球产业链重构 “去中共化”无可避免 >-009fcc?logoWidth=1" title="王赫：全球产业链重构 “去中共化”无可避免  " alt="王赫：全球产业链重构 “去中共化”无可避免  "></a></p>
 <p><a href="https://github.com/zxivak3555/djy/blob/master/gb/20/8/30/n12368211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵立坚“铜墙铁壁”之说  网路骂声如潮   >-009fcc?logoWidth=1" title="赵立坚“铜墙铁壁”之说  网路骂声如潮  " alt="赵立坚“铜墙铁壁”之说  网路骂声如潮  "></a></p>
-<p><a href="https://github.com/zxivak3555/djy/blob/master/gb/20/8/30/n12367501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金融学者提醒大陆投资者：牛市是散户屠宰场  >-009fcc?logoWidth=1" title="金融学者提醒大陆投资者：牛市是散户屠宰场  " alt="金融学者提醒大陆投资者：牛市是散户屠宰场  "></a></p>
-<p><a href="https://github.com/zxivak3555/djy/blob/master/gb/20/8/30/n12368418.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抗共大事记：中共是人类公敌 美中南海角力(8>-009fcc?logoWidth=1" title="抗共大事记：中共是人类公敌 美中南海角力(8/24-8/30)  " alt="抗共大事记：中共是人类公敌 美中南海角力(8/24-8/30)  "></a></p>
+<p><a href="https://github.com/zxivak3555/djy/blob/master/gb/20/8/30/n12368709.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：赵乐际的“黑手”伸到香港去了吗？  >-009fcc?logoWidth=1" title="王友群：赵乐际的“黑手”伸到香港去了吗？  " alt="王友群：赵乐际的“黑手”伸到香港去了吗？  "></a></p>
+<p><a href="https://github.com/zxivak3555/djy/blob/master/gb/20/8/31/n12368792.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张慧东：名校博士们为何热衷去“街道办”工作 >-009fcc?logoWidth=1" title="张慧东：名校博士们为何热衷去“街道办”工作  " alt="张慧东：名校博士们为何热衷去“街道办”工作  "></a></p>
 <p><a href="https://github.com/zxivak3555/djy/blob/master/gb/20/8/30/n12368545.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共警察警旗亮相 彰显“党卫军”本色    >-009fcc?logoWidth=1" title="中共警察警旗亮相 彰显“党卫军”本色  " alt="中共警察警旗亮相 彰显“党卫军”本色  "></a></p>
-<p><a href="https://github.com/zxivak3555/djy/blob/master/gb/20/8/29/n12366829.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共政治局常委集体亮相表演秀     >-009fcc?logoWidth=1" title="钟原：中共政治局常委集体亮相表演秀  " alt="钟原：中共政治局常委集体亮相表演秀  "></a></p>
+<p><a href="https://github.com/zxivak3555/djy/blob/master/gb/20/8/30/n12368418.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抗共大事记：中共是人类公敌 美中南海角力(8>-009fcc?logoWidth=1" title="抗共大事记：中共是人类公敌 美中南海角力(8/24-8/30)  " alt="抗共大事记：中共是人类公敌 美中南海角力(8/24-8/30)  "></a></p>
 <p><a href="https://github.com/zxivak3555/djy/blob/master/gb/20/8/26/n12359153.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：美三轮制裁密不透风 把华为逼入绝境  >-009fcc?logoWidth=1" title="分析：美三轮制裁密不透风 把华为逼入绝境  " alt="分析：美三轮制裁密不透风 把华为逼入绝境  "></a></p>
 <p><a href="https://github.com/zxivak3555/djy/blob/master/gb/20/8/29/n12367009.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：天要灭中共 谁将被押上审判台？   >-009fcc?logoWidth=1" title="王友群：天要灭中共 谁将被押上审判台？  " alt="王友群：天要灭中共 谁将被押上审判台？  "></a></p>
-<p><a href="https://github.com/zxivak3555/djy/blob/master/gb/20/8/29/n12365613.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/离美前毁硬盘瞒军方关系 国防科大学生被捕  >-009fcc?logoWidth=1" title="离美前毁硬盘瞒军方关系 国防科大学生被捕  " alt="离美前毁硬盘瞒军方关系 国防科大学生被捕  "></a></p>
+<p><a href="https://github.com/zxivak3555/djy/blob/master/gb/20/8/31/n12369192.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件曝P2P爆雷秘密          >-009fcc?logoWidth=1" title="内部文件曝P2P爆雷秘密  " alt="内部文件曝P2P爆雷秘密  "></a></p>
 <p><a href="https://github.com/zxivak3555/djy/blob/master/gb/20/8/30/n12367320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蚂蚁集团将上市 江志成博裕资本持股额曝光  >-009fcc?logoWidth=1" title="蚂蚁集团将上市 江志成博裕资本持股额曝光  " alt="蚂蚁集团将上市 江志成博裕资本持股额曝光  "></a></p>
-<p><a href="https://github.com/zxivak3555/djy/blob/master/gb/20/8/31/n12368624.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国际旅行禁令再延期 谁可以来加拿大？    >-009fcc?logoWidth=1" title="国际旅行禁令再延期 谁可以来加拿大？  " alt="国际旅行禁令再延期 谁可以来加拿大？  "></a></p>
+<p><a href="https://github.com/zxivak3555/djy/blob/master/gb/20/8/31/n12368877.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：习近平整肃8年 政法委现新谋乱   >-009fcc?logoWidth=1" title="陈思敏：习近平整肃8年 政法委现新谋乱  " alt="陈思敏：习近平整肃8年 政法委现新谋乱  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/zxivak3555/djy/blob/master/gb/20/8/31/n12369021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：川普立即到灾区 中共高层为啥不能   >-009fcc?logoWidth=1" title="钟原：川普立即到灾区 中共高层为啥不能  " alt="钟原：川普立即到灾区 中共高层为啥不能  "></a></p>
 <p><a href="https://github.com/zxivak3555/ntdtv/blob/master/gb/2020/08/29/a102929421.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共监所恐怖刑具视频流出 网友震惊（多视频）>-009fcc?logoWidth=1" title="中共监所恐怖刑具视频流出 网友震惊（多视频）  " alt="中共监所恐怖刑具视频流出 网友震惊（多视频）  "></a></p>
 <p><a href="https://github.com/zxivak3555/ntdtv/blob/master/gb/2020/08/30/a102929680.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国紧张局势升温 蒙族全民抗议文化灭绝   >-009fcc?logoWidth=1" title="中国紧张局势升温 蒙族全民抗议文化灭绝  " alt="中国紧张局势升温 蒙族全民抗议文化灭绝  "></a></p>
+<p><a href="https://github.com/zxivak3555/djy/blob/master/gb/20/8/31/n12368816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/历史教授揭大饥荒真相 被停退休金      >-009fcc?logoWidth=1" title="历史教授揭大饥荒真相 被停退休金  " alt="历史教授揭大饥荒真相 被停退休金  "></a></p>
 <p><a href="https://github.com/zxivak3555/djy/blob/master/gb/20/8/30/n12368439.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国各大银行半年报净利大幅下滑 坏账增幅高达>-009fcc?logoWidth=1" title="中国各大银行半年报净利大幅下滑 坏账增幅高达18  " alt="中国各大银行半年报净利大幅下滑 坏账增幅高达18  "></a></p>
-<p><a href="https://github.com/zxivak3555/djy/blob/master/gb/20/8/30/n12368443.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/A股二十家公司上半年亏十亿 “两桶油”领亏 >-009fcc?logoWidth=1" title="A股二十家公司上半年亏十亿 “两桶油”领亏  " alt="A股二十家公司上半年亏十亿 “两桶油”领亏  "></a></p>
 <p><a href="https://github.com/zxivak3555/ntdtv/blob/master/gb/2020/08/30/a102929840.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惊悚！新竹风筝节刮7级风 女童被卷上天(视频>-009fcc?logoWidth=1" title="惊悚！新竹风筝节刮7级风 女童被卷上天(视频)  " alt="惊悚！新竹风筝节刮7级风 女童被卷上天(视频)  "></a></p>
 <p><a href="https://github.com/zxivak3555/ntdtv/blob/master/gb/2020/08/30/a102930046.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：川普巧用兵法打土共 金正恩突然宣布中>-009fcc?logoWidth=1" title="陈破空：川普巧用兵法打土共 金正恩突然宣布中国为敌国  " alt="陈破空：川普巧用兵法打土共 金正恩突然宣布中国为敌国  "></a></p>
-<p><a href="https://github.com/zxivak3555/djy/blob/master/gb/20/8/30/n12368597.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国整治吃播频道 主播爆解雇与离职潮    >-009fcc?logoWidth=1" title="中国整治吃播频道 主播爆解雇与离职潮  " alt="中国整治吃播频道 主播爆解雇与离职潮  "></a></p>
-<p><a href="https://github.com/zxivak3555/djy/blob/master/gb/20/8/27/n12361972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/统战部军方齐出动 中共海外猎才规模惊人   >-009fcc?logoWidth=1" title="统战部军方齐出动 中共海外猎才规模惊人  " alt="统战部军方齐出动 中共海外猎才规模惊人  "></a></p>
+<p><a href="https://github.com/zxivak3555/djy/blob/master/gb/20/8/31/n12368948.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧洲重申关注人权 法媒：王毅拉拢之行失败  >-009fcc?logoWidth=1" title="欧洲重申关注人权 法媒：王毅拉拢之行失败  " alt="欧洲重申关注人权 法媒：王毅拉拢之行失败  "></a></p>
+<p><a href="https://github.com/zxivak3555/djy/blob/master/gb/20/8/30/n12368443.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/A股二十家公司上半年亏十亿 “两桶油”领亏 >-009fcc?logoWidth=1" title="A股二十家公司上半年亏十亿 “两桶油”领亏  " alt="A股二十家公司上半年亏十亿 “两桶油”领亏  "></a></p>
 <p><a href="https://github.com/zxivak3555/ntdtv/blob/master/gb/2020/08/30/a102929780.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：安倍辞职 日本将迎来强硬反共首相  >-009fcc?logoWidth=1" title="周晓辉：安倍辞职 日本将迎来强硬反共首相  " alt="周晓辉：安倍辞职 日本将迎来强硬反共首相  "></a></p>
 <p><a href="https://github.com/zxivak3555/ntdtv/blob/master/gb/2020/08/30/a102929561.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/学者：川普的目标推翻中共制度并连根拔起   >-009fcc?logoWidth=1" title="学者：川普的目标推翻中共制度并连根拔起  " alt="学者：川普的目标推翻中共制度并连根拔起  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -260,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://zxivak3555.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?lnwwu">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?mwtbi">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?kcfva">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?yoamu">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?fxytl">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?uwtbs">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ihhif">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?lugcb">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/zxivak3555/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zxivak3555/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zxivak3555/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zxivak3555/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zxivak3555/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/zxivak3555/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zxivak3555/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zxivak3555/www/master/index.html?h">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zxivak3555/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/zxivak3555/www/blob/master/README.md?f%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/tkkkk">git.io/tkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/zzzzzzzz">git.io/zzzzzzzz</a></div>
 
