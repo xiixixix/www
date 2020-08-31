@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/vebhse3774/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/vebhse3774/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a2222">git.io/a2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3222">x.co/3222</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/zyyyy">git.io/zyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2229">x.co/2229</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,15 +40,14 @@
 <p><a href="https://github.com/vebhse3774/djy/blob/master/gb/20/8/31/n12368792.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张慧东：名校博士们为何热衷去“街道办”工作 >-009fcc?logoWidth=1" title="张慧东：名校博士们为何热衷去“街道办”工作  " alt="张慧东：名校博士们为何热衷去“街道办”工作  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/vebhse3774/ntdtv/blob/master/gb/2020/08/31/a102930351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨延昭经历“古井生木” 龙泉寺留神迹    >-009fcc?logoWidth=1" title="杨延昭经历“古井生木” 龙泉寺留神迹  " alt="杨延昭经历“古井生木” 龙泉寺留神迹  "></a></p>
-<p><a href="https://github.com/vebhse3774/djy/blob/master/gb/20/8/31/n12368977.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧洲华人聚集德国慕尼黑 揭中共恶魔真面目  >-009fcc?logoWidth=1" title="欧洲华人聚集德国慕尼黑 揭中共恶魔真面目  " alt="欧洲华人聚集德国慕尼黑 揭中共恶魔真面目  "></a></p>
 <p><a href="https://github.com/vebhse3774/ntdtv/blob/master/gb/2020/08/30/a102929633.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：习近平顾忌一事 中美不会开战     >-009fcc?logoWidth=1" title="专家：习近平顾忌一事 中美不会开战  " alt="专家：习近平顾忌一事 中美不会开战  "></a></p>
 <p><a href="https://github.com/vebhse3774/ntdtv/blob/master/gb/2020/08/31/a102930176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共封禁宗教场所 唯对毛泽东庙大开绿灯   >-009fcc?logoWidth=1" title="中共封禁宗教场所 唯对毛泽东庙大开绿灯  " alt="中共封禁宗教场所 唯对毛泽东庙大开绿灯  "></a></p>
+<p><a href="https://github.com/vebhse3774/djy/blob/master/gb/20/8/31/n12368977.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧洲华人聚集德国慕尼黑 揭中共恶魔真面目  >-009fcc?logoWidth=1" title="欧洲华人聚集德国慕尼黑 揭中共恶魔真面目  " alt="欧洲华人聚集德国慕尼黑 揭中共恶魔真面目  "></a></p>
 <p><a href="https://github.com/vebhse3774/djy/blob/master/gb/20/8/31/n12368877.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：习近平整肃8年 政法委现新谋乱   >-009fcc?logoWidth=1" title="陈思敏：习近平整肃8年 政法委现新谋乱  " alt="陈思敏：习近平整肃8年 政法委现新谋乱  "></a></p>
-<p><a href="https://github.com/vebhse3774/djy/blob/master/gb/20/8/31/n12369820.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边界再爆冲突 印方指责中共挑起军事争端 >-009fcc?logoWidth=1" title="中印边界再爆冲突 印方指责中共挑起军事争端  " alt="中印边界再爆冲突 印方指责中共挑起军事争端  "></a></p>
 <p><a href="https://github.com/vebhse3774/ntdtv/blob/master/gb/2020/08/31/a102930283.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：中共党媒忽然自曝隐瞒疫情新证据    >-009fcc?logoWidth=1" title="杨威：中共党媒忽然自曝隐瞒疫情新证据  " alt="杨威：中共党媒忽然自曝隐瞒疫情新证据  "></a></p>
 <p><a href="https://github.com/vebhse3774/ntdtv/blob/master/gb/2020/08/30/a102930046.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：川普巧用兵法打土共 金正恩突然宣布中>-009fcc?logoWidth=1" title="陈破空：川普巧用兵法打土共 金正恩突然宣布中国为敌国  " alt="陈破空：川普巧用兵法打土共 金正恩突然宣布中国为敌国  "></a></p>
+<p><a href="https://github.com/vebhse3774/djy/blob/master/gb/20/8/31/n12369820.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边界再爆冲突 印方指责中共挑起军事争端 >-009fcc?logoWidth=1" title="中印边界再爆冲突 印方指责中共挑起军事争端  " alt="中印边界再爆冲突 印方指责中共挑起军事争端  "></a></p>
 <p><a href="https://github.com/vebhse3774/djy/blob/master/gb/20/8/31/n12369021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：川普立即到灾区 中共高层为啥不能   >-009fcc?logoWidth=1" title="钟原：川普立即到灾区 中共高层为啥不能  " alt="钟原：川普立即到灾区 中共高层为啥不能  "></a></p>
-<p><a href="https://github.com/vebhse3774/djy/blob/master/gb/20/8/31/n12369605.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军为何不怕中共的东风系列导弹？      >-009fcc?logoWidth=1" title="美军为何不怕中共的东风系列导弹？  " alt="美军为何不怕中共的东风系列导弹？  "></a></p>
 <p><a href="https://github.com/vebhse3774/ntdtv/blob/master/gb/2020/08/31/a102930209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/11个购物迷思 主厨教你如何省钱不浪费食物 >-009fcc?logoWidth=1" title="11个购物迷思 主厨教你如何省钱不浪费食物  " alt="11个购物迷思 主厨教你如何省钱不浪费食物  "></a></p>
 <p><a href="https://github.com/vebhse3774/ntdtv/blob/master/gb/2020/08/31/a102930116.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/云南蝗灾肆虐11个县 灾情迅速扩展难以控制 >-009fcc?logoWidth=1" title="云南蝗灾肆虐11个县 灾情迅速扩展难以控制  " alt="云南蝗灾肆虐11个县 灾情迅速扩展难以控制  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -262,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://vebhse3774.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?hispc">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ktcpz">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?bzdod">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?wzqij">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -308,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?blykx">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?cjvvu">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?wzvon">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?yxldv">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -488,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/vebhse3774/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vebhse3774/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/vebhse3774/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vebhse3774/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vebhse3774/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/vebhse3774/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vebhse3774/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/vebhse3774/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vebhse3774/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/vebhse3774/www/blob/master/README.md?k%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/a2222">git.io/a2222</a></div>
+<div align="center">短网址: <a href="https://git.io/zyyyy">git.io/zyyyy</a></div>
 
