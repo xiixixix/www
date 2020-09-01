@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/neniss317/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/neniss317/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/iffff">git.io/iffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3366">x.co/3366</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jrrrr">git.io/jrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppf">x.co/ppf</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/09/01/a102931117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒：王毅拉拢欧洲彻底失败 各国不信任中共 >-009fcc?logoWidth=1" title="外媒：王毅拉拢欧洲彻底失败 各国不信任中共  " alt="外媒：王毅拉拢欧洲彻底失败 各国不信任中共  "></a></p>
 <p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/09/01/a102931103.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲调查病毒 澳籍央视主播被拘       >-009fcc?logoWidth=1" title="澳洲调查病毒 澳籍央视主播被拘  " alt="澳洲调查病毒 澳籍央视主播被拘  "></a></p>
 <p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/09/01/a102931075.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/UFO来过？北极圈突现50米神秘大洞(视频）>-009fcc?logoWidth=1" title="UFO来过？北极圈突现50米神秘大洞(视频）  " alt="UFO来过？北极圈突现50米神秘大洞(视频）  "></a></p>
 <p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/09/01/a102931059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网民：安倍能上能下 中共高官上去下不来   >-009fcc?logoWidth=1" title="网民：安倍能上能下 中共高官上去下不来  " alt="网民：安倍能上能下 中共高官上去下不来  "></a></p>
 <p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/09/01/a102930940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刚复出即遭吴秀波起诉 范冰冰叹人情冷暖   >-009fcc?logoWidth=1" title="刚复出即遭吴秀波起诉 范冰冰叹人情冷暖  " alt="刚复出即遭吴秀波起诉 范冰冰叹人情冷暖  "></a></p>
 <p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/09/01/a102930944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多地淹没 房子冲毁 安徽数万人泡水40天无救>-009fcc?logoWidth=1" title="多地淹没 房子冲毁 安徽数万人泡水40天无救援(视频)  " alt="多地淹没 房子冲毁 安徽数万人泡水40天无救援(视频)  "></a></p>
-<p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/09/01/a102930887.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普拟限制中国学生赴美 蓬佩奥：未来几周内有>-009fcc?logoWidth=1" title="川普拟限制中国学生赴美 蓬佩奥：未来几周内有动作  " alt="川普拟限制中国学生赴美 蓬佩奥：未来几周内有动作  "></a></p>
-<p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/09/01/a102931117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒：王毅拉拢欧洲彻底失败 各国不信任中共 >-009fcc?logoWidth=1" title="外媒：王毅拉拢欧洲彻底失败 各国不信任中共  " alt="外媒：王毅拉拢欧洲彻底失败 各国不信任中共  "></a></p>
-<p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/09/01/a102931046.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆当局强制防疫 强迫民众喝不明中药    >-009fcc?logoWidth=1" title="新疆当局强制防疫 强迫民众喝不明中药  " alt="新疆当局强制防疫 强迫民众喝不明中药  "></a></p>
+<p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/09/01/a102931046.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆防疫强迫民众喝不明中药 服用者虚弱恶心 >-009fcc?logoWidth=1" title="新疆防疫强迫民众喝不明中药 服用者虚弱恶心  " alt="新疆防疫强迫民众喝不明中药 服用者虚弱恶心  "></a></p>
 <p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/09/01/a102930975.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/受惠疫情Q2大赚 Zoom盘后股价飙涨逾22>-009fcc?logoWidth=1" title="受惠疫情Q2大赚 Zoom盘后股价飙涨逾22  " alt="受惠疫情Q2大赚 Zoom盘后股价飙涨逾22  "></a></p>
 <p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/09/01/a102931006.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何将健康人摧残致疯（4）       >-009fcc?logoWidth=1" title="中共为何将健康人摧残致疯（4）  " alt="中共为何将健康人摧残致疯（4）  "></a></p>
 <p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/09/01/a102930983.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洪灾泛滥 习近平倡议“惜食”又要“节水”  >-009fcc?logoWidth=1" title="洪灾泛滥 习近平倡议“惜食”又要“节水”  " alt="洪灾泛滥 习近平倡议“惜食”又要“节水”  "></a></p>
+<p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/09/01/a102930976.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗：不只禁微信 美将打击更多中共软件  >-009fcc?logoWidth=1" title="纳瓦罗：不只禁微信 美将打击更多中共软件  " alt="纳瓦罗：不只禁微信 美将打击更多中共软件  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/neniss317/djy/blob/master/gb/20/8/31/n12371336.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网络也纳入中共“网格化”管控        >-009fcc?logoWidth=1" title="网络也纳入中共“网格化”管控  " alt="网络也纳入中共“网格化”管控  "></a></p>
 <p><a href="https://github.com/neniss317/djy/blob/master/gb/20/8/31/n12371303.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：中共会冒险发动核战吗？        >-009fcc?logoWidth=1" title="沈舟：中共会冒险发动核战吗？  " alt="沈舟：中共会冒险发动核战吗？  "></a></p>
@@ -41,12 +41,14 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/09/01/a102931002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎实际致死不足万人？美CDC新报告解密>-009fcc?logoWidth=1" title="中共肺炎实际致死不足万人？美CDC新报告解密  " alt="中共肺炎实际致死不足万人？美CDC新报告解密  "></a></p>
 <p><a href="https://github.com/neniss317/djy/blob/master/gb/20/8/31/n12371057.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：几周内推出更多限制中国学生政策   >-009fcc?logoWidth=1" title="蓬佩奥：几周内推出更多限制中国学生政策  " alt="蓬佩奥：几周内推出更多限制中国学生政策  "></a></p>
+<p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/09/01/a102931104.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习要建川藏铁路 治藏两大难题无解      >-009fcc?logoWidth=1" title="习要建川藏铁路 治藏两大难题无解  " alt="习要建川藏铁路 治藏两大难题无解  "></a></p>
 <p><a href="https://github.com/neniss317/djy/blob/master/gb/20/8/31/n12371068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅威胁遭反弹 川普民调领先        >-009fcc?logoWidth=1" title="王毅威胁遭反弹 川普民调领先  " alt="王毅威胁遭反弹 川普民调领先  "></a></p>
 <p><a href="https://github.com/neniss317/djy/blob/master/gb/20/8/31/n12371079.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/云南爆发数十年最严重蝗灾 农户不知所措   >-009fcc?logoWidth=1" title="云南爆发数十年最严重蝗灾 农户不知所措  " alt="云南爆发数十年最严重蝗灾 农户不知所措  "></a></p>
-<p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/08/31/a102930778.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度指挫败共军边境挑衅 中共反称印军越界  >-009fcc?logoWidth=1" title="印度指挫败共军边境挑衅 中共反称印军越界  " alt="印度指挫败共军边境挑衅 中共反称印军越界  "></a></p>
+<p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/08/31/a102930550.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军机疑起降台湾 党媒恐吓:如属实将开战  >-009fcc?logoWidth=1" title="美军机疑起降台湾 党媒恐吓:如属实将开战  " alt="美军机疑起降台湾 党媒恐吓:如属实将开战  "></a></p>
 <p><a href="https://github.com/neniss317/djy/blob/master/gb/20/8/31/n12371094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共新规阻TikTok出售？蓬佩奥谈川普立场>-009fcc?logoWidth=1" title="中共新规阻TikTok出售？蓬佩奥谈川普立场  " alt="中共新规阻TikTok出售？蓬佩奥谈川普立场  "></a></p>
 <p><a href="https://github.com/neniss317/djy/blob/master/gb/20/8/31/n12370380.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙强推汉语教学引爆大规模罢课和抗议    >-009fcc?logoWidth=1" title="内蒙强推汉语教学引爆大规模罢课和抗议  " alt="内蒙强推汉语教学引爆大规模罢课和抗议  "></a></p>
-<p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/08/31/a102930713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军4大据点遏中共 央视惊呼:“网兜形”包围>-009fcc?logoWidth=1" title="美军4大据点遏中共 央视惊呼:“网兜形”包围  " alt="美军4大据点遏中共 央视惊呼:“网兜形”包围  "></a></p>
+<p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/09/01/a102930887.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普拟限制中国学生赴美 蓬佩奥：未来几周内有>-009fcc?logoWidth=1" title="川普拟限制中国学生赴美 蓬佩奥：未来几周内有动作  " alt="川普拟限制中国学生赴美 蓬佩奥：未来几周内有动作  "></a></p>
+<p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/08/31/a102930778.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度指挫败共军边境挑衅 中共反称印军越界  >-009fcc?logoWidth=1" title="印度指挫败共军边境挑衅 中共反称印军越界  " alt="印度指挫败共军边境挑衅 中共反称印军越界  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -258,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://neniss317.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?andrx">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?jrqil">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?tiwhi">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?bcnvc">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -304,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?jbavq">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ozpvg">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?zkxns">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?kztnv">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -484,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/neniss317/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/neniss317/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/neniss317/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/neniss317/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/neniss317/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/neniss317/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/neniss317/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/neniss317/www/master/index.html?y">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/neniss317/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/neniss317/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/iffff">git.io/iffff</a></div>
+<div align="center">短网址: <a href="https://git.io/jrrrr">git.io/jrrrr</a></div>
 
