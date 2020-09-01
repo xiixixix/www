@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/toehso392/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/toehso392/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/6666666">git.io/6666666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2777">x.co/2777</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a6666">git.io/a6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/psp">x.co/psp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,13 +40,14 @@
 <p><a href="https://github.com/toehso392/djy/blob/master/gb/20/9/1/n12371888.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/毛泽东是勾结日寇的卖国大汉奸        >-009fcc?logoWidth=1" title="毛泽东是勾结日寇的卖国大汉奸  " alt="毛泽东是勾结日寇的卖国大汉奸  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/toehso392/ntdtv/blob/master/gb/2020/08/31/a102930544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国科学家一天飞进飓风5次 拍下罕见画面  >-009fcc?logoWidth=1" title="美国科学家一天飞进飓风5次 拍下罕见画面  " alt="美国科学家一天飞进飓风5次 拍下罕见画面  "></a></p>
+<p><a href="https://github.com/toehso392/ntdtv/blob/master/gb/2020/09/01/a102931128.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：王毅喊话欧洲联合抗美 恐掀大风暴   >-009fcc?logoWidth=1" title="杨威：王毅喊话欧洲联合抗美 恐掀大风暴  " alt="杨威：王毅喊话欧洲联合抗美 恐掀大风暴  "></a></p>
 <p><a href="https://github.com/toehso392/djy/blob/master/gb/20/9/1/n12372107.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美企将供应链移出中国 寻求本土或近岸采购  >-009fcc?logoWidth=1" title="美企将供应链移出中国 寻求本土或近岸采购  " alt="美企将供应链移出中国 寻求本土或近岸采购  "></a></p>
 <p><a href="https://github.com/toehso392/djy/blob/master/gb/20/8/31/n12371057.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：几周内推出更多限制中国学生政策   >-009fcc?logoWidth=1" title="蓬佩奥：几周内推出更多限制中国学生政策  " alt="蓬佩奥：几周内推出更多限制中国学生政策  "></a></p>
-<p><a href="https://github.com/toehso392/ntdtv/blob/master/gb/2020/08/30/a102929633.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：习近平顾忌一事 中美不会开战     >-009fcc?logoWidth=1" title="专家：习近平顾忌一事 中美不会开战  " alt="专家：习近平顾忌一事 中美不会开战  "></a></p>
-<p><a href="https://github.com/toehso392/ntdtv/blob/master/gb/2020/08/31/a102930072.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最大独角兽公司将上市 江泽民孙子持股额曝光 >-009fcc?logoWidth=1" title="最大独角兽公司将上市 江泽民孙子持股额曝光  " alt="最大独角兽公司将上市 江泽民孙子持股额曝光  "></a></p>
+<p><a href="https://github.com/toehso392/ntdtv/blob/master/gb/2020/09/01/a102930987.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美大学驱逐公派中国留学生 15人遭遣返   >-009fcc?logoWidth=1" title="美大学驱逐公派中国留学生 15人遭遣返  " alt="美大学驱逐公派中国留学生 15人遭遣返  "></a></p>
+<p><a href="https://github.com/toehso392/ntdtv/blob/master/gb/2020/09/01/a102930890.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2.7万架次无人机难挡 云南爆数十年最严重蝗>-009fcc?logoWidth=1" title="2.7万架次无人机难挡 云南爆数十年最严重蝗灾  " alt="2.7万架次无人机难挡 云南爆数十年最严重蝗灾  "></a></p>
 <p><a href="https://github.com/toehso392/djy/blob/master/gb/20/8/31/n12370380.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙强推汉语教学引爆大规模罢课和抗议    >-009fcc?logoWidth=1" title="内蒙强推汉语教学引爆大规模罢课和抗议  " alt="内蒙强推汉语教学引爆大规模罢课和抗议  "></a></p>
 <p><a href="https://github.com/toehso392/djy/blob/master/gb/20/9/1/n12371658.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙掀抗议潮 当局要军车镇压？       >-009fcc?logoWidth=1" title="内蒙掀抗议潮 当局要军车镇压？  " alt="内蒙掀抗议潮 当局要军车镇压？  "></a></p>
-<p><a href="https://github.com/toehso392/ntdtv/blob/master/gb/2020/09/01/a102931133.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/横河：从U2、航母杀手到制裁 南海会冲突吗？>-009fcc?logoWidth=1" title="横河：从U2、航母杀手到制裁 南海会冲突吗？  " alt="横河：从U2、航母杀手到制裁 南海会冲突吗？  "></a></p>
+<p><a href="https://github.com/toehso392/ntdtv/blob/master/gb/2020/08/31/a102930072.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最大独角兽公司将上市 江泽民孙子持股额曝光 >-009fcc?logoWidth=1" title="最大独角兽公司将上市 江泽民孙子持股额曝光  " alt="最大独角兽公司将上市 江泽民孙子持股额曝光  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -258,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://toehso392.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?bioob">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?rguan">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?vjrsc">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?rpuiw">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -304,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?jownr">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?uqwkl">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?mxqcw">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ojhfg">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -484,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/toehso392/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/toehso392/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/toehso392/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/toehso392/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/toehso392/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/toehso392/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/toehso392/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/toehso392/www/master/index.html?p">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/toehso392/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/toehso392/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/6666666">git.io/6666666</a></div>
+<div align="center">短网址: <a href="https://git.io/a6666">git.io/a6666</a></div>
 
