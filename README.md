@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/neniss317/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/neniss317/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eeeeeeee">git.io/eeeeeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp9">x.co/pp9</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cpppp">git.io/cpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/uaa">x.co/uaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,15 @@
 <p><a href="https://github.com/neniss317/djy/blob/master/gb/20/9/1/n12371888.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/毛泽东是勾结日寇的卖国大汉奸        >-009fcc?logoWidth=1" title="毛泽东是勾结日寇的卖国大汉奸  " alt="毛泽东是勾结日寇的卖国大汉奸  "></a></p>
 <p><a href="https://github.com/neniss317/djy/blob/master/gb/20/8/31/n12370398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒曝中共病毒疫苗或加重病症 1天内急删  >-009fcc?logoWidth=1" title="陆媒曝中共病毒疫苗或加重病症 1天内急删  " alt="陆媒曝中共病毒疫苗或加重病症 1天内急删  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/09/01/a102930858.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅威胁付出代价 捷克外长召见中共大使讨说法>-009fcc?logoWidth=1" title="王毅威胁付出代价 捷克外长召见中共大使讨说法  " alt="王毅威胁付出代价 捷克外长召见中共大使讨说法  "></a></p>
-<p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/08/31/a102930521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳籍华裔女主播成蕾北京被拘 曾供职CGTN >-009fcc?logoWidth=1" title="澳籍华裔女主播成蕾北京被拘 曾供职CGTN  " alt="澳籍华裔女主播成蕾北京被拘 曾供职CGTN  "></a></p>
+<p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/09/01/a102931011.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/继新疆和香港之后 习近平又在内蒙西藏加速  >-009fcc?logoWidth=1" title="继新疆和香港之后 习近平又在内蒙西藏加速  " alt="继新疆和香港之后 习近平又在内蒙西藏加速  "></a></p>
 <p><a href="https://github.com/neniss317/djy/blob/master/gb/20/8/31/n12371079.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/云南爆发数十年最严重蝗灾 农户不知所措   >-009fcc?logoWidth=1" title="云南爆发数十年最严重蝗灾 农户不知所措  " alt="云南爆发数十年最严重蝗灾 农户不知所措  "></a></p>
 <p><a href="https://github.com/neniss317/djy/blob/master/gb/20/8/31/n12371094.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共新规阻TikTok出售？蓬佩奥谈川普立场>-009fcc?logoWidth=1" title="中共新规阻TikTok出售？蓬佩奥谈川普立场  " alt="中共新规阻TikTok出售？蓬佩奥谈川普立场  "></a></p>
-<p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/08/30/a102929919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/史上最强炸弹曝光！中共导弹提前坠落？    >-009fcc?logoWidth=1" title="史上最强炸弹曝光！中共导弹提前坠落？  " alt="史上最强炸弹曝光！中共导弹提前坠落？  "></a></p>
-<p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/08/31/a102930714.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙禁蒙语教学万民抗议 警暴力镇压一学生坠楼>-009fcc?logoWidth=1" title="内蒙禁蒙语教学万民抗议 警暴力镇压一学生坠楼  " alt="内蒙禁蒙语教学万民抗议 警暴力镇压一学生坠楼  "></a></p>
+<p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/09/01/a102930926.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法院确定班农案审判日期 3被告均称无罪   >-009fcc?logoWidth=1" title="法院确定班农案审判日期 3被告均称无罪  " alt="法院确定班农案审判日期 3被告均称无罪  "></a></p>
+<p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/09/01/a102930858.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅威胁付出代价 捷克外长召见中共大使讨说法>-009fcc?logoWidth=1" title="王毅威胁付出代价 捷克外长召见中共大使讨说法  " alt="王毅威胁付出代价 捷克外长召见中共大使讨说法  "></a></p>
 <p><a href="https://github.com/neniss317/djy/blob/master/gb/20/8/31/n12370762.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵立坚再拿“中国人民”说事 网民驳斥    >-009fcc?logoWidth=1" title="赵立坚再拿“中国人民”说事 网民驳斥  " alt="赵立坚再拿“中国人民”说事 网民驳斥  "></a></p>
 <p><a href="https://github.com/neniss317/djy/blob/master/gb/20/8/31/n12370380.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙强推汉语教学引爆大规模罢课和抗议    >-009fcc?logoWidth=1" title="内蒙强推汉语教学引爆大规模罢课和抗议  " alt="内蒙强推汉语教学引爆大规模罢课和抗议  "></a></p>
-<p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/08/31/a102930298.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/安倍职辞另有内情？学者：与美联手对付中共  >-009fcc?logoWidth=1" title="安倍职辞另有内情？学者：与美联手对付中共  " alt="安倍职辞另有内情？学者：与美联手对付中共  "></a></p>
-<p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/08/31/a102930204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：东风导弹演砸 习近平南海被“钓鱼”  >-009fcc?logoWidth=1" title="分析：东风导弹演砸 习近平南海被“钓鱼”  " alt="分析：东风导弹演砸 习近平南海被“钓鱼”  "></a></p>
+<p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/08/31/a102930521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳籍华裔女主播成蕾北京被拘 曾供职CGTN >-009fcc?logoWidth=1" title="澳籍华裔女主播成蕾北京被拘 曾供职CGTN  " alt="澳籍华裔女主播成蕾北京被拘 曾供职CGTN  "></a></p>
+<p><a href="https://github.com/neniss317/ntdtv/blob/master/gb/2020/08/30/a102929919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/史上最强炸弹曝光！中共导弹提前坠落？    >-009fcc?logoWidth=1" title="史上最强炸弹曝光！中共导弹提前坠落？  " alt="史上最强炸弹曝光！中共导弹提前坠落？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -260,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://neniss317.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?hotvc">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?mlvai">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?mwofm">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?vaetn">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?hezpr">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?rfyqb">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?xvvin">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?elnlw">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/neniss317/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/neniss317/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/neniss317/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/neniss317/www/blob/master/README.md?d#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/neniss317/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/neniss317/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/neniss317/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/neniss317/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/neniss317/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/neniss317/www/blob/master/README.md?r%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/eeeeeeee">git.io/eeeeeeee</a></div>
+<div align="center">短网址: <a href="https://git.io/cpppp">git.io/cpppp</a></div>
 
