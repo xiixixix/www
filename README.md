@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aecaqq377/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aecaqq377/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bxxxx">git.io/bxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2pp">x.co/2pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jeeee">git.io/jeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/8aa">x.co/8aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/aecaqq377/ntdtv/blob/master/gb/2020/09/02/a102931870.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强急了？要各地“想办法”保证养老金发放 >-009fcc?logoWidth=1" title="李克强急了？要各地“想办法”保证养老金发放  " alt="李克强急了？要各地“想办法”保证养老金发放  "></a></p>
 <p><a href="https://github.com/aecaqq377/ntdtv/blob/master/gb/2020/09/02/a102931823.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐娟案再添变数 检控方不同意神秘C先生保释 >-009fcc?logoWidth=1" title="唐娟案再添变数 检控方不同意神秘C先生保释  " alt="唐娟案再添变数 检控方不同意神秘C先生保释  "></a></p>
 <p><a href="https://github.com/aecaqq377/ntdtv/blob/master/gb/2020/09/02/a102931787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视华裔女记者成蕾被捕 曾对北京处理疫情不满>-009fcc?logoWidth=1" title="央视华裔女记者成蕾被捕 曾对北京处理疫情不满  " alt="央视华裔女记者成蕾被捕 曾对北京处理疫情不满  "></a></p>
+<p><a href="https://github.com/aecaqq377/ntdtv/blob/master/gb/2020/09/02/a102932276.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千年不遇 中国东北一周内迎来第二个强台风  >-009fcc?logoWidth=1" title="千年不遇 中国东北一周内迎来第二个强台风  " alt="千年不遇 中国东北一周内迎来第二个强台风  "></a></p>
+<p><a href="https://github.com/aecaqq377/ntdtv/blob/master/gb/2020/09/02/a102932266.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海外民运发起“改变中国2020”和宪政运动 >-009fcc?logoWidth=1" title="海外民运发起“改变中国2020”和宪政运动 促民主转型  " alt="海外民运发起“改变中国2020”和宪政运动 促民主转型  "></a></p>
+<p><a href="https://github.com/aecaqq377/ntdtv/blob/master/gb/2020/09/02/a102932269.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日官房长官菅义伟参选首相 将坚固日美同盟  >-009fcc?logoWidth=1" title="日官房长官菅义伟参选首相 将坚固日美同盟  " alt="日官房长官菅义伟参选首相 将坚固日美同盟  "></a></p>
 <p><a href="https://github.com/aecaqq377/ntdtv/blob/master/gb/2020/09/02/a102932242.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普指定威明顿为首个二战遗产城市（同声翻译）>-009fcc?logoWidth=1" title="川普指定威明顿为首个二战遗产城市（同声翻译）  " alt="川普指定威明顿为首个二战遗产城市（同声翻译）  "></a></p>
 <p><a href="https://github.com/aecaqq377/ntdtv/blob/master/gb/2020/09/02/a102932162.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共战狼外交受挫 王毅欧洲行彻底失败    >-009fcc?logoWidth=1" title="中共战狼外交受挫 王毅欧洲行彻底失败  " alt="中共战狼外交受挫 王毅欧洲行彻底失败  "></a></p>
-<p><a href="https://github.com/aecaqq377/ntdtv/blob/master/gb/2020/09/02/a102932101.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/BLM暴徒枪杀川普支持者 多团体吁极左市长下>-009fcc?logoWidth=1" title="BLM暴徒枪杀川普支持者 多团体吁极左市长下台  " alt="BLM暴徒枪杀川普支持者 多团体吁极左市长下台  "></a></p>
-<p><a href="https://github.com/aecaqq377/ntdtv/blob/master/gb/2020/09/02/a102932150.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲近30年首次衰退 拉美病例激增古巴宵禁 >-009fcc?logoWidth=1" title="澳洲近30年首次衰退 拉美病例激增古巴宵禁  " alt="澳洲近30年首次衰退 拉美病例激增古巴宵禁  "></a></p>
-<p><a href="https://github.com/aecaqq377/ntdtv/blob/master/gb/2020/09/02/a102932121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾更换新版护照设计 明年一月发行     >-009fcc?logoWidth=1" title="台湾更换新版护照设计 明年一月发行  " alt="台湾更换新版护照设计 明年一月发行  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/aecaqq377/djy/blob/master/gb/20/9/1/n12373955.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共加速灭亡的一个重要原因     >-009fcc?logoWidth=1" title="王友群：中共加速灭亡的一个重要原因  " alt="王友群：中共加速灭亡的一个重要原因  "></a></p>
 <p><a href="https://github.com/aecaqq377/djy/blob/master/gb/20/9/1/n12373361.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强要求发足养老金 专家：地方难填无底洞 >-009fcc?logoWidth=1" title="李克强要求发足养老金 专家：地方难填无底洞  " alt="李克强要求发足养老金 专家：地方难填无底洞  "></a></p>
@@ -261,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://aecaqq377.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?wzyrp">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?jmkyh">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?cutfk">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?xvneq">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?tejkf">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?itlwe">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?wfhwp">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?cmqvl">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aecaqq377/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aecaqq377/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aecaqq377/www/master/index.html?p">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aecaqq377/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aecaqq377/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aecaqq377/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aecaqq377/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aecaqq377/www/master/index.html?r">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aecaqq377/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aecaqq377/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/bxxxx">git.io/bxxxx</a></div>
+<div align="center">短网址: <a href="https://git.io/jeeee">git.io/jeeee</a></div>
 
