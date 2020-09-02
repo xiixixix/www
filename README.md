@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/chiifr312/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/chiifr312/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b3333">git.io/b3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pps">x.co/pps</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/2pppp">git.io/2pppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2223">x.co/2223</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,28 +27,28 @@
 <p><a href="https://github.com/chiifr312/ntdtv/blob/master/gb/2020/09/01/a102931560.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/保护母语 内蒙数万蒙古人罢课集会抗议    >-009fcc?logoWidth=1" title="保护母语 内蒙数万蒙古人罢课集会抗议  " alt="保护母语 内蒙数万蒙古人罢课集会抗议  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/chiifr312/djy/blob/master/gb/20/9/1/n12373361.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强要求发足养老金 专家：地方难填无底洞 >-009fcc?logoWidth=1" title="李克强要求发足养老金 专家：地方难填无底洞  " alt="李克强要求发足养老金 专家：地方难填无底洞  "></a></p>
-<p><a href="https://github.com/chiifr312/djy/blob/master/gb/20/9/1/n12373741.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五角大楼警告：未来十年中国核弹头将翻倍   >-009fcc?logoWidth=1" title="五角大楼警告：未来十年中国核弹头将翻倍  " alt="五角大楼警告：未来十年中国核弹头将翻倍  "></a></p>
-<p><a href="https://github.com/chiifr312/djy/blob/master/gb/20/8/31/n12371303.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：中共会冒险发动核战吗？        >-009fcc?logoWidth=1" title="沈舟：中共会冒险发动核战吗？  " alt="沈舟：中共会冒险发动核战吗？  "></a></p>
-<p><a href="https://github.com/chiifr312/djy/blob/master/gb/20/9/1/n12372657.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒再推专题骂蓬佩奥 舆论反击中共无药可救 >-009fcc?logoWidth=1" title="党媒再推专题骂蓬佩奥 舆论反击中共无药可救  " alt="党媒再推专题骂蓬佩奥 舆论反击中共无药可救  "></a></p>
+<p><a href="https://github.com/chiifr312/djy/blob/master/gb/20/9/1/n12373356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：美国情报总监暗示已手握北京罪证   >-009fcc?logoWidth=1" title="周晓辉：美国情报总监暗示已手握北京罪证  " alt="周晓辉：美国情报总监暗示已手握北京罪证  "></a></p>
+<p><a href="https://github.com/chiifr312/djy/blob/master/gb/20/9/1/n12373741.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五角大楼警告：未来十年中共核弹头翻倍    >-009fcc?logoWidth=1" title="五角大楼警告：未来十年中共核弹头翻倍  " alt="五角大楼警告：未来十年中共核弹头翻倍  "></a></p>
 <p><a href="https://github.com/chiifr312/djy/blob/master/gb/20/8/31/n12371336.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网络也纳入中共“网格化”管控        >-009fcc?logoWidth=1" title="网络也纳入中共“网格化”管控  " alt="网络也纳入中共“网格化”管控  "></a></p>
+<p><a href="https://github.com/chiifr312/djy/blob/master/gb/20/9/1/n12372846.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/捷克市长致信王毅：你是无理的粗鲁小丑    >-009fcc?logoWidth=1" title="捷克市长致信王毅：你是无理的粗鲁小丑  " alt="捷克市长致信王毅：你是无理的粗鲁小丑  "></a></p>
 <p><a href="https://github.com/chiifr312/djy/blob/master/gb/20/9/1/n12373233.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙罢课逃校 当局强令维稳         >-009fcc?logoWidth=1" title="内蒙罢课逃校 当局强令维稳  " alt="内蒙罢课逃校 当局强令维稳  "></a></p>
-<p><a href="https://github.com/chiifr312/djy/blob/master/gb/20/9/1/n12373539.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共黄海渤海接连军演 航母露面引猜测    >-009fcc?logoWidth=1" title="中共黄海渤海接连军演 航母露面引猜测  " alt="中共黄海渤海接连军演 航母露面引猜测  "></a></p>
+<p><a href="https://github.com/chiifr312/djy/blob/master/gb/20/9/1/n12372657.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒再推专题骂蓬佩奥 舆论反击中共无药可救 >-009fcc?logoWidth=1" title="党媒再推专题骂蓬佩奥 舆论反击中共无药可救  " alt="党媒再推专题骂蓬佩奥 舆论反击中共无药可救  "></a></p>
 <p><a href="https://github.com/chiifr312/djy/blob/master/gb/20/8/27/n12362241.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/强关P2P平台 中共维稳手段曝光      >-009fcc?logoWidth=1" title="强关P2P平台 中共维稳手段曝光  " alt="强关P2P平台 中共维稳手段曝光  "></a></p>
 <p><a href="https://github.com/chiifr312/djy/blob/master/gb/20/9/1/n12373697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2亿元飞机半价也卖不出 赵本山遭女儿吐槽  >-009fcc?logoWidth=1" title="2亿元飞机半价也卖不出 赵本山遭女儿吐槽  " alt="2亿元飞机半价也卖不出 赵本山遭女儿吐槽  "></a></p>
-<p><a href="https://github.com/chiifr312/djy/blob/master/gb/20/9/1/n12371864.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国北德州大学突下令驱逐中国公派生     >-009fcc?logoWidth=1" title="美国北德州大学突下令驱逐中国公派生  " alt="美国北德州大学突下令驱逐中国公派生  "></a></p>
+<p><a href="https://github.com/chiifr312/djy/blob/master/gb/20/9/1/n12373539.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共黄海渤海接连军演 航母露面引猜测    >-009fcc?logoWidth=1" title="中共黄海渤海接连军演 航母露面引猜测  " alt="中共黄海渤海接连军演 航母露面引猜测  "></a></p>
+<p><a href="https://github.com/chiifr312/djy/blob/master/gb/20/9/1/n12373653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共高层忽又隐身担心什么？      >-009fcc?logoWidth=1" title="钟原：中共高层忽又隐身担心什么？  " alt="钟原：中共高层忽又隐身担心什么？  "></a></p>
 <p><a href="https://github.com/chiifr312/djy/blob/master/gb/20/9/1/n12373014.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳籍央视女主播被中共拘留          >-009fcc?logoWidth=1" title="澳籍央视女主播被中共拘留  " alt="澳籍央视女主播被中共拘留  "></a></p>
-<p><a href="https://github.com/chiifr312/djy/blob/master/gb/20/9/1/n12373278.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大使馆向匈牙利议员施压 信件曝光    >-009fcc?logoWidth=1" title="中共大使馆向匈牙利议员施压 信件曝光  " alt="中共大使馆向匈牙利议员施压 信件曝光  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/chiifr312/ntdtv/blob/master/gb/2020/09/01/a102931417.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共反川普狂扰大选 美国家情报总监:最大威胁>-009fcc?logoWidth=1" title="中共反川普狂扰大选 美国家情报总监:最大威胁  " alt="中共反川普狂扰大选 美国家情报总监:最大威胁  "></a></p>
-<p><a href="https://github.com/chiifr312/ntdtv/blob/master/gb/2020/09/01/a102931191.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/捷克议长以中文说“我是台湾人” 全场起立鼓掌>-009fcc?logoWidth=1" title="捷克议长以中文说“我是台湾人” 全场起立鼓掌  " alt="捷克议长以中文说“我是台湾人” 全场起立鼓掌  "></a></p>
+<p><a href="https://github.com/chiifr312/djy/blob/master/gb/20/9/1/n12371864.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国北德州大学突下令驱逐中国公派生     >-009fcc?logoWidth=1" title="美国北德州大学突下令驱逐中国公派生  " alt="美国北德州大学突下令驱逐中国公派生  "></a></p>
+<p><a href="https://github.com/chiifr312/ntdtv/blob/master/gb/2020/09/02/a102931668.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/突发！中领馆包机送人回武汉/消灭蒙语，习近平>-009fcc?logoWidth=1" title="突发！中领馆包机送人回武汉/消灭蒙语，习近平再捅马蜂窝？  " alt="突发！中领馆包机送人回武汉/消灭蒙语，习近平再捅马蜂窝？  "></a></p>
+<p><a href="https://github.com/chiifr312/djy/blob/master/gb/20/9/1/n12373278.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大使馆向匈牙利议员施压 信件曝光    >-009fcc?logoWidth=1" title="中共大使馆向匈牙利议员施压 信件曝光  " alt="中共大使馆向匈牙利议员施压 信件曝光  "></a></p>
+<p><a href="https://github.com/chiifr312/ntdtv/blob/master/gb/2020/09/01/a102931497.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/对台政策重大调整 美助卿:美“一中政策”与北>-009fcc?logoWidth=1" title="对台政策重大调整 美助卿:美“一中政策”与北京不同  " alt="对台政策重大调整 美助卿:美“一中政策”与北京不同  "></a></p>
 <p><a href="https://github.com/chiifr312/djy/blob/master/gb/20/9/1/n12373065.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港警扯倒孕妇 捕其丈夫 向援手民众喷胡椒雾 >-009fcc?logoWidth=1" title="港警扯倒孕妇 捕其丈夫 向援手民众喷胡椒雾  " alt="港警扯倒孕妇 捕其丈夫 向援手民众喷胡椒雾  "></a></p>
 <p><a href="https://github.com/chiifr312/djy/blob/master/gb/20/9/1/n12373552.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆上亿元LV山寨货曝光 涉沪粤多地厂家  >-009fcc?logoWidth=1" title="大陆上亿元LV山寨货曝光 涉沪粤多地厂家  " alt="大陆上亿元LV山寨货曝光 涉沪粤多地厂家  "></a></p>
-<p><a href="https://github.com/chiifr312/ntdtv/blob/master/gb/2020/09/01/a102931044.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙抗议潮来龙去脉 当局要军车镇压？    >-009fcc?logoWidth=1" title="内蒙抗议潮来龙去脉 当局要军车镇压？  " alt="内蒙抗议潮来龙去脉 当局要军车镇压？  "></a></p>
-<p><a href="https://github.com/chiifr312/ntdtv/blob/master/gb/2020/09/01/a102930846.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:中印边境再度紧张 习为何四处树敌不后退>-009fcc?logoWidth=1" title="文昭:中印边境再度紧张 习为何四处树敌不后退 成龙北京豪宅被封水很深  " alt="文昭:中印边境再度紧张 习为何四处树敌不后退 成龙北京豪宅被封水很深  "></a></p>
 <p><a href="https://github.com/chiifr312/djy/blob/master/gb/20/9/1/n12373810.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邛崃严重洪灾 居民：上游放水        >-009fcc?logoWidth=1" title="邛崃严重洪灾 居民：上游放水  " alt="邛崃严重洪灾 居民：上游放水  "></a></p>
 <p><a href="https://github.com/chiifr312/djy/blob/master/gb/20/9/1/n12373955.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共加速灭亡的一个重要原因     >-009fcc?logoWidth=1" title="王友群：中共加速灭亡的一个重要原因  " alt="王友群：中共加速灭亡的一个重要原因  "></a></p>
-<p><a href="https://github.com/chiifr312/ntdtv/blob/master/gb/2020/09/01/a102931002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共肺炎实际致死不足万人？美CDC新报告解密>-009fcc?logoWidth=1" title="中共肺炎实际致死不足万人？美CDC新报告解密  " alt="中共肺炎实际致死不足万人？美CDC新报告解密  "></a></p>
-<p><a href="https://github.com/chiifr312/ntdtv/blob/master/gb/2020/09/01/a102930940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刚复出即遭吴秀波起诉 范冰冰叹人情冷暖   >-009fcc?logoWidth=1" title="刚复出即遭吴秀波起诉 范冰冰叹人情冷暖  " alt="刚复出即遭吴秀波起诉 范冰冰叹人情冷暖  "></a></p>
+<p><a href="https://github.com/chiifr312/ntdtv/blob/master/gb/2020/09/01/a102931044.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙抗议潮来龙去脉 当局要军车镇压？    >-009fcc?logoWidth=1" title="内蒙抗议潮来龙去脉 当局要军车镇压？  " alt="内蒙抗议潮来龙去脉 当局要军车镇压？  "></a></p>
+<p><a href="https://github.com/chiifr312/ntdtv/blob/master/gb/2020/09/01/a102930846.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:中印边境再度紧张 习为何四处树敌不后退>-009fcc?logoWidth=1" title="文昭:中印边境再度紧张 习为何四处树敌不后退 成龙北京豪宅被封水很深  " alt="文昭:中印边境再度紧张 习为何四处树敌不后退 成龙北京豪宅被封水很深  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://chiifr312.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?lchyd">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?muwnw">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?knjgh">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ohodt">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?patkd">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?bzcdv">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?tgela">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?manlu">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/chiifr312/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/chiifr312/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/chiifr312/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/chiifr312/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/chiifr312/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/chiifr312/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/chiifr312/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/chiifr312/www/master/index.html?d">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/chiifr312/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/chiifr312/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/b3333">git.io/b3333</a></div>
+<div align="center">短网址: <a href="https://git.io/2pppp">git.io/2pppp</a></div>
 
