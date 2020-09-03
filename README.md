@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/akypvc391/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/akypvc391/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pyyyy">git.io/pyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2777">x.co/2777</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/urrrr">git.io/urrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pzp">x.co/pzp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/akypvc391/ntdtv/blob/master/gb/2020/09/03/a102932590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视女主播被监视居住 美媒：每天20人这样被>-009fcc?logoWidth=1" title="央视女主播被监视居住 美媒：每天20人这样被失踪  " alt="央视女主播被监视居住 美媒：每天20人这样被失踪  "></a></p>
 <p><a href="https://github.com/akypvc391/ntdtv/blob/master/gb/2020/09/03/a102932519.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵本山2亿元飞机半价卖不出 女儿吐槽：老后悔>-009fcc?logoWidth=1" title="赵本山2亿元飞机半价卖不出 女儿吐槽：老后悔了  " alt="赵本山2亿元飞机半价卖不出 女儿吐槽：老后悔了  "></a></p>
 <p><a href="https://github.com/akypvc391/ntdtv/blob/master/gb/2020/09/03/a102932456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:习四面被围 中共攻台四方案曝光 今晚动>-009fcc?logoWidth=1" title="文昭:习四面被围 中共攻台四方案曝光 今晚动手？  " alt="文昭:习四面被围 中共攻台四方案曝光 今晚动手？  "></a></p>
 <p><a href="https://github.com/akypvc391/ntdtv/blob/master/gb/2020/09/02/a102932211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥:习总书记已作选择 美将有系列重大行动>-009fcc?logoWidth=1" title="蓬佩奥:习总书记已作选择 美将有系列重大行动  " alt="蓬佩奥:习总书记已作选择 美将有系列重大行动  "></a></p>
 <p><a href="https://github.com/akypvc391/ntdtv/blob/master/gb/2020/09/02/a102932255.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拒中共文化灭绝 内蒙电视台逾3百员工倒戈抗议>-009fcc?logoWidth=1" title="拒中共文化灭绝 内蒙电视台逾3百员工倒戈抗议  " alt="拒中共文化灭绝 内蒙电视台逾3百员工倒戈抗议  "></a></p>
 <p><a href="https://github.com/akypvc391/ntdtv/blob/master/gb/2020/09/02/a102932226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印流血冲突细节：印军1亡 藏兵推进4公里 >-009fcc?logoWidth=1" title="中印流血冲突细节：印军1亡 藏兵推进4公里  " alt="中印流血冲突细节：印军1亡 藏兵推进4公里  "></a></p>
-<p><a href="https://github.com/akypvc391/ntdtv/blob/master/gb/2020/09/02/a102931991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平改口“双循环” 经济困局难倒中南海  >-009fcc?logoWidth=1" title="习近平改口“双循环” 经济困局难倒中南海  " alt="习近平改口“双循环” 经济困局难倒中南海  "></a></p>
-<p><a href="https://github.com/akypvc391/ntdtv/blob/master/gb/2020/09/03/a102932600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美将对华关闭留学路 谁断送了中国学生梦？  >-009fcc?logoWidth=1" title="美将对华关闭留学路 谁断送了中国学生梦？  " alt="美将对华关闭留学路 谁断送了中国学生梦？  "></a></p>
+<p><a href="https://github.com/akypvc391/ntdtv/blob/master/gb/2020/09/03/a102932630.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：中国死于疫情人数比任何国家都多    >-009fcc?logoWidth=1" title="川普：中国死于疫情人数比任何国家都多  " alt="川普：中国死于疫情人数比任何国家都多  "></a></p>
+<p><a href="https://github.com/akypvc391/ntdtv/blob/master/gb/2020/09/03/a102932600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美将对华关闭留学路 谁断送了中国青年留学梦？>-009fcc?logoWidth=1" title="美将对华关闭留学路 谁断送了中国青年留学梦？  " alt="美将对华关闭留学路 谁断送了中国青年留学梦？  "></a></p>
 <p><a href="https://github.com/akypvc391/ntdtv/blob/master/gb/2020/09/03/a102932625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连近两百人遭厄运 都曾迫害法轮功（4）  >-009fcc?logoWidth=1" title="大连近两百人遭厄运 都曾迫害法轮功（4）  " alt="大连近两百人遭厄运 都曾迫害法轮功（4）  "></a></p>
 <p><a href="https://github.com/akypvc391/ntdtv/blob/master/gb/2020/09/03/a102932541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院次卿有意访台 台湾：正在密切磋商中 >-009fcc?logoWidth=1" title="美国务院次卿有意访台 台湾：正在密切磋商中  " alt="美国务院次卿有意访台 台湾：正在密切磋商中  "></a></p>
 <p><a href="https://github.com/akypvc391/ntdtv/blob/master/gb/2020/09/03/a102932595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/货轮在日本海域失联 传载43人及近6000头>-009fcc?logoWidth=1" title="货轮在日本海域失联 传载43人及近6000头牛  " alt="货轮在日本海域失联 传载43人及近6000头牛  "></a></p>
-<p><a href="https://github.com/akypvc391/ntdtv/blob/master/gb/2020/09/03/a102932590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视女主播被监视居住 美媒：每天20人这样被>-009fcc?logoWidth=1" title="央视女主播被监视居住 美媒：每天20人这样被失踪  " alt="央视女主播被监视居住 美媒：每天20人这样被失踪  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/akypvc391/djy/blob/master/gb/20/9/2/n12375780.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥重大宣布 限制中共外交官在美行动   >-009fcc?logoWidth=1" title="蓬佩奥重大宣布 限制中共外交官在美行动  " alt="蓬佩奥重大宣布 限制中共外交官在美行动  "></a></p>
 <p><a href="https://github.com/akypvc391/djy/blob/master/gb/20/9/1/n12373356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：美国情报总监暗示已手握北京罪证   >-009fcc?logoWidth=1" title="周晓辉：美国情报总监暗示已手握北京罪证  " alt="周晓辉：美国情报总监暗示已手握北京罪证  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/akypvc391/djy/blob/master/gb/20/9/3/n12376866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙古300媒体人“反了”         >-009fcc?logoWidth=1" title="内蒙古300媒体人“反了”  " alt="内蒙古300媒体人“反了”  "></a></p>
 <p><a href="https://github.com/akypvc391/djy/blob/master/gb/20/9/3/n12376702.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共发言人翻墙批美越界 美官员回应：太讽刺 >-009fcc?logoWidth=1" title="中共发言人翻墙批美越界 美官员回应：太讽刺  " alt="中共发言人翻墙批美越界 美官员回应：太讽刺  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/akypvc391/ntdtv/blob/master/gb/2020/09/02/a102931991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平改口“双循环” 经济困局难倒中南海  >-009fcc?logoWidth=1" title="习近平改口“双循环” 经济困局难倒中南海  " alt="习近平改口“双循环” 经济困局难倒中南海  "></a></p>
 <p><a href="https://github.com/akypvc391/ntdtv/blob/master/gb/2020/09/03/a102932483.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥宣布限制中共外交官在美行动声明(全文)>-009fcc?logoWidth=1" title="蓬佩奥宣布限制中共外交官在美行动声明(全文)  " alt="蓬佩奥宣布限制中共外交官在美行动声明(全文)  "></a></p>
 <p><a href="https://github.com/akypvc391/djy/blob/master/gb/20/9/2/n12375721.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：大陆民众没钱 中共难以“内循环”   >-009fcc?logoWidth=1" title="分析：大陆民众没钱 中共难以“内循环”  " alt="分析：大陆民众没钱 中共难以“内循环”  "></a></p>
 <p><a href="https://github.com/akypvc391/ntdtv/blob/master/gb/2020/09/02/a102932127.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京急谋犯台 中共东西线开战        >-009fcc?logoWidth=1" title="北京急谋犯台 中共东西线开战  " alt="北京急谋犯台 中共东西线开战  "></a></p>
@@ -261,9 +262,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://akypvc391.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?qcucq">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?bqlmx">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?websn">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?nkssw">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +308,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?erdyg">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?rejzk">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?pawpf">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?wzecw">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/akypvc391/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/akypvc391/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/akypvc391/www/master/index.html?c">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/akypvc391/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/akypvc391/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/akypvc391/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/akypvc391/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/akypvc391/www/master/index.html?v">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/akypvc391/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/akypvc391/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/pyyyy">git.io/pyyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/urrrr">git.io/urrrr</a></div>
 
