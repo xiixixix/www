@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/aybfac341/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/aybfac341/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/irrrr">git.io/irrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/dpp">x.co/dpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nhhhh">git.io/nhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa8">x.co/aa8</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,19 +39,19 @@
 <p><a href="https://github.com/aybfac341/djy/blob/master/gb/20/9/2/n12375897.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：捷克议长访台意义重大 或牵动欧中关系 >-009fcc?logoWidth=1" title="分析：捷克议长访台意义重大 或牵动欧中关系  " alt="分析：捷克议长访台意义重大 或牵动欧中关系  "></a></p>
 <p><a href="https://github.com/aybfac341/djy/blob/master/gb/20/9/2/n12375626.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/各地大搞节约运动 习近平再吁保障粮食安全  >-009fcc?logoWidth=1" title="各地大搞节约运动 习近平再吁保障粮食安全  " alt="各地大搞节约运动 习近平再吁保障粮食安全  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/aybfac341/ntdtv/blob/master/gb/2020/09/02/a102932088.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最新民调:川普非裔支持率暴增 超2016一倍>-009fcc?logoWidth=1" title="最新民调:川普非裔支持率暴增 超2016一倍以上  " alt="最新民调:川普非裔支持率暴增 超2016一倍以上  "></a></p>
+<p><a href="https://github.com/aybfac341/ntdtv/blob/master/gb/2020/09/03/a102932489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥再扔震撼弹 习近平将被制裁？德外长直怼>-009fcc?logoWidth=1" title="蓬佩奥再扔震撼弹 习近平将被制裁？德外长直怼王毅  " alt="蓬佩奥再扔震撼弹 习近平将被制裁？德外长直怼王毅  "></a></p>
 <p><a href="https://github.com/aybfac341/djy/blob/master/gb/20/9/2/n12375897.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/媒体人：中捷关系 或加速新冷战两极格局的形成>-009fcc?logoWidth=1" title="媒体人：中捷关系 或加速新冷战两极格局的形成  " alt="媒体人：中捷关系 或加速新冷战两极格局的形成  "></a></p>
 <p><a href="https://github.com/aybfac341/djy/blob/master/gb/20/9/2/n12375626.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/各地大搞节约运动之际 习近平再吁保障粮食安全>-009fcc?logoWidth=1" title="各地大搞节约运动之际 习近平再吁保障粮食安全  " alt="各地大搞节约运动之际 习近平再吁保障粮食安全  "></a></p>
-<p><a href="https://github.com/aybfac341/ntdtv/blob/master/gb/2020/09/03/a102932489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥再扔震撼弹 习近平将被制裁？德外长直怼>-009fcc?logoWidth=1" title="蓬佩奥再扔震撼弹 习近平将被制裁？德外长直怼王毅  " alt="蓬佩奥再扔震撼弹 习近平将被制裁？德外长直怼王毅  "></a></p>
 <p><a href="https://github.com/aybfac341/ntdtv/blob/master/gb/2020/09/02/a102931898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印再爆激烈冲突 印军击退越界共军拆除对方监>-009fcc?logoWidth=1" title="中印再爆激烈冲突 印军击退越界共军拆除对方监控  " alt="中印再爆激烈冲突 印军击退越界共军拆除对方监控  "></a></p>
+<p><a href="https://github.com/aybfac341/ntdtv/blob/master/gb/2020/09/02/a102932127.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京急谋犯台 中共东西线开战        >-009fcc?logoWidth=1" title="北京急谋犯台 中共东西线开战  " alt="北京急谋犯台 中共东西线开战  "></a></p>
 <p><a href="https://github.com/aybfac341/djy/blob/master/gb/20/9/2/n12375721.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：大陆民众没钱 中共难以“内循环”   >-009fcc?logoWidth=1" title="分析：大陆民众没钱 中共难以“内循环”  " alt="分析：大陆民众没钱 中共难以“内循环”  "></a></p>
 <p><a href="https://github.com/aybfac341/djy/blob/master/gb/20/9/2/n12375743.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度再禁118中国程序 包括百度新浪淘宝  >-009fcc?logoWidth=1" title="印度再禁118中国程序 包括百度新浪淘宝  " alt="印度再禁118中国程序 包括百度新浪淘宝  "></a></p>
-<p><a href="https://github.com/aybfac341/ntdtv/blob/master/gb/2020/09/02/a102932127.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京急谋犯台 中共东西线开战        >-009fcc?logoWidth=1" title="北京急谋犯台 中共东西线开战  " alt="北京急谋犯台 中共东西线开战  "></a></p>
 <p><a href="https://github.com/aybfac341/ntdtv/blob/master/gb/2020/09/02/a102931870.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强急了？要各地“想办法”保证养老金发放 >-009fcc?logoWidth=1" title="李克强急了？要各地“想办法”保证养老金发放  " alt="李克强急了？要各地“想办法”保证养老金发放  "></a></p>
+<p><a href="https://github.com/aybfac341/ntdtv/blob/master/gb/2020/09/02/a102931849.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙局势升级 传大量装甲车现身街头(多视频)>-009fcc?logoWidth=1" title="内蒙局势升级 传大量装甲车现身街头(多视频)  " alt="内蒙局势升级 传大量装甲车现身街头(多视频)  "></a></p>
 <p><a href="https://github.com/aybfac341/djy/blob/master/gb/20/9/1/n12373653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共高层忽又隐身担心什么？      >-009fcc?logoWidth=1" title="钟原：中共高层忽又隐身担心什么？  " alt="钟原：中共高层忽又隐身担心什么？  "></a></p>
 <p><a href="https://github.com/aybfac341/djy/blob/master/gb/20/9/1/n12373697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/二亿元飞机半价也卖不出 赵本山遭女儿吐槽  >-009fcc?logoWidth=1" title="二亿元飞机半价也卖不出 赵本山遭女儿吐槽  " alt="二亿元飞机半价也卖不出 赵本山遭女儿吐槽  "></a></p>
-<p><a href="https://github.com/aybfac341/ntdtv/blob/master/gb/2020/09/02/a102931849.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙局势升级 传大量装甲车现身街头(多视频)>-009fcc?logoWidth=1" title="内蒙局势升级 传大量装甲车现身街头(多视频)  " alt="内蒙局势升级 传大量装甲车现身街头(多视频)  "></a></p>
 <p><a href="https://github.com/aybfac341/ntdtv/blob/master/gb/2020/09/02/a102932435.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：习近平任命一批神秘官员，准备大冒险 >-009fcc?logoWidth=1" title="陈破空：习近平任命一批神秘官员，准备大冒险  " alt="陈破空：习近平任命一批神秘官员，准备大冒险  "></a></p>
+<p><a href="https://github.com/aybfac341/ntdtv/blob/master/gb/2020/09/02/a102931737.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/辽宁浙江换一把手 牵出习近平又一个大麻烦  >-009fcc?logoWidth=1" title="辽宁浙江换一把手 牵出习近平又一个大麻烦  " alt="辽宁浙江换一把手 牵出习近平又一个大麻烦  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -263,9 +263,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://aybfac341.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?uqvgj">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?hupki">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?dbwkh">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?qruhd">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -309,8 +309,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?tscef">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?tfonm">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?vfvpn">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?vieop">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -489,8 +489,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/aybfac341/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aybfac341/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aybfac341/www/master/index.html?w">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aybfac341/www/blob/master/README.md?k#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aybfac341/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/aybfac341/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/aybfac341/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/aybfac341/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/aybfac341/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/aybfac341/www/blob/master/README.md?d%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/irrrr">git.io/irrrr</a></div>
+<div align="center">短网址: <a href="https://git.io/nhhhh">git.io/nhhhh</a></div>
 
