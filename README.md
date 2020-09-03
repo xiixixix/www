@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jjctll335/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jjctll335/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/m7777">git.io/m7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp3">x.co/pp3</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pxxxx">git.io/pxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/edd">x.co/edd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -18,7 +18,7 @@
 <p><a href="https://github.com/jjctll335/ntdtv/blob/master/gb/2020/09/03/a102932846.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印坦克双双进入射程 印度神秘精锐部队曝光 >-009fcc?logoWidth=1" title="中印坦克双双进入射程 印度神秘精锐部队曝光  " alt="中印坦克双双进入射程 印度神秘精锐部队曝光  "></a></p>
 <p><a href="https://github.com/jjctll335/ntdtv/blob/master/gb/2020/09/03/a102932724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王岐山隐身3个月露面 传因任志强“靠边站” >-009fcc?logoWidth=1" title="王岐山隐身3个月露面 传因任志强“靠边站”  " alt="王岐山隐身3个月露面 传因任志强“靠边站”  "></a></p>
 <p><a href="https://github.com/jjctll335/ntdtv/blob/master/gb/2020/09/03/a102932590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视女主播被监视居住 美媒：每天20人这样被>-009fcc?logoWidth=1" title="央视女主播被监视居住 美媒：每天20人这样被失踪  " alt="央视女主播被监视居住 美媒：每天20人这样被失踪  "></a></p>
-<p><a href="https://github.com/jjctll335/ntdtv/blob/master/gb/2020/09/03/a102932519.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵本山2亿元飞机半价卖不出 女儿吐槽：老后悔>-009fcc?logoWidth=1" title="赵本山2亿元飞机半价卖不出 女儿吐槽：老后悔了  " alt="赵本山2亿元飞机半价卖不出 女儿吐槽：老后悔了  "></a></p>
+<p><a href="https://github.com/jjctll335/ntdtv/blob/master/gb/2020/09/03/a102932489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥再扔震撼弹 习近平将被制裁？德外长直怼>-009fcc?logoWidth=1" title="蓬佩奥再扔震撼弹 习近平将被制裁？德外长直怼王毅  " alt="蓬佩奥再扔震撼弹 习近平将被制裁？德外长直怼王毅  "></a></p>
 <p><a href="https://github.com/jjctll335/ntdtv/blob/master/gb/2020/09/03/a102932456.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:习四面被围 中共攻台四方案曝光 今晚动>-009fcc?logoWidth=1" title="文昭:习四面被围 中共攻台四方案曝光 今晚动手？  " alt="文昭:习四面被围 中共攻台四方案曝光 今晚动手？  "></a></p>
 <p><a href="https://github.com/jjctll335/ntdtv/blob/master/gb/2020/09/03/a102932836.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄反对派领袖遭神经毒剂攻击 欧美强烈措词谴责>-009fcc?logoWidth=1" title="俄反对派领袖遭神经毒剂攻击 欧美强烈措词谴责  " alt="俄反对派领袖遭神经毒剂攻击 欧美强烈措词谴责  "></a></p>
 <p><a href="https://github.com/jjctll335/ntdtv/blob/master/gb/2020/09/03/a102932811.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/捷克访台 蔡英文：告诉世界台捷不屈于压迫  >-009fcc?logoWidth=1" title="捷克访台 蔡英文：告诉世界台捷不屈于压迫  " alt="捷克访台 蔡英文：告诉世界台捷不屈于压迫  "></a></p>
@@ -37,18 +37,17 @@
 <p><a href="https://github.com/jjctll335/djy/blob/master/gb/20/9/2/n12376423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：江泽民等全在撒谎 一较真就现了原形 >-009fcc?logoWidth=1" title="王友群：江泽民等全在撒谎 一较真就现了原形  " alt="王友群：江泽民等全在撒谎 一较真就现了原形  "></a></p>
 <p><a href="https://github.com/jjctll335/djy/blob/master/gb/20/8/30/n12368001.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/见证法轮功神奇 罕见病患者绝处逢生（1）  >-009fcc?logoWidth=1" title="见证法轮功神奇 罕见病患者绝处逢生（1）  " alt="见证法轮功神奇 罕见病患者绝处逢生（1）  "></a></p>
 <p><a href="https://github.com/jjctll335/djy/blob/master/gb/20/9/3/n12376866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙古300媒体人“反了”         >-009fcc?logoWidth=1" title="内蒙古300媒体人“反了”  " alt="内蒙古300媒体人“反了”  "></a></p>
-<p><a href="https://github.com/jjctll335/djy/blob/master/gb/20/9/3/n12377492.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：中共是美国最大威胁 程度远超俄国  >-009fcc?logoWidth=1" title="蓬佩奥：中共是美国最大威胁 程度远超俄国  " alt="蓬佩奥：中共是美国最大威胁 程度远超俄国  "></a></p>
+<p><a href="https://github.com/jjctll335/djy/blob/master/gb/20/8/26/n12358574.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐山1976年大地震死多少人？       >-009fcc?logoWidth=1" title="唐山1976年大地震死多少人？  " alt="唐山1976年大地震死多少人？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jjctll335/djy/blob/master/gb/20/9/2/n12376484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大纪元全美民意调查：多数美国人讨厌中共   >-009fcc?logoWidth=1" title="大纪元全美民意调查：多数美国人讨厌中共  " alt="大纪元全美民意调查：多数美国人讨厌中共  "></a></p>
+<p><a href="https://github.com/jjctll335/ntdtv/blob/master/gb/2020/09/03/a102932893.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅犯众怒耸了! 台湾新版护照有深意    >-009fcc?logoWidth=1" title="王毅犯众怒耸了! 台湾新版护照有深意  " alt="王毅犯众怒耸了! 台湾新版护照有深意  "></a></p>
+<p><a href="https://github.com/jjctll335/ntdtv/blob/master/gb/2020/09/03/a102932593.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共抛售93亿美债 美国反击让中国留学生躺枪>-009fcc?logoWidth=1" title="中共抛售93亿美债 美国反击让中国留学生躺枪  " alt="中共抛售93亿美债 美国反击让中国留学生躺枪  "></a></p>
+<p><a href="https://github.com/jjctll335/djy/blob/master/gb/20/9/2/n12376310.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥再扔震撼弹 习遭捷克议员责骂     >-009fcc?logoWidth=1" title="蓬佩奥再扔震撼弹 习遭捷克议员责骂  " alt="蓬佩奥再扔震撼弹 习遭捷克议员责骂  "></a></p>
 <p><a href="https://github.com/jjctll335/ntdtv/blob/master/gb/2020/09/03/a102932642.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印坦克大炮对阵 北京惹毛蒙古国      >-009fcc?logoWidth=1" title="中印坦克大炮对阵 北京惹毛蒙古国  " alt="中印坦克大炮对阵 北京惹毛蒙古国  "></a></p>
 <p><a href="https://github.com/jjctll335/ntdtv/blob/master/gb/2020/09/02/a102932435.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：习近平任命一批神秘官员，准备大冒险 >-009fcc?logoWidth=1" title="陈破空：习近平任命一批神秘官员，准备大冒险  " alt="陈破空：习近平任命一批神秘官员，准备大冒险  "></a></p>
+<p><a href="https://github.com/jjctll335/djy/blob/master/gb/20/9/2/n12375721.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：大陆民众没钱 中共难以“内循环”   >-009fcc?logoWidth=1" title="分析：大陆民众没钱 中共难以“内循环”  " alt="分析：大陆民众没钱 中共难以“内循环”  "></a></p>
 <p><a href="https://github.com/jjctll335/djy/blob/master/gb/20/9/3/n12377013.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王岐山隐身3个月后露面 传因任志强“靠边站”>-009fcc?logoWidth=1" title="王岐山隐身3个月后露面 传因任志强“靠边站”  " alt="王岐山隐身3个月后露面 传因任志强“靠边站”  "></a></p>
-<p><a href="https://github.com/jjctll335/djy/blob/master/gb/20/9/2/n12376310.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥再扔震撼弹 习遭捷克议员责骂     >-009fcc?logoWidth=1" title="蓬佩奥再扔震撼弹 习遭捷克议员责骂  " alt="蓬佩奥再扔震撼弹 习遭捷克议员责骂  "></a></p>
 <p><a href="https://github.com/jjctll335/ntdtv/blob/master/gb/2020/09/03/a102932896.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙抗争 抵制文化灭绝           >-009fcc?logoWidth=1" title="内蒙抗争 抵制文化灭绝  " alt="内蒙抗争 抵制文化灭绝  "></a></p>
-<p><a href="https://github.com/jjctll335/ntdtv/blob/master/gb/2020/09/03/a102932893.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅犯众怒耸了! 台湾新版护照有深意    >-009fcc?logoWidth=1" title="王毅犯众怒耸了! 台湾新版护照有深意  " alt="王毅犯众怒耸了! 台湾新版护照有深意  "></a></p>
-<p><a href="https://github.com/jjctll335/djy/blob/master/gb/20/8/26/n12358574.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐山1976年大地震死多少人？       >-009fcc?logoWidth=1" title="唐山1976年大地震死多少人？  " alt="唐山1976年大地震死多少人？  "></a></p>
-<p><a href="https://github.com/jjctll335/djy/blob/master/gb/20/9/3/n12376801.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：王毅还能保住中共外交部长之职吗？   >-009fcc?logoWidth=1" title="杨威：王毅还能保住中共外交部长之职吗？  " alt="杨威：王毅还能保住中共外交部长之职吗？  "></a></p>
-<p><a href="https://github.com/jjctll335/ntdtv/blob/master/gb/2020/09/03/a102932593.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共抛售93亿美债 美国反击让中国留学生躺枪>-009fcc?logoWidth=1" title="中共抛售93亿美债 美国反击让中国留学生躺枪  " alt="中共抛售93亿美债 美国反击让中国留学生躺枪  "></a></p>
 <p><a href="https://github.com/jjctll335/ntdtv/blob/master/gb/2020/09/03/a102932597.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾成为全球焦点的五大原因 第四个决定中国未>-009fcc?logoWidth=1" title="台湾成为全球焦点的五大原因 第四个决定中国未来！  " alt="台湾成为全球焦点的五大原因 第四个决定中国未来！  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -261,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://jjctll335.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ljplj">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?qqplc">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?mvmib">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?oanyn">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?lvgwj">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?zqcyz">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?tzvaf">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?nwsvz">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/jjctll335/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jjctll335/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jjctll335/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jjctll335/www/blob/master/README.md?i#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jjctll335/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/jjctll335/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jjctll335/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jjctll335/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jjctll335/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jjctll335/www/blob/master/README.md?s%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/m7777">git.io/m7777</a></div>
+<div align="center">短网址: <a href="https://git.io/pxxxx">git.io/pxxxx</a></div>
 
