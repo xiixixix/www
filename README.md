@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nmgmpi3768/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nmgmpi3768/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/6jjjj">git.io/6jjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2999">x.co/2999</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/keeee">git.io/keeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/edd">x.co/edd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/nmgmpi3768/ntdtv/blob/master/gb/2020/09/04/a102933318.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海慌了？习近平5个“绝不答应”火爆网络 >-009fcc?logoWidth=1" title="中南海慌了？习近平5个“绝不答应”火爆网络  " alt="中南海慌了？习近平5个“绝不答应”火爆网络  "></a></p>
+<p><a href="https://github.com/nmgmpi3768/ntdtv/blob/master/gb/2020/09/04/a102933317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“鬼节”武汉到处是祭奠的人 市民：长这么大从>-009fcc?logoWidth=1" title="“鬼节”武汉到处是祭奠的人 市民：长这么大从未见过  " alt="“鬼节”武汉到处是祭奠的人 市民：长这么大从未见过  "></a></p>
 <p><a href="https://github.com/nmgmpi3768/ntdtv/blob/master/gb/2020/09/03/a102933105.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官方宣称境外煽动内蒙抗争 大量装甲车上街（视>-009fcc?logoWidth=1" title="官方宣称境外煽动内蒙抗争 大量装甲车上街（视频）  " alt="官方宣称境外煽动内蒙抗争 大量装甲车上街（视频）  "></a></p>
 <p><a href="https://github.com/nmgmpi3768/ntdtv/blob/master/gb/2020/09/03/a102933097.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山西再提“社会主义改造” 2百多户祖产被没收>-009fcc?logoWidth=1" title="山西再提“社会主义改造” 2百多户祖产被没收  " alt="山西再提“社会主义改造” 2百多户祖产被没收  "></a></p>
 <p><a href="https://github.com/nmgmpi3768/ntdtv/blob/master/gb/2020/09/03/a102932977.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度士兵踩地雷身亡 华春莹移花接木“辟谣” >-009fcc?logoWidth=1" title="印度士兵踩地雷身亡 华春莹移花接木“辟谣”  " alt="印度士兵踩地雷身亡 华春莹移花接木“辟谣”  "></a></p>
 <p><a href="https://github.com/nmgmpi3768/ntdtv/blob/master/gb/2020/09/03/a102932990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙主席下令强推恶政 通辽悬赏通缉138名抗>-009fcc?logoWidth=1" title="内蒙主席下令强推恶政 通辽悬赏通缉138名抗议者  " alt="内蒙主席下令强推恶政 通辽悬赏通缉138名抗议者  "></a></p>
-<p><a href="https://github.com/nmgmpi3768/ntdtv/blob/master/gb/2020/09/03/a102933043.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军表态介入台海 美防长:对世界承诺同194>-009fcc?logoWidth=1" title="美军表态介入台海 美防长:对世界承诺同1941  " alt="美军表态介入台海 美防长:对世界承诺同1941  "></a></p>
-<p><a href="https://github.com/nmgmpi3768/ntdtv/blob/master/gb/2020/09/03/a102932837.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王岐山隐身3个月露面/习四面被围      >-009fcc?logoWidth=1" title="王岐山隐身3个月露面/习四面被围  " alt="王岐山隐身3个月露面/习四面被围  "></a></p>
-<p><a href="https://github.com/nmgmpi3768/ntdtv/blob/master/gb/2020/09/04/a102933317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“鬼节”武汉到处是祭奠的人 市民：长这么大从>-009fcc?logoWidth=1" title="“鬼节”武汉到处是祭奠的人 市民：长这么大从未见过  " alt="“鬼节”武汉到处是祭奠的人 市民：长这么大从未见过  "></a></p>
 <p><a href="https://github.com/nmgmpi3768/ntdtv/blob/master/gb/2020/09/04/a102933275.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/【中国禁闻】9月3日完整版         >-009fcc?logoWidth=1" title="【中国禁闻】9月3日完整版  " alt="【中国禁闻】9月3日完整版  "></a></p>
 <p><a href="https://github.com/nmgmpi3768/ntdtv/blob/master/gb/2020/09/02/a102931621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：中国死于疫情人数比任何国家都多    >-009fcc?logoWidth=1" title="川普：中国死于疫情人数比任何国家都多  " alt="川普：中国死于疫情人数比任何国家都多  "></a></p>
 <p><a href="https://github.com/nmgmpi3768/ntdtv/blob/master/gb/2020/09/03/a102933169.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/非洲数十万中国劳工回国难 自杀、恐慌、准备后>-009fcc?logoWidth=1" title="非洲数十万中国劳工回国难 自杀、恐慌、准备后事  " alt="非洲数十万中国劳工回国难 自杀、恐慌、准备后事  "></a></p>
 <p><a href="https://github.com/nmgmpi3768/ntdtv/blob/master/gb/2020/09/03/a102933194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙护母语示威 中共通缉百余抗议者     >-009fcc?logoWidth=1" title="内蒙护母语示威 中共通缉百余抗议者  " alt="内蒙护母语示威 中共通缉百余抗议者  "></a></p>
+<p><a href="https://github.com/nmgmpi3768/ntdtv/blob/master/gb/2020/09/03/a102933196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美调整对台政策 “一中政策”不等于“一中原则>-009fcc?logoWidth=1" title="美调整对台政策 “一中政策”不等于“一中原则”  " alt="美调整对台政策 “一中政策”不等于“一中原则”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nmgmpi3768/djy/blob/master/gb/20/9/3/n12378222.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蒙人抗争 体制内觉醒 中共大抓捕      >-009fcc?logoWidth=1" title="蒙人抗争 体制内觉醒 中共大抓捕  " alt="蒙人抗争 体制内觉醒 中共大抓捕  "></a></p>
 <p><a href="https://github.com/nmgmpi3768/djy/blob/master/gb/20/9/3/n12378843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共少将泄疫苗真相？地下钱庄探秘      >-009fcc?logoWidth=1" title="中共少将泄疫苗真相？地下钱庄探秘  " alt="中共少将泄疫苗真相？地下钱庄探秘  "></a></p>
@@ -39,16 +39,17 @@
 <p><a href="https://github.com/nmgmpi3768/djy/blob/master/gb/20/9/3/n12378545.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共卫建委宣传节约食用油 专家：凸显粮食危机>-009fcc?logoWidth=1" title="中共卫建委宣传节约食用油 专家：凸显粮食危机  " alt="中共卫建委宣传节约食用油 专家：凸显粮食危机  "></a></p>
 <p><a href="https://github.com/nmgmpi3768/djy/blob/master/gb/20/9/3/n12376880.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印坦克大炮对阵 北京惹恼蒙古国      >-009fcc?logoWidth=1" title="中印坦克大炮对阵 北京惹恼蒙古国  " alt="中印坦克大炮对阵 北京惹恼蒙古国  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/nmgmpi3768/ntdtv/blob/master/gb/2020/09/03/a102933124.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/借古喻今？习近平纪念抗战强调“敢于斗争”  >-009fcc?logoWidth=1" title="借古喻今？习近平纪念抗战强调“敢于斗争”  " alt="借古喻今？习近平纪念抗战强调“敢于斗争”  "></a></p>
-<p><a href="https://github.com/nmgmpi3768/ntdtv/blob/master/gb/2020/09/03/a102932919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参议员:BLM是马克思主义组织 美国人不应>-009fcc?logoWidth=1" title="美参议员:BLM是马克思主义组织 美国人不应沉默  " alt="美参议员:BLM是马克思主义组织 美国人不应沉默  "></a></p>
 <p><a href="https://github.com/nmgmpi3768/ntdtv/blob/master/gb/2020/09/03/a102932724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王岐山隐身3个月露面 传因任志强“靠边站” >-009fcc?logoWidth=1" title="王岐山隐身3个月露面 传因任志强“靠边站”  " alt="王岐山隐身3个月露面 传因任志强“靠边站”  "></a></p>
-<p><a href="https://github.com/nmgmpi3768/djy/blob/master/gb/20/9/3/n12376801.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：王毅还能保住中共外交部长之职吗？   >-009fcc?logoWidth=1" title="杨威：王毅还能保住中共外交部长之职吗？  " alt="杨威：王毅还能保住中共外交部长之职吗？  "></a></p>
-<p><a href="https://github.com/nmgmpi3768/djy/blob/master/gb/20/9/3/n12378554.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆玉米价格飙高 未来一年恐缺3000万吨 >-009fcc?logoWidth=1" title="大陆玉米价格飙高 未来一年恐缺3000万吨  " alt="大陆玉米价格飙高 未来一年恐缺3000万吨  "></a></p>
 <p><a href="https://github.com/nmgmpi3768/ntdtv/blob/master/gb/2020/09/03/a102932930.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“南瓜和它”一起吃，功效似补药 恢复眼疲劳！>-009fcc?logoWidth=1" title="“南瓜和它”一起吃，功效似补药 恢复眼疲劳！  " alt="“南瓜和它”一起吃，功效似补药 恢复眼疲劳！  "></a></p>
-<p><a href="https://github.com/nmgmpi3768/djy/blob/master/gb/20/9/2/n12376245.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅出丑 蓬佩奥：将大动作反共       >-009fcc?logoWidth=1" title="王毅出丑 蓬佩奥：将大动作反共  " alt="王毅出丑 蓬佩奥：将大动作反共  "></a></p>
-<p><a href="https://github.com/nmgmpi3768/djy/blob/master/gb/20/9/2/n12376423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：江泽民等全在撒谎 一较真就现了原形 >-009fcc?logoWidth=1" title="王友群：江泽民等全在撒谎 一较真就现了原形  " alt="王友群：江泽民等全在撒谎 一较真就现了原形  "></a></p>
-<p><a href="https://github.com/nmgmpi3768/ntdtv/blob/master/gb/2020/09/02/a102932226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印流血冲突细节：印军1亡 续推进4公里  >-009fcc?logoWidth=1" title="中印流血冲突细节：印军1亡 续推进4公里  " alt="中印流血冲突细节：印军1亡 续推进4公里  "></a></p>
+<p><a href="https://github.com/nmgmpi3768/ntdtv/blob/master/gb/2020/09/03/a102932837.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王岐山隐身3个月露面/习四面被围      >-009fcc?logoWidth=1" title="王岐山隐身3个月露面/习四面被围  " alt="王岐山隐身3个月露面/习四面被围  "></a></p>
+<p><a href="https://github.com/nmgmpi3768/djy/blob/master/gb/20/9/3/n12378568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日印澳组联盟 中共导弹打到哪了       >-009fcc?logoWidth=1" title="日印澳组联盟 中共导弹打到哪了  " alt="日印澳组联盟 中共导弹打到哪了  "></a></p>
+<p><a href="https://github.com/nmgmpi3768/djy/blob/master/gb/20/9/3/n12378744.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美司法部高官：中共用WeChat遥控留学生 >-009fcc?logoWidth=1" title="美司法部高官：中共用WeChat遥控留学生  " alt="美司法部高官：中共用WeChat遥控留学生  "></a></p>
+<p><a href="https://github.com/nmgmpi3768/ntdtv/blob/master/gb/2020/09/03/a102933124.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/借古喻今？习近平纪念抗战强调“敢于斗争”  >-009fcc?logoWidth=1" title="借古喻今？习近平纪念抗战强调“敢于斗争”  " alt="借古喻今？习近平纪念抗战强调“敢于斗争”  "></a></p>
 <p><a href="https://github.com/nmgmpi3768/ntdtv/blob/master/gb/2020/09/02/a102932211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥:习总书记已作选择 美将有系列重大行动>-009fcc?logoWidth=1" title="蓬佩奥:习总书记已作选择 美将有系列重大行动  " alt="蓬佩奥:习总书记已作选择 美将有系列重大行动  "></a></p>
+<p><a href="https://github.com/nmgmpi3768/djy/blob/master/gb/20/9/3/n12376801.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：王毅还能保住中共外交部长之职吗？   >-009fcc?logoWidth=1" title="杨威：王毅还能保住中共外交部长之职吗？  " alt="杨威：王毅还能保住中共外交部长之职吗？  "></a></p>
+<p><a href="https://github.com/nmgmpi3768/djy/blob/master/gb/20/9/4/n12379140.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/馆长遇袭 网友疑中共幕后策划        >-009fcc?logoWidth=1" title="馆长遇袭 网友疑中共幕后策划  " alt="馆长遇袭 网友疑中共幕后策划  "></a></p>
+<p><a href="https://github.com/nmgmpi3768/ntdtv/blob/master/gb/2020/09/02/a102932226.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印流血冲突细节：印军1亡 续推进4公里  >-009fcc?logoWidth=1" title="中印流血冲突细节：印军1亡 续推进4公里  " alt="中印流血冲突细节：印军1亡 续推进4公里  "></a></p>
+<p><a href="https://github.com/nmgmpi3768/ntdtv/blob/master/gb/2020/09/03/a102932919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参议员:BLM是马克思主义组织 美国人不应>-009fcc?logoWidth=1" title="美参议员:BLM是马克思主义组织 美国人不应沉默  " alt="美参议员:BLM是马克思主义组织 美国人不应沉默  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -260,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://nmgmpi3768.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?csatk">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?nvekg">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?grpxu">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?gahhc">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?znidv">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?fzfdm">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?culaj">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?qppcc">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nmgmpi3768/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nmgmpi3768/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nmgmpi3768/www/master/index.html?m">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nmgmpi3768/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nmgmpi3768/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nmgmpi3768/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nmgmpi3768/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nmgmpi3768/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nmgmpi3768/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/nmgmpi3768/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/6jjjj">git.io/6jjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/keeee">git.io/keeee</a></div>
 
