@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jddrbr3603/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jddrbr3603/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/q9999">git.io/q9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppk">x.co/ppk</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mmmmmmmm">git.io/mmmmmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3444">x.co/3444</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,28 +27,30 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jddrbr3603/djy/blob/master/gb/20/9/3/n12378222.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蒙人抗争 体制内觉醒 中共大抓捕      >-009fcc?logoWidth=1" title="蒙人抗争 体制内觉醒 中共大抓捕  " alt="蒙人抗争 体制内觉醒 中共大抓捕  "></a></p>
 <p><a href="https://github.com/jddrbr3603/djy/blob/master/gb/20/9/3/n12378843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共少将泄疫苗真相？地下钱庄探秘      >-009fcc?logoWidth=1" title="中共少将泄疫苗真相？地下钱庄探秘  " alt="中共少将泄疫苗真相？地下钱庄探秘  "></a></p>
+<p><a href="https://github.com/jddrbr3603/djy/blob/master/gb/20/9/3/n12378565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/强迫开学无果 内蒙当局宣传造假       >-009fcc?logoWidth=1" title="强迫开学无果 内蒙当局宣传造假  " alt="强迫开学无果 内蒙当局宣传造假  "></a></p>
 <p><a href="https://github.com/jddrbr3603/djy/blob/master/gb/20/9/3/n12378663.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：想说啥 中共七常委再次戴口罩亮相   >-009fcc?logoWidth=1" title="钟原：想说啥 中共七常委再次戴口罩亮相  " alt="钟原：想说啥 中共七常委再次戴口罩亮相  "></a></p>
 <p><a href="https://github.com/jddrbr3603/djy/blob/master/gb/20/9/2/n12376342.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/律界黑马姚庆湘做尽职调查 揭真相出走美国  >-009fcc?logoWidth=1" title="律界黑马姚庆湘做尽职调查 揭真相出走美国  " alt="律界黑马姚庆湘做尽职调查 揭真相出走美国  "></a></p>
-<p><a href="https://github.com/jddrbr3603/djy/blob/master/gb/20/9/3/n12378565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/强迫开学无果 内蒙当局宣传造假       >-009fcc?logoWidth=1" title="强迫开学无果 内蒙当局宣传造假  " alt="强迫开学无果 内蒙当局宣传造假  "></a></p>
 <p><a href="https://github.com/jddrbr3603/djy/blob/master/gb/20/8/30/n12367319.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共把迫害法轮功融入各项政治活动      >-009fcc?logoWidth=1" title="中共把迫害法轮功融入各项政治活动  " alt="中共把迫害法轮功融入各项政治活动  "></a></p>
 <p><a href="https://github.com/jddrbr3603/djy/blob/master/gb/20/9/3/n12378372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅欧洲行惨遭滑铁卢 还令欧盟团结抗共   >-009fcc?logoWidth=1" title="王毅欧洲行惨遭滑铁卢 还令欧盟团结抗共  " alt="王毅欧洲行惨遭滑铁卢 还令欧盟团结抗共  "></a></p>
 <p><a href="https://github.com/jddrbr3603/djy/blob/master/gb/20/8/31/n12370781.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大型央企中交建被美制裁 海外腐败丑闻频爆  >-009fcc?logoWidth=1" title="大型央企中交建被美制裁 海外腐败丑闻频爆  " alt="大型央企中交建被美制裁 海外腐败丑闻频爆  "></a></p>
 <p><a href="https://github.com/jddrbr3603/djy/blob/master/gb/20/9/3/n12378196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/TikTok算法中隐藏的秘密        >-009fcc?logoWidth=1" title="TikTok算法中隐藏的秘密  " alt="TikTok算法中隐藏的秘密  "></a></p>
+<p><a href="https://github.com/jddrbr3603/djy/blob/master/gb/20/9/3/n12377892.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共如何将健康人摧残致疯（6）       >-009fcc?logoWidth=1" title="中共如何将健康人摧残致疯（6）  " alt="中共如何将健康人摧残致疯（6）  "></a></p>
+<p><a href="https://github.com/jddrbr3603/djy/blob/master/gb/20/9/4/n12379490.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王岐山戴口罩露面              >-009fcc?logoWidth=1" title="王岐山戴口罩露面  " alt="王岐山戴口罩露面  "></a></p>
 <p><a href="https://github.com/jddrbr3603/djy/blob/master/gb/20/9/3/n12378670.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：中共驻美外交官受限 还有三类人不妙 >-009fcc?logoWidth=1" title="周晓辉：中共驻美外交官受限 还有三类人不妙  " alt="周晓辉：中共驻美外交官受限 还有三类人不妙  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/jddrbr3603/ntdtv/blob/master/gb/2020/09/04/a102933355.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/首个判死的中共副省长被打5枪 死前对话曝光 >-009fcc?logoWidth=1" title="首个判死的中共副省长被打5枪 死前对话曝光  " alt="首个判死的中共副省长被打5枪 死前对话曝光  "></a></p>
 <p><a href="https://github.com/jddrbr3603/djy/blob/master/gb/20/9/3/n12378545.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共卫建委宣传节约食用油 专家：凸显粮食危机>-009fcc?logoWidth=1" title="中共卫建委宣传节约食用油 专家：凸显粮食危机  " alt="中共卫建委宣传节约食用油 专家：凸显粮食危机  "></a></p>
 <p><a href="https://github.com/jddrbr3603/djy/blob/master/gb/20/9/3/n12376880.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印坦克大炮对阵 北京惹恼蒙古国      >-009fcc?logoWidth=1" title="中印坦克大炮对阵 北京惹恼蒙古国  " alt="中印坦克大炮对阵 北京惹恼蒙古国  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jddrbr3603/ntdtv/blob/master/gb/2020/09/04/a102933296.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共地下钱庄揭秘/巨石强森染疫 中共少将戳爆>-009fcc?logoWidth=1" title="中共地下钱庄揭秘/巨石强森染疫 中共少将戳爆疫苗真相？/  " alt="中共地下钱庄揭秘/巨石强森染疫 中共少将戳爆疫苗真相？/  "></a></p>
 <p><a href="https://github.com/jddrbr3603/ntdtv/blob/master/gb/2020/09/03/a102933011.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抢人的身体？马斯克“人机界面”将统治人类？ >-009fcc?logoWidth=1" title="抢人的身体？马斯克“人机界面”将统治人类？  " alt="抢人的身体？马斯克“人机界面”将统治人类？  "></a></p>
-<p><a href="https://github.com/jddrbr3603/ntdtv/blob/master/gb/2020/09/03/a102932990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙主席下令强推恶政 通辽悬赏通缉138名抗>-009fcc?logoWidth=1" title="内蒙主席下令强推恶政 通辽悬赏通缉138名抗议者  " alt="内蒙主席下令强推恶政 通辽悬赏通缉138名抗议者  "></a></p>
 <p><a href="https://github.com/jddrbr3603/djy/blob/master/gb/20/9/3/n12378568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日印澳组联盟 中共导弹打到哪了       >-009fcc?logoWidth=1" title="日印澳组联盟 中共导弹打到哪了  " alt="日印澳组联盟 中共导弹打到哪了  "></a></p>
 <p><a href="https://github.com/jddrbr3603/djy/blob/master/gb/20/9/3/n12378744.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美司法部高官：中共用WeChat遥控留学生 >-009fcc?logoWidth=1" title="美司法部高官：中共用WeChat遥控留学生  " alt="美司法部高官：中共用WeChat遥控留学生  "></a></p>
+<p><a href="https://github.com/jddrbr3603/ntdtv/blob/master/gb/2020/09/03/a102932990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙主席下令强推恶政 通辽悬赏通缉138名抗>-009fcc?logoWidth=1" title="内蒙主席下令强推恶政 通辽悬赏通缉138名抗议者  " alt="内蒙主席下令强推恶政 通辽悬赏通缉138名抗议者  "></a></p>
 <p><a href="https://github.com/jddrbr3603/ntdtv/blob/master/gb/2020/09/03/a102932846.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印坦克双双进入射程 印度神秘精锐部队曝光 >-009fcc?logoWidth=1" title="中印坦克双双进入射程 印度神秘精锐部队曝光  " alt="中印坦克双双进入射程 印度神秘精锐部队曝光  "></a></p>
-<p><a href="https://github.com/jddrbr3603/ntdtv/blob/master/gb/2020/09/03/a102932724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王岐山隐身3个月露面 传因任志强“靠边站” >-009fcc?logoWidth=1" title="王岐山隐身3个月露面 传因任志强“靠边站”  " alt="王岐山隐身3个月露面 传因任志强“靠边站”  "></a></p>
 <p><a href="https://github.com/jddrbr3603/djy/blob/master/gb/20/9/3/n12376801.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：王毅还能保住中共外交部长之职吗？   >-009fcc?logoWidth=1" title="杨威：王毅还能保住中共外交部长之职吗？  " alt="杨威：王毅还能保住中共外交部长之职吗？  "></a></p>
-<p><a href="https://github.com/jddrbr3603/djy/blob/master/gb/20/9/4/n12379140.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/馆长遇袭 网友疑中共幕后策划        >-009fcc?logoWidth=1" title="馆长遇袭 网友疑中共幕后策划  " alt="馆长遇袭 网友疑中共幕后策划  "></a></p>
+<p><a href="https://github.com/jddrbr3603/djy/blob/master/gb/20/9/4/n12379140.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/馆长遇袭 引发外国网友热议         >-009fcc?logoWidth=1" title="馆长遇袭 引发外国网友热议  " alt="馆长遇袭 引发外国网友热议  "></a></p>
+<p><a href="https://github.com/jddrbr3603/ntdtv/blob/master/gb/2020/09/03/a102932724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王岐山隐身3个月露面 传因任志强“靠边站” >-009fcc?logoWidth=1" title="王岐山隐身3个月露面 传因任志强“靠边站”  " alt="王岐山隐身3个月露面 传因任志强“靠边站”  "></a></p>
 <p><a href="https://github.com/jddrbr3603/ntdtv/blob/master/gb/2020/09/03/a102932930.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“南瓜和它”一起吃，功效似补药 恢复眼疲劳！>-009fcc?logoWidth=1" title="“南瓜和它”一起吃，功效似补药 恢复眼疲劳！  " alt="“南瓜和它”一起吃，功效似补药 恢复眼疲劳！  "></a></p>
-<p><a href="https://github.com/jddrbr3603/ntdtv/blob/master/gb/2020/09/03/a102932837.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王岐山隐身3个月露面/习四面被围      >-009fcc?logoWidth=1" title="王岐山隐身3个月露面/习四面被围  " alt="王岐山隐身3个月露面/习四面被围  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -260,9 +262,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://jddrbr3603.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?vflya">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?knyvx">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?alqpd">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?dsywx">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +308,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?qrinc">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?plikq">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?msjdx">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?osfhl">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/jddrbr3603/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jddrbr3603/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jddrbr3603/www/master/index.html?a">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jddrbr3603/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jddrbr3603/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/jddrbr3603/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jddrbr3603/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jddrbr3603/www/master/index.html?z">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jddrbr3603/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jddrbr3603/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/q9999">git.io/q9999</a></div>
+<div align="center">短网址: <a href="https://git.io/mmmmmmmm">git.io/mmmmmmmm</a></div>
 
