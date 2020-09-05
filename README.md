@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dblmwc380/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dblmwc380/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ygggg">git.io/ygggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pfp">x.co/pfp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mjjjj">git.io/mjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/xdd">x.co/xdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/dblmwc380/ntdtv/blob/master/gb/2020/09/05/a102934241.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逾500家中国房企破产/政法系更大整顿风暴来>-009fcc?logoWidth=1" title="逾500家中国房企破产/政法系更大整顿风暴来临  " alt="逾500家中国房企破产/政法系更大整顿风暴来临  "></a></p>
+<p><a href="https://github.com/dblmwc380/ntdtv/blob/master/gb/2020/09/05/a102934241.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平架空郭声琨？/逾500家中国房企破产 >-009fcc?logoWidth=1" title="习近平架空郭声琨？/逾500家中国房企破产  " alt="习近平架空郭声琨？/逾500家中国房企破产  "></a></p>
 <p><a href="https://github.com/dblmwc380/ntdtv/blob/master/gb/2020/09/05/a102934249.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：中共图谋统治全球 对内侵权对外霸凌 >-009fcc?logoWidth=1" title="蓬佩奥：中共图谋统治全球 对内侵权对外霸凌  " alt="蓬佩奥：中共图谋统治全球 对内侵权对外霸凌  "></a></p>
 <p><a href="https://github.com/dblmwc380/ntdtv/blob/master/gb/2020/09/05/a102934242.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/冒充美公民投票 中国移民被起诉       >-009fcc?logoWidth=1" title="冒充美公民投票 中国移民被起诉  " alt="冒充美公民投票 中国移民被起诉  "></a></p>
 <p><a href="https://github.com/dblmwc380/ntdtv/blob/master/gb/2020/09/05/a102934213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“国师”郑永年辞职 涉数起性骚扰   >-009fcc?logoWidth=1" title="习近平“国师”郑永年辞职 涉数起性骚扰  " alt="习近平“国师”郑永年辞职 涉数起性骚扰  "></a></p>
 <p><a href="https://github.com/dblmwc380/ntdtv/blob/master/gb/2020/09/05/a102934208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逾500家中国房企破产 买房者恐楼财两空  >-009fcc?logoWidth=1" title="逾500家中国房企破产 买房者恐楼财两空  " alt="逾500家中国房企破产 买房者恐楼财两空  "></a></p>
 <p><a href="https://github.com/dblmwc380/ntdtv/blob/master/gb/2020/09/05/a102934166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普不想和习近平说话 上百场高级别对话取消 >-009fcc?logoWidth=1" title="川普不想和习近平说话 上百场高级别对话取消  " alt="川普不想和习近平说话 上百场高级别对话取消  "></a></p>
+<p><a href="https://github.com/dblmwc380/ntdtv/blob/master/gb/2020/09/05/a102934289.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美莎克台风酿数十死伤 朝鲜惩罚地方官员不遵党>-009fcc?logoWidth=1" title="美莎克台风酿数十死伤 朝鲜惩罚地方官员不遵党令  " alt="美莎克台风酿数十死伤 朝鲜惩罚地方官员不遵党令  "></a></p>
 <p><a href="https://github.com/dblmwc380/ntdtv/blob/master/gb/2020/09/05/a102934204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东地中海经济资源重叠 土希龃龉北约斡旋   >-009fcc?logoWidth=1" title="东地中海经济资源重叠 土希龃龉北约斡旋  " alt="东地中海经济资源重叠 土希龃龉北约斡旋  "></a></p>
 <p><a href="https://github.com/dblmwc380/ntdtv/blob/master/gb/2020/09/05/a102934203.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/百年来第3次！ 25米长蓝鲸现踪悉尼海岸  >-009fcc?logoWidth=1" title="百年来第3次！ 25米长蓝鲸现踪悉尼海岸  " alt="百年来第3次！ 25米长蓝鲸现踪悉尼海岸  "></a></p>
 <p><a href="https://github.com/dblmwc380/ntdtv/blob/master/gb/2020/09/05/a102934200.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/卫星影像：朝鲜疑为潜射弹道飞弹准备     >-009fcc?logoWidth=1" title="卫星影像：朝鲜疑为潜射弹道飞弹准备  " alt="卫星影像：朝鲜疑为潜射弹道飞弹准备  "></a></p>
 <p><a href="https://github.com/dblmwc380/ntdtv/blob/master/gb/2020/09/05/a102934162.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平架空郭声琨？政法系更大整顿风暴来临  >-009fcc?logoWidth=1" title="习近平架空郭声琨？政法系更大整顿风暴来临  " alt="习近平架空郭声琨？政法系更大整顿风暴来临  "></a></p>
-<p><a href="https://github.com/dblmwc380/ntdtv/blob/master/gb/2020/09/05/a102934155.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/强台海神近颠峰 直扑日韩 日气象厅吁民众保命>-009fcc?logoWidth=1" title="强台海神近颠峰 直扑日韩 日气象厅吁民众保命  " alt="强台海神近颠峰 直扑日韩 日气象厅吁民众保命  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dblmwc380/djy/blob/master/gb/20/9/4/n12381137.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川习关系闹僵 美中取消上百场高级别对话   >-009fcc?logoWidth=1" title="川习关系闹僵 美中取消上百场高级别对话  " alt="川习关系闹僵 美中取消上百场高级别对话  "></a></p>
 <p><a href="https://github.com/dblmwc380/djy/blob/master/gb/20/9/4/n12381285.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平五个绝不答应 网路炸锅        >-009fcc?logoWidth=1" title="习近平五个绝不答应 网路炸锅  " alt="习近平五个绝不答应 网路炸锅  "></a></p>
@@ -41,13 +41,13 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dblmwc380/ntdtv/blob/master/gb/2020/09/05/a102934139.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五个“绝不答应”透恐慌？习近平又承诺扩大开放>-009fcc?logoWidth=1" title="五个“绝不答应”透恐慌？习近平又承诺扩大开放  " alt="五个“绝不答应”透恐慌？习近平又承诺扩大开放  "></a></p>
 <p><a href="https://github.com/dblmwc380/ntdtv/blob/master/gb/2020/09/04/a102933613.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又一场大清洗来临！英媒：习向党内发强硬信号 >-009fcc?logoWidth=1" title="又一场大清洗来临！英媒：习向党内发强硬信号  " alt="又一场大清洗来临！英媒：习向党内发强硬信号  "></a></p>
-<p><a href="https://github.com/dblmwc380/ntdtv/blob/master/gb/2020/09/04/a102933355.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/首个判死的中共副省长被打5枪 死前对话曝光 >-009fcc?logoWidth=1" title="首个判死的中共副省长被打5枪 死前对话曝光  " alt="首个判死的中共副省长被打5枪 死前对话曝光  "></a></p>
 <p><a href="https://github.com/dblmwc380/djy/blob/master/gb/20/9/5/n12381914.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李嘉诚再售北京上海两处物业 总值500亿  >-009fcc?logoWidth=1" title="李嘉诚再售北京上海两处物业 总值500亿  " alt="李嘉诚再售北京上海两处物业 总值500亿  "></a></p>
 <p><a href="https://github.com/dblmwc380/djy/blob/master/gb/20/9/4/n12381796.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美官员：政府考虑将中芯国际加入黑名单    >-009fcc?logoWidth=1" title="美官员：政府考虑将中芯国际加入黑名单  " alt="美官员：政府考虑将中芯国际加入黑名单  "></a></p>
-<p><a href="https://github.com/dblmwc380/ntdtv/blob/master/gb/2020/09/04/a102933972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“绝不答应”五连发 民间高呼要答应  >-009fcc?logoWidth=1" title="习近平“绝不答应”五连发 民间高呼要答应  " alt="习近平“绝不答应”五连发 民间高呼要答应  "></a></p>
+<p><a href="https://github.com/dblmwc380/ntdtv/blob/master/gb/2020/09/05/a102934295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：川普再揭中共瞒疫 党媒为何噤声？  >-009fcc?logoWidth=1" title="李正宽：川普再揭中共瞒疫 党媒为何噤声？  " alt="李正宽：川普再揭中共瞒疫 党媒为何噤声？  "></a></p>
+<p><a href="https://github.com/dblmwc380/ntdtv/blob/master/gb/2020/09/04/a102933355.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/首个判死的中共副省长被打5枪 死前对话曝光 >-009fcc?logoWidth=1" title="首个判死的中共副省长被打5枪 死前对话曝光  " alt="首个判死的中共副省长被打5枪 死前对话曝光  "></a></p>
 <p><a href="https://github.com/dblmwc380/djy/blob/master/gb/20/9/4/n12381054.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美将中国人与中共切割 习近平公开回应被讽  >-009fcc?logoWidth=1" title="美将中国人与中共切割 习近平公开回应被讽  " alt="美将中国人与中共切割 习近平公开回应被讽  "></a></p>
 <p><a href="https://github.com/dblmwc380/djy/blob/master/gb/20/9/4/n12381562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共对印度的经济渗透            >-009fcc?logoWidth=1" title="中共对印度的经济渗透  " alt="中共对印度的经济渗透  "></a></p>
-<p><a href="https://github.com/dblmwc380/ntdtv/blob/master/gb/2020/09/04/a102933759.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙古广播电视台300人按手印 蓬佩奥被贬后>-009fcc?logoWidth=1" title="内蒙古广播电视台300人按手印 蓬佩奥被贬后加速反共  " alt="内蒙古广播电视台300人按手印 蓬佩奥被贬后加速反共  "></a></p>
+<p><a href="https://github.com/dblmwc380/ntdtv/blob/master/gb/2020/09/04/a102933972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“绝不答应”五连发 民间高呼要答应  >-009fcc?logoWidth=1" title="习近平“绝不答应”五连发 民间高呼要答应  " alt="习近平“绝不答应”五连发 民间高呼要答应  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://dblmwc380.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ymyck">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?hpjpq">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?unonz">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?jizfp">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ppbuu">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?mpciu">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ugsni">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?yodra">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dblmwc380/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dblmwc380/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dblmwc380/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dblmwc380/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dblmwc380/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dblmwc380/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dblmwc380/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dblmwc380/www/master/index.html?b">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dblmwc380/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/dblmwc380/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ygggg">git.io/ygggg</a></div>
+<div align="center">短网址: <a href="https://git.io/mjjjj">git.io/mjjjj</a></div>
 
