@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/auvdkj314/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/auvdkj314/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tbbbb">git.io/tbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/377">x.co/377</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/999999">git.io/999999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9933">x.co/9933</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/auvdkj314/ntdtv/blob/master/gb/2020/09/05/a102934213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“国师”郑永年辞职 涉数起性骚扰   >-009fcc?logoWidth=1" title="习近平“国师”郑永年辞职 涉数起性骚扰  " alt="习近平“国师”郑永年辞职 涉数起性骚扰  "></a></p>
 <p><a href="https://github.com/auvdkj314/ntdtv/blob/master/gb/2020/09/05/a102934208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逾500家中国房企破产 买房者恐楼财两空  >-009fcc?logoWidth=1" title="逾500家中国房企破产 买房者恐楼财两空  " alt="逾500家中国房企破产 买房者恐楼财两空  "></a></p>
 <p><a href="https://github.com/auvdkj314/ntdtv/blob/master/gb/2020/09/05/a102934166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普不想和习近平说话 上百场高级别对话取消 >-009fcc?logoWidth=1" title="川普不想和习近平说话 上百场高级别对话取消  " alt="川普不想和习近平说话 上百场高级别对话取消  "></a></p>
+<p><a href="https://github.com/auvdkj314/ntdtv/blob/master/gb/2020/09/05/a102934550.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江苏12岁学童死亡浑身伤 老师称只摸了一下(>-009fcc?logoWidth=1" title="江苏12岁学童死亡浑身伤 老师称只摸了一下(视频)  " alt="江苏12岁学童死亡浑身伤 老师称只摸了一下(视频)  "></a></p>
+<p><a href="https://github.com/auvdkj314/ntdtv/blob/master/gb/2020/09/05/a102934556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台风再袭东北 城乡一片狼藉玉米大面积倒伏(视>-009fcc?logoWidth=1" title="台风再袭东北 城乡一片狼藉玉米大面积倒伏(视频)  " alt="台风再袭东北 城乡一片狼藉玉米大面积倒伏(视频)  "></a></p>
 <p><a href="https://github.com/auvdkj314/ntdtv/blob/master/gb/2020/09/05/a102934543.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军队绑架5名印度人 中印防长会晤针锋相对>-009fcc?logoWidth=1" title="中共军队绑架5名印度人 中印防长会晤针锋相对  " alt="中共军队绑架5名印度人 中印防长会晤针锋相对  "></a></p>
 <p><a href="https://github.com/auvdkj314/ntdtv/blob/master/gb/2020/09/05/a102934509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港周日反国安法大游行 警方威胁抓人    >-009fcc?logoWidth=1" title="香港周日反国安法大游行 警方威胁抓人  " alt="香港周日反国安法大游行 警方威胁抓人  "></a></p>
 <p><a href="https://github.com/auvdkj314/ntdtv/blob/master/gb/2020/09/05/a102934517.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赞颂自由主席 ：中共处于解体前分水岭    >-009fcc?logoWidth=1" title="赞颂自由主席 ：中共处于解体前分水岭  " alt="赞颂自由主席 ：中共处于解体前分水岭  "></a></p>
-<p><a href="https://github.com/auvdkj314/ntdtv/blob/master/gb/2020/09/05/a102934420.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港人6日大游行反国安法 港警料部署2千警力 >-009fcc?logoWidth=1" title="港人6日大游行反国安法 港警料部署2千警力  " alt="港人6日大游行反国安法 港警料部署2千警力  "></a></p>
-<p><a href="https://github.com/auvdkj314/ntdtv/blob/master/gb/2020/09/05/a102934410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：劳工节周末小心 防止病毒传播     >-009fcc?logoWidth=1" title="川普：劳工节周末小心 防止病毒传播  " alt="川普：劳工节周末小心 防止病毒传播  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/auvdkj314/djy/blob/master/gb/20/9/5/n12382568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙女官员堕楼亡 遗书流出 夫遭警方封口  >-009fcc?logoWidth=1" title="内蒙女官员堕楼亡 遗书流出 夫遭警方封口  " alt="内蒙女官员堕楼亡 遗书流出 夫遭警方封口  "></a></p>
 <p><a href="https://github.com/auvdkj314/djy/blob/master/gb/20/9/4/n12381285.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平五个绝不答应 网路炸锅        >-009fcc?logoWidth=1" title="习近平五个绝不答应 网路炸锅  " alt="习近平五个绝不答应 网路炸锅  "></a></p>
@@ -261,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://auvdkj314.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?sgils">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?lbazu">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?bmgol">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?xrsef">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?jdexf">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?uefpi">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?sqfbd">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?rluwz">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/auvdkj314/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/auvdkj314/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/auvdkj314/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/auvdkj314/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/auvdkj314/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/auvdkj314/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/auvdkj314/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/auvdkj314/www/master/index.html?t">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/auvdkj314/www/blob/master/README.md?c#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/auvdkj314/www/blob/master/README.md?j%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/tbbbb">git.io/tbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/999999">git.io/999999</a></div>
 
