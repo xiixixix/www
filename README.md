@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/weliyw3843/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/weliyw3843/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ruuuu">git.io/ruuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3222">x.co/3222</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/5tttt">git.io/5tttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/faa">x.co/faa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/weliyw3843/ntdtv/blob/master/gb/2020/09/04/a102933931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙公安：每2小时抓1人 蒙族同事“造反”拒>-009fcc?logoWidth=1" title="内蒙公安：每2小时抓1人 蒙族同事“造反”拒出勤  " alt="内蒙公安：每2小时抓1人 蒙族同事“造反”拒出勤  "></a></p>
 <p><a href="https://github.com/weliyw3843/ntdtv/blob/master/gb/2020/09/04/a102933613.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又一场大清洗来临！英媒：习向党内发强硬信号 >-009fcc?logoWidth=1" title="又一场大清洗来临！英媒：习向党内发强硬信号  " alt="又一场大清洗来临！英媒：习向党内发强硬信号  "></a></p>
 <p><a href="https://github.com/weliyw3843/ntdtv/blob/master/gb/2020/09/04/a102933440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印媒：中共国防部长求见印度防长遭拒     >-009fcc?logoWidth=1" title="印媒：中共国防部长求见印度防长遭拒  " alt="印媒：中共国防部长求见印度防长遭拒  "></a></p>
+<p><a href="https://github.com/weliyw3843/ntdtv/blob/master/gb/2020/09/05/a102934155.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/强台海神近颠峰 直扑日韩 日气象厅吁民众保命>-009fcc?logoWidth=1" title="强台海神近颠峰 直扑日韩 日气象厅吁民众保命  " alt="强台海神近颠峰 直扑日韩 日气象厅吁民众保命  "></a></p>
+<p><a href="https://github.com/weliyw3843/ntdtv/blob/master/gb/2020/09/05/a102934153.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共积极干预美大选 美国安顾问警告“零容忍”>-009fcc?logoWidth=1" title="中共积极干预美大选 美国安顾问警告“零容忍”  " alt="中共积极干预美大选 美国安顾问警告“零容忍”  "></a></p>
 <p><a href="https://github.com/weliyw3843/ntdtv/blob/master/gb/2020/09/05/a102934098.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刘亦菲撑港警 台湾抵制《花木兰》上映    >-009fcc?logoWidth=1" title="刘亦菲撑港警 台湾抵制《花木兰》上映  " alt="刘亦菲撑港警 台湾抵制《花木兰》上映  "></a></p>
 <p><a href="https://github.com/weliyw3843/ntdtv/blob/master/gb/2020/09/05/a102934096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/当局以进入中共政协为饵 诱余文生律师举报他人>-009fcc?logoWidth=1" title="当局以进入中共政协为饵 诱余文生律师举报他人  " alt="当局以进入中共政协为饵 诱余文生律师举报他人  "></a></p>
 <p><a href="https://github.com/weliyw3843/ntdtv/blob/master/gb/2020/09/05/a102934104.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程翔：傀儡无信 香港避难所角色完结     >-009fcc?logoWidth=1" title="程翔：傀儡无信 香港避难所角色完结  " alt="程翔：傀儡无信 香港避难所角色完结  "></a></p>
-<p><a href="https://github.com/weliyw3843/ntdtv/blob/master/gb/2020/09/02/a102931621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国口罩流入台湾 蔡英文：不可原谅、绝对彻查>-009fcc?logoWidth=1" title="中国口罩流入台湾 蔡英文：不可原谅、绝对彻查  " alt="中国口罩流入台湾 蔡英文：不可原谅、绝对彻查  "></a></p>
-<p><a href="https://github.com/weliyw3843/ntdtv/blob/master/gb/2020/09/04/a102933988.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/IFA国际电子消费展 两款AI新品改变生活 >-009fcc?logoWidth=1" title="IFA国际电子消费展 两款AI新品改变生活  " alt="IFA国际电子消费展 两款AI新品改变生活  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/weliyw3843/djy/blob/master/gb/20/9/4/n12380003.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拒绝中共灭绝文化 内蒙古1.8万民众联名抗议>-009fcc?logoWidth=1" title="拒绝中共灭绝文化 内蒙古1.8万民众联名抗议  " alt="拒绝中共灭绝文化 内蒙古1.8万民众联名抗议  "></a></p>
 <p><a href="https://github.com/weliyw3843/djy/blob/master/gb/20/9/4/n12379896.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：五个“绝不答应”，习近平危殆     >-009fcc?logoWidth=1" title="王赫：五个“绝不答应”，习近平危殆  " alt="王赫：五个“绝不答应”，习近平危殆  "></a></p>
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://weliyw3843.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?sretj">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ecrxe">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?bibfm">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?xysdi">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?pgrhb">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?frmfu">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?lxcer">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?xyoga">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/weliyw3843/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/weliyw3843/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/weliyw3843/www/master/index.html?z">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/weliyw3843/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/weliyw3843/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/weliyw3843/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/weliyw3843/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/weliyw3843/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/weliyw3843/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/weliyw3843/www/blob/master/README.md?e%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ruuuu">git.io/ruuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/5tttt">git.io/5tttt</a></div>
 
