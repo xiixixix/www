@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/weliyw3843/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/weliyw3843/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/upppp">git.io/upppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j44">x.co/j44</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/txxxx">git.io/txxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp5">x.co/pp5</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/weliyw3843/ntdtv/blob/master/gb/2020/09/05/a102934162.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/剑指郭声琨？政法系更大整顿风暴来临     >-009fcc?logoWidth=1" title="剑指郭声琨？政法系更大整顿风暴来临  " alt="剑指郭声琨？政法系更大整顿风暴来临  "></a></p>
 <p><a href="https://github.com/weliyw3843/ntdtv/blob/master/gb/2020/09/05/a102934139.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五个“绝不答应”透恐慌？习近平又承诺扩大开放>-009fcc?logoWidth=1" title="五个“绝不答应”透恐慌？习近平又承诺扩大开放  " alt="五个“绝不答应”透恐慌？习近平又承诺扩大开放  "></a></p>
 <p><a href="https://github.com/weliyw3843/ntdtv/blob/master/gb/2020/09/04/a102933968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普清查政府所有涉中资金 疑为下一步抗共铺路>-009fcc?logoWidth=1" title="川普清查政府所有涉中资金 疑为下一步抗共铺路  " alt="川普清查政府所有涉中资金 疑为下一步抗共铺路  "></a></p>
 <p><a href="https://github.com/weliyw3843/ntdtv/blob/master/gb/2020/09/04/a102933760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共军机坠毁桂林 台军：不是我打的    >-009fcc?logoWidth=1" title="传中共军机坠毁桂林 台军：不是我打的  " alt="传中共军机坠毁桂林 台军：不是我打的  "></a></p>
 <p><a href="https://github.com/weliyw3843/ntdtv/blob/master/gb/2020/09/04/a102933931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙公安：每2小时抓1人 蒙族同事“造反”拒>-009fcc?logoWidth=1" title="内蒙公安：每2小时抓1人 蒙族同事“造反”拒出勤  " alt="内蒙公安：每2小时抓1人 蒙族同事“造反”拒出勤  "></a></p>
 <p><a href="https://github.com/weliyw3843/ntdtv/blob/master/gb/2020/09/04/a102933613.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又一场大清洗来临！英媒：习向党内发强硬信号 >-009fcc?logoWidth=1" title="又一场大清洗来临！英媒：习向党内发强硬信号  " alt="又一场大清洗来临！英媒：习向党内发强硬信号  "></a></p>
-<p><a href="https://github.com/weliyw3843/ntdtv/blob/master/gb/2020/09/04/a102933440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印媒：中共国防部长求见印度防长遭拒     >-009fcc?logoWidth=1" title="印媒：中共国防部长求见印度防长遭拒  " alt="印媒：中共国防部长求见印度防长遭拒  "></a></p>
 <p><a href="https://github.com/weliyw3843/ntdtv/blob/master/gb/2020/09/05/a102934155.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/强台海神近颠峰 直扑日韩 日气象厅吁民众保命>-009fcc?logoWidth=1" title="强台海神近颠峰 直扑日韩 日气象厅吁民众保命  " alt="强台海神近颠峰 直扑日韩 日气象厅吁民众保命  "></a></p>
 <p><a href="https://github.com/weliyw3843/ntdtv/blob/master/gb/2020/09/05/a102934153.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共积极干预美大选 美国安顾问警告“零容忍”>-009fcc?logoWidth=1" title="中共积极干预美大选 美国安顾问警告“零容忍”  " alt="中共积极干预美大选 美国安顾问警告“零容忍”  "></a></p>
 <p><a href="https://github.com/weliyw3843/ntdtv/blob/master/gb/2020/09/05/a102934098.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刘亦菲撑港警 台湾抵制《花木兰》上映    >-009fcc?logoWidth=1" title="刘亦菲撑港警 台湾抵制《花木兰》上映  " alt="刘亦菲撑港警 台湾抵制《花木兰》上映  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/weliyw3843/djy/blob/master/gb/20/8/26/n12358629.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/千古恨！张学良自称罪人中的罪魁       >-009fcc?logoWidth=1" title="千古恨！张学良自称罪人中的罪魁  " alt="千古恨！张学良自称罪人中的罪魁  "></a></p>
 <p><a href="https://github.com/weliyw3843/djy/blob/master/gb/20/9/4/n12379422.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王岐山被低调？内蒙人脸识别抓人       >-009fcc?logoWidth=1" title="王岐山被低调？内蒙人脸识别抓人  " alt="王岐山被低调？内蒙人脸识别抓人  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/weliyw3843/ntdtv/blob/master/gb/2020/09/04/a102933440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印媒：中共国防部长求见印度防长遭拒     >-009fcc?logoWidth=1" title="印媒：中共国防部长求见印度防长遭拒  " alt="印媒：中共国防部长求见印度防长遭拒  "></a></p>
 <p><a href="https://github.com/weliyw3843/ntdtv/blob/master/gb/2020/09/04/a102933972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“绝不答应”五连发 民间高呼要答应  >-009fcc?logoWidth=1" title="习近平“绝不答应”五连发 民间高呼要答应  " alt="习近平“绝不答应”五连发 民间高呼要答应  "></a></p>
 <p><a href="https://github.com/weliyw3843/djy/blob/master/gb/20/9/4/n12380220.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海律师张展案件送检 绝食抗争状况堪忧   >-009fcc?logoWidth=1" title="上海律师张展案件送检 绝食抗争状况堪忧  " alt="上海律师张展案件送检 绝食抗争状况堪忧  "></a></p>
 <p><a href="https://github.com/weliyw3843/djy/blob/master/gb/20/9/4/n12381330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两名“习家军”分任浙江代省长与天津副书记  >-009fcc?logoWidth=1" title="两名“习家军”分任浙江代省长与天津副书记  " alt="两名“习家军”分任浙江代省长与天津副书记  "></a></p>
@@ -259,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://weliyw3843.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?qqitz">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?btuzz">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?qyvlg">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?bjlwm">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?brszp">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?oivcj">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?qyizx">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?almew">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/weliyw3843/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/weliyw3843/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/weliyw3843/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/weliyw3843/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/weliyw3843/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/weliyw3843/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/weliyw3843/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/weliyw3843/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/weliyw3843/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/weliyw3843/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/upppp">git.io/upppp</a></div>
+<div align="center">短网址: <a href="https://git.io/txxxx">git.io/txxxx</a></div>
 
