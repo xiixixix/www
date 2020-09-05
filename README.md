@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/auvdkj314/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/auvdkj314/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/daaaa">git.io/daaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9aa">x.co/9aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/b2222">git.io/b2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/fpp">x.co/fpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -261,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://auvdkj314.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?zsose">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?mmnss">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?icugi">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ojbcm">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?cwgvu">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?bzaoz">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?wxwmh">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?hwtug">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -368,7 +368,7 @@
 <a href="https://gitlab.com/szzdlab/v/raw/master/v/2018-12-10/425.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/425.jpg" title="“四.二五”上访真相" alt="“四.二五”上访真相"></a>
 <a href="https://gitlab.com/szzdlab/v/raw/master/v/2018-12-14/1400forge-1210.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/1400forge-1210.jpg" title="解析〝1400例〞" alt="解析〝1400例〞"></a><br>
 <a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-2-21/guanguimin.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/guanguimin.jpg" title="短视频：歌唱家关贵敏的人生奇迹" alt="短视频：歌唱家关贵敏的人生奇迹"></a>
-<a href="https://gitlab.com/szzdlab/www/raw/master/v/2018-11-4/SY-Classical-Chinese-Dance-Technique-Collection-2018.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/SY-Classical-Chinese-Dance-Technique-Collection-2018.jpg" title="美国神韵艺术团新秀技巧表演（视频）" alt="美国神韵艺术团新秀技巧表演（视频）"></a>
+<a href="https://gitlab.com/szzdlab/m1/raw/master/Lijianhui-200804-720.mp4" target="_blank"><img width="210" src="https://gitlab.com/szzdlab/t/-/raw/master/210b/ruidian_720.jpg" title="短视频：千万富翁的生命回归之路" alt="短视频：千万富翁的生命回归之路"></a>
 <a href="https://gitlab.com/szzdlab/www/raw/master/v/2019-12-23/lin-720p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/lin-720p.jpg" title="加拿大世界小姐的心灵旅程" alt="加拿大世界小姐的心灵旅程"></a><br>
 <a href="https://gitlab.com/szzdlab/w3/raw/master/9p.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/9p.jpg" title="九评共产党(全集)" alt="九评共产党(全集)"></a>
 <a href="https://gitlab.com/szzdlab/w5/raw/master/mtdwh.mp4" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/mtdwh.jpg" title="漫谈党文化(全集)" alt="漫谈党文化(全集)"></a>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/auvdkj314/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/auvdkj314/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/auvdkj314/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/auvdkj314/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/auvdkj314/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/auvdkj314/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/auvdkj314/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/auvdkj314/www/master/index.html?s">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/auvdkj314/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/auvdkj314/www/blob/master/README.md?c%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/daaaa">git.io/daaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/b2222">git.io/b2222</a></div>
 
