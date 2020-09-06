@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xpxtxh3586/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xpxtxh3586/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/y2222">git.io/y2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3444">x.co/3444</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g7777">git.io/g7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/apa">x.co/apa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,7 +20,7 @@
 <p><a href="https://github.com/xpxtxh3586/ntdtv/blob/master/gb/2020/09/06/a102934731.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：王毅为习添乱 战狼咬到铁板      >-009fcc?logoWidth=1" title="美媒：王毅为习添乱 战狼咬到铁板  " alt="美媒：王毅为习添乱 战狼咬到铁板  "></a></p>
 <p><a href="https://github.com/xpxtxh3586/ntdtv/blob/master/gb/2020/09/06/a102934688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/毛泽东会见江青前夫 瞪大眼睛说出三个字   >-009fcc?logoWidth=1" title="毛泽东会见江青前夫 瞪大眼睛说出三个字  " alt="毛泽东会见江青前夫 瞪大眼睛说出三个字  "></a></p>
 <p><a href="https://github.com/xpxtxh3586/ntdtv/blob/master/gb/2020/09/06/a102934687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平急喊“绝不答应”壮胆？ 蔡霞：他怕混不>-009fcc?logoWidth=1" title="习近平急喊“绝不答应”壮胆？ 蔡霞：他怕混不下去  " alt="习近平急喊“绝不答应”壮胆？ 蔡霞：他怕混不下去  "></a></p>
-<p><a href="https://github.com/xpxtxh3586/ntdtv/blob/master/gb/2020/09/05/a102934372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/应对中共威胁 蓬佩奥将赴东盟会议      >-009fcc?logoWidth=1" title="应对中共威胁 蓬佩奥将赴东盟会议  " alt="应对中共威胁 蓬佩奥将赴东盟会议  "></a></p>
+<p><a href="https://github.com/xpxtxh3586/ntdtv/blob/master/gb/2020/09/05/a102934372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/应对中共威胁 蓬佩奥将出席东盟外长会议   >-009fcc?logoWidth=1" title="应对中共威胁 蓬佩奥将出席东盟外长会议  " alt="应对中共威胁 蓬佩奥将出席东盟外长会议  "></a></p>
 <p><a href="https://github.com/xpxtxh3586/ntdtv/blob/master/gb/2020/09/06/a102934832.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谁想干预美国大选？川普高官齐指中共     >-009fcc?logoWidth=1" title="谁想干预美国大选？川普高官齐指中共  " alt="谁想干预美国大选？川普高官齐指中共  "></a></p>
 <p><a href="https://github.com/xpxtxh3586/ntdtv/blob/master/gb/2020/09/02/a102931621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美赴中旅客须检测报告 库克群岛前总理病逝  >-009fcc?logoWidth=1" title="美赴中旅客须检测报告 库克群岛前总理病逝  " alt="美赴中旅客须检测报告 库克群岛前总理病逝  "></a></p>
 <p><a href="https://github.com/xpxtxh3586/ntdtv/blob/master/gb/2020/09/06/a102934791.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国伯明翰惊传数起刺人案 警方宣告“重大事件>-009fcc?logoWidth=1" title="英国伯明翰惊传数起刺人案 警方宣告“重大事件”  " alt="英国伯明翰惊传数起刺人案 警方宣告“重大事件”  "></a></p>
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://xpxtxh3586.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?segwn">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?nvkwj">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?wvvax">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?oirdc">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?keunm">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?spuzt">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?lomlt">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?mmpoi">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xpxtxh3586/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xpxtxh3586/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xpxtxh3586/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xpxtxh3586/www/blob/master/README.md?t#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xpxtxh3586/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xpxtxh3586/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xpxtxh3586/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xpxtxh3586/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xpxtxh3586/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xpxtxh3586/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/y2222">git.io/y2222</a></div>
+<div align="center">短网址: <a href="https://git.io/g7777">git.io/g7777</a></div>
 
