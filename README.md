@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xpxtxh3586/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xpxtxh3586/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qaaaa">git.io/qaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/apa">x.co/apa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/zkkkk">git.io/zkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3388">x.co/3388</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/xpxtxh3586/ntdtv/blob/master/gb/2020/09/06/a102934731.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：王毅为习添乱 战狼咬到铁板      >-009fcc?logoWidth=1" title="美媒：王毅为习添乱 战狼咬到铁板  " alt="美媒：王毅为习添乱 战狼咬到铁板  "></a></p>
 <p><a href="https://github.com/xpxtxh3586/ntdtv/blob/master/gb/2020/09/06/a102934688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/毛泽东会见江青前夫 瞪大眼睛说出三个字   >-009fcc?logoWidth=1" title="毛泽东会见江青前夫 瞪大眼睛说出三个字  " alt="毛泽东会见江青前夫 瞪大眼睛说出三个字  "></a></p>
 <p><a href="https://github.com/xpxtxh3586/ntdtv/blob/master/gb/2020/09/06/a102934687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平急喊“绝不答应”壮胆？ 蔡霞：他怕混不>-009fcc?logoWidth=1" title="习近平急喊“绝不答应”壮胆？ 蔡霞：他怕混不下去  " alt="习近平急喊“绝不答应”壮胆？ 蔡霞：他怕混不下去  "></a></p>
+<p><a href="https://github.com/xpxtxh3586/ntdtv/blob/master/gb/2020/09/06/a102934957.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共拒给美记者延签 要挟华盛顿放党媒一马  >-009fcc?logoWidth=1" title="中共拒给美记者延签 要挟华盛顿放党媒一马  " alt="中共拒给美记者延签 要挟华盛顿放党媒一马  "></a></p>
+<p><a href="https://github.com/xpxtxh3586/ntdtv/blob/master/gb/2020/09/06/a102934923.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金融开战？白宫要求联邦机构提交涉华资金明细 >-009fcc?logoWidth=1" title="金融开战？白宫要求联邦机构提交涉华资金明细  " alt="金融开战？白宫要求联邦机构提交涉华资金明细  "></a></p>
 <p><a href="https://github.com/xpxtxh3586/ntdtv/blob/master/gb/2020/09/05/a102934372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/应对中共威胁 蓬佩奥将出席东盟外长会议   >-009fcc?logoWidth=1" title="应对中共威胁 蓬佩奥将出席东盟外长会议  " alt="应对中共威胁 蓬佩奥将出席东盟外长会议  "></a></p>
 <p><a href="https://github.com/xpxtxh3586/ntdtv/blob/master/gb/2020/09/06/a102934832.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谁想干预美国大选？川普高官齐指中共     >-009fcc?logoWidth=1" title="谁想干预美国大选？川普高官齐指中共  " alt="谁想干预美国大选？川普高官齐指中共  "></a></p>
 <p><a href="https://github.com/xpxtxh3586/ntdtv/blob/master/gb/2020/09/02/a102931621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美赴中旅客须检测报告 库克群岛前总理病逝  >-009fcc?logoWidth=1" title="美赴中旅客须检测报告 库克群岛前总理病逝  " alt="美赴中旅客须检测报告 库克群岛前总理病逝  "></a></p>
-<p><a href="https://github.com/xpxtxh3586/ntdtv/blob/master/gb/2020/09/06/a102934791.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国伯明翰惊传数起刺人案 警方宣告“重大事件>-009fcc?logoWidth=1" title="英国伯明翰惊传数起刺人案 警方宣告“重大事件”  " alt="英国伯明翰惊传数起刺人案 警方宣告“重大事件”  "></a></p>
-<p><a href="https://github.com/xpxtxh3586/ntdtv/blob/master/gb/2020/08/31/a102930552.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/NASA收到地下神秘信号！专家：地心人试图和>-009fcc?logoWidth=1" title="NASA收到地下神秘信号！专家：地心人试图和人类联系的方式  " alt="NASA收到地下神秘信号！专家：地心人试图和人类联系的方式  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xpxtxh3586/djy/blob/master/gb/20/9/6/n12383355.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谁想干预大选？川普高官齐指中共       >-009fcc?logoWidth=1" title="谁想干预大选？川普高官齐指中共  " alt="谁想干预大选？川普高官齐指中共  "></a></p>
 <p><a href="https://github.com/xpxtxh3586/djy/blob/master/gb/20/9/6/n12383819.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/500亿加密货币出逃 专家归因中共沉船效应 >-009fcc?logoWidth=1" title="500亿加密货币出逃 专家归因中共沉船效应  " alt="500亿加密货币出逃 专家归因中共沉船效应  "></a></p>
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://xpxtxh3586.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ldgjq">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?illwn">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?qmfyd">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?edczb">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?bolfq">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?cgvhh">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?pebqx">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?lvddz">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xpxtxh3586/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xpxtxh3586/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xpxtxh3586/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xpxtxh3586/www/blob/master/README.md?o#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xpxtxh3586/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xpxtxh3586/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xpxtxh3586/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xpxtxh3586/www/master/index.html?e">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xpxtxh3586/www/blob/master/README.md?y#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xpxtxh3586/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/qaaaa">git.io/qaaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/zkkkk">git.io/zkkkk</a></div>
 
