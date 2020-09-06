@@ -10,12 +10,12 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ylytvp3322/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ylytvp3322/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pkkkk">git.io/pkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j44">x.co/j44</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/3xxxx">git.io/3xxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp7">x.co/pp7</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/2020/09/06/a102934688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/毛泽东会见江青前夫 瞪大眼睛说出三个字   >-009fcc?logoWidth=1" title="毛泽东会见江青前夫 瞪大眼睛说出三个字  " alt="毛泽东会见江青前夫 瞪大眼睛说出三个字  "></a></p>
-<p><a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/2020/09/06/a102934687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平高喊“绝不答应”壮胆？ 蔡霞：他怕混不>-009fcc?logoWidth=1" title="习近平高喊“绝不答应”壮胆？ 蔡霞：他怕混不下去  " alt="习近平高喊“绝不答应”壮胆？ 蔡霞：他怕混不下去  "></a></p>
+<p><a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/2020/09/06/a102934687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平急喊“绝不答应”壮胆？ 蔡霞：他怕混不>-009fcc?logoWidth=1" title="习近平急喊“绝不答应”壮胆？ 蔡霞：他怕混不下去  " alt="习近平急喊“绝不答应”壮胆？ 蔡霞：他怕混不下去  "></a></p>
 <p><a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/2020/09/06/a102934662.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视洗脑“开学第一课” 董卿消失引关注   >-009fcc?logoWidth=1" title="央视洗脑“开学第一课” 董卿消失引关注  " alt="央视洗脑“开学第一课” 董卿消失引关注  "></a></p>
 <p><a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/2020/09/05/a102934241.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平架空郭声琨？逾500家中国房企破产  >-009fcc?logoWidth=1" title="习近平架空郭声琨？逾500家中国房企破产  " alt="习近平架空郭声琨？逾500家中国房企破产  "></a></p>
 <p><a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/2020/09/05/a102934249.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：中共图谋统治全球 对内侵权对外霸凌 >-009fcc?logoWidth=1" title="蓬佩奥：中共图谋统治全球 对内侵权对外霸凌  " alt="蓬佩奥：中共图谋统治全球 对内侵权对外霸凌  "></a></p>
@@ -261,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://ylytvp3322.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?onowj">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?xmtof">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?scref">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ukqpc">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?hrpjg">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?plouw">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?vgqlm">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?byduc">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ylytvp3322/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ylytvp3322/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ylytvp3322/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ylytvp3322/www/blob/master/README.md?q%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ylytvp3322/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ylytvp3322/www/master/index.html?i">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ylytvp3322/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ylytvp3322/www/blob/master/README.md?o%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/pkkkk">git.io/pkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/3xxxx">git.io/3xxxx</a></div>
 
