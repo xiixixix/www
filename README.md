@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ylytvp3322/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ylytvp3322/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/sffff">git.io/sffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3399">x.co/3399</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rffff">git.io/rffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/hhii">x.co/hhii</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/2020/09/05/a102934241.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平架空郭声琨？逾500家中国房企破产  >-009fcc?logoWidth=1" title="习近平架空郭声琨？逾500家中国房企破产  " alt="习近平架空郭声琨？逾500家中国房企破产  "></a></p>
 <p><a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/2020/09/05/a102934249.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：中共图谋统治全球 对内侵权对外霸凌 >-009fcc?logoWidth=1" title="蓬佩奥：中共图谋统治全球 对内侵权对外霸凌  " alt="蓬佩奥：中共图谋统治全球 对内侵权对外霸凌  "></a></p>
 <p><a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/2020/09/05/a102934242.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/冒充美公民投票 中国移民被起诉       >-009fcc?logoWidth=1" title="冒充美公民投票 中国移民被起诉  " alt="冒充美公民投票 中国移民被起诉  "></a></p>
+<p><a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/2020/09/06/a102934711.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情延烧 全球至少2667万确诊87万病殁 >-009fcc?logoWidth=1" title="疫情延烧 全球至少2667万确诊87万病殁  " alt="疫情延烧 全球至少2667万确诊87万病殁  "></a></p>
+<p><a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/2020/09/06/a102934716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/十几年如一日 法轮功学员坚守中领馆前讲真相 >-009fcc?logoWidth=1" title="十几年如一日 法轮功学员坚守中领馆前讲真相  " alt="十几年如一日 法轮功学员坚守中领馆前讲真相  "></a></p>
 <p><a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/2020/09/06/a102934684.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/数百美军与战车抵立陶宛演习 与白俄边界紧张升>-009fcc?logoWidth=1" title="数百美军与战车抵立陶宛演习 与白俄边界紧张升高  " alt="数百美军与战车抵立陶宛演习 与白俄边界紧张升高  "></a></p>
 <p><a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/2020/09/05/a102934341.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/开冷气引发瓦斯气爆 孟加拉清真寺酿12死数十>-009fcc?logoWidth=1" title="开冷气引发瓦斯气爆 孟加拉清真寺酿12死数十伤  " alt="开冷气引发瓦斯气爆 孟加拉清真寺酿12死数十伤  "></a></p>
 <p><a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/2020/09/06/a102934643.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外长王毅欧洲5国行 处处碰壁      >-009fcc?logoWidth=1" title="中共外长王毅欧洲5国行 处处碰壁  " alt="中共外长王毅欧洲5国行 处处碰壁  "></a></p>
-<p><a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/2020/09/02/a102931621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美赴中旅客须检测报告 库克群岛前总理病逝  >-009fcc?logoWidth=1" title="美赴中旅客须检测报告 库克群岛前总理病逝  " alt="美赴中旅客须检测报告 库克群岛前总理病逝  "></a></p>
-<p><a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/2020/09/05/a102934592.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆青年在台湾：最喜爱的是民主和言论自由  >-009fcc?logoWidth=1" title="大陆青年在台湾：最喜爱的是民主和言论自由  " alt="大陆青年在台湾：最喜爱的是民主和言论自由  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ylytvp3322/djy/blob/master/gb/20/9/6/n12383355.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谁想干预大选？川普高官齐指中共       >-009fcc?logoWidth=1" title="谁想干预大选？川普高官齐指中共  " alt="谁想干预大选？川普高官齐指中共  "></a></p>
 <p><a href="https://github.com/ylytvp3322/djy/blob/master/gb/20/9/5/n12383315.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平突高调提扩大开放 各国恐不再买单   >-009fcc?logoWidth=1" title="习近平突高调提扩大开放 各国恐不再买单  " alt="习近平突高调提扩大开放 各国恐不再买单  "></a></p>
@@ -35,17 +35,17 @@
 <p><a href="https://github.com/ylytvp3322/djy/blob/master/gb/20/9/5/n12382465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：《八佰》被封杀一年 为何此时解禁？  >-009fcc?logoWidth=1" title="田云：《八佰》被封杀一年 为何此时解禁？  " alt="田云：《八佰》被封杀一年 为何此时解禁？  "></a></p>
 <p><a href="https://github.com/ylytvp3322/djy/blob/master/gb/20/8/30/n12367319.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共把迫害法轮功融入各项政治活动      >-009fcc?logoWidth=1" title="中共把迫害法轮功融入各项政治活动  " alt="中共把迫害法轮功融入各项政治活动  "></a></p>
 <p><a href="https://github.com/ylytvp3322/djy/blob/master/gb/20/9/5/n12382833.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哪些中国留学生在机场更可能被美海关筛查   >-009fcc?logoWidth=1" title="哪些中国留学生在机场更可能被美海关筛查  " alt="哪些中国留学生在机场更可能被美海关筛查  "></a></p>
-<p><a href="https://github.com/ylytvp3322/djy/blob/master/gb/20/9/5/n12383142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回呛王毅 欧盟官员：议长访台 捷克人腰杆更直>-009fcc?logoWidth=1" title="回呛王毅 欧盟官员：议长访台 捷克人腰杆更直  " alt="回呛王毅 欧盟官员：议长访台 捷克人腰杆更直  "></a></p>
 <p><a href="https://github.com/ylytvp3322/djy/blob/master/gb/20/9/5/n12382776.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡平：习近平整顿政法委 架空郭声琨     >-009fcc?logoWidth=1" title="胡平：习近平整顿政法委 架空郭声琨  " alt="胡平：习近平整顿政法委 架空郭声琨  "></a></p>
 <p><a href="https://github.com/ylytvp3322/djy/blob/master/gb/20/9/6/n12383368.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美考虑制裁中芯国际 华为最后的希望恐破灭  >-009fcc?logoWidth=1" title="美考虑制裁中芯国际 华为最后的希望恐破灭  " alt="美考虑制裁中芯国际 华为最后的希望恐破灭  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/2020/09/05/a102934162.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平架空郭声琨？政法系更大整顿风暴来临  >-009fcc?logoWidth=1" title="习近平架空郭声琨？政法系更大整顿风暴来临  " alt="习近平架空郭声琨？政法系更大整顿风暴来临  "></a></p>
-<p><a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/2020/09/05/a102934317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/灾难当前不必慌 步虚大师有妙方       >-009fcc?logoWidth=1" title="灾难当前不必慌 步虚大师有妙方  " alt="灾难当前不必慌 步虚大师有妙方  "></a></p>
-<p><a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/2020/09/05/a102934587.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江小学误开紫外线灯5小时 上百学生灼伤恐失>-009fcc?logoWidth=1" title="浙江小学误开紫外线灯5小时 上百学生灼伤恐失明  " alt="浙江小学误开紫外线灯5小时 上百学生灼伤恐失明  "></a></p>
-<p><a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/2020/09/05/a102934442.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白毛女 骗了几代中国人           >-009fcc?logoWidth=1" title="白毛女 骗了几代中国人  " alt="白毛女 骗了几代中国人  "></a></p>
 <p><a href="https://github.com/ylytvp3322/djy/blob/master/gb/20/9/5/n12381949.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国冷战武器今派用场 两栖攻击舰      >-009fcc?logoWidth=1" title="美国冷战武器今派用场 两栖攻击舰  " alt="美国冷战武器今派用场 两栖攻击舰  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/ylytvp3322/djy/blob/master/gb/20/9/5/n12383142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回呛王毅 欧盟官员：议长访台 捷克人腰杆更直>-009fcc?logoWidth=1" title="回呛王毅 欧盟官员：议长访台 捷克人腰杆更直  " alt="回呛王毅 欧盟官员：议长访台 捷克人腰杆更直  "></a></p>
+<p><a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/2020/09/06/a102934686.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国人民“绝不答应”？网友：我答应     >-009fcc?logoWidth=1" title="中国人民“绝不答应”？网友：我答应  " alt="中国人民“绝不答应”？网友：我答应  "></a></p>
+<p><a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/2020/09/05/a102934317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/灾难当前不必慌 步虚大师有妙方       >-009fcc?logoWidth=1" title="灾难当前不必慌 步虚大师有妙方  " alt="灾难当前不必慌 步虚大师有妙方  "></a></p>
+<p><a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/2020/09/05/a102934162.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平架空郭声琨？政法系更大整顿风暴来临  >-009fcc?logoWidth=1" title="习近平架空郭声琨？政法系更大整顿风暴来临  " alt="习近平架空郭声琨？政法系更大整顿风暴来临  "></a></p>
+<p><a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/2020/09/05/a102934587.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江小学误开紫外线灯5小时 上百学生灼伤恐失>-009fcc?logoWidth=1" title="浙江小学误开紫外线灯5小时 上百学生灼伤恐失明  " alt="浙江小学误开紫外线灯5小时 上百学生灼伤恐失明  "></a></p>
 <p><a href="https://github.com/ylytvp3322/djy/blob/master/gb/20/9/5/n12382035.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为啥拜登当选 暴力事件会增加？       >-009fcc?logoWidth=1" title="为啥拜登当选 暴力事件会增加？  " alt="为啥拜登当选 暴力事件会增加？  "></a></p>
-<p><a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/2020/09/05/a102934509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港周日反国安法大游行 警方威胁抓人    >-009fcc?logoWidth=1" title="香港周日反国安法大游行 警方威胁抓人  " alt="香港周日反国安法大游行 警方威胁抓人  "></a></p>
+<p><a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/2020/09/05/a102934442.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白毛女 骗了几代中国人           >-009fcc?logoWidth=1" title="白毛女 骗了几代中国人  " alt="白毛女 骗了几代中国人  "></a></p>
 <p><a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/2020/09/05/a102934213.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“国师”郑永年辞职 涉数起性骚扰   >-009fcc?logoWidth=1" title="习近平“国师”郑永年辞职 涉数起性骚扰  " alt="习近平“国师”郑永年辞职 涉数起性骚扰  "></a></p>
 <p><a href="https://github.com/ylytvp3322/djy/blob/master/gb/20/9/5/n12382515.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李铭：中共内部文件的玄机          >-009fcc?logoWidth=1" title="李铭：中共内部文件的玄机  " alt="李铭：中共内部文件的玄机  "></a></p>
 <p><a href="https://github.com/ylytvp3322/djy/blob/master/gb/20/9/5/n12383012.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国安顾问：对抗中共 美国最终将获胜    >-009fcc?logoWidth=1" title="美国安顾问：对抗中共 美国最终将获胜  " alt="美国安顾问：对抗中共 美国最终将获胜  "></a></p>
@@ -262,9 +262,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://ylytvp3322.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?rspdn">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?lcsfv">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?uqykd">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?swkrh">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -308,8 +308,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?uibxt">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?fptvc">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?cxjer">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ucsnc">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ylytvp3322/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ylytvp3322/www/master/index.html?k">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ylytvp3322/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ylytvp3322/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ylytvp3322/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ylytvp3322/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ylytvp3322/www/master/index.html?f">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ylytvp3322/www/blob/master/README.md?f#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ylytvp3322/www/blob/master/README.md?y%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/sffff">git.io/sffff</a></div>
+<div align="center">短网址: <a href="https://git.io/rffff">git.io/rffff</a></div>
 
