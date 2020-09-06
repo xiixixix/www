@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xpxtxh3586/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xpxtxh3586/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/5yyyy">git.io/5yyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2444">x.co/2444</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rbbbb">git.io/rbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j66">x.co/j66</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,6 @@
 <p><a href="https://github.com/xpxtxh3586/djy/blob/master/gb/20/9/5/n12383142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回呛王毅 欧盟官员：议长访台 捷克人腰杆更直>-009fcc?logoWidth=1" title="回呛王毅 欧盟官员：议长访台 捷克人腰杆更直  " alt="回呛王毅 欧盟官员：议长访台 捷克人腰杆更直  "></a></p>
 <p><a href="https://github.com/xpxtxh3586/djy/blob/master/gb/20/9/5/n12383239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共触底线白宫震惊 习危险来了       >-009fcc?logoWidth=1" title="中共触底线白宫震惊 习危险来了  " alt="中共触底线白宫震惊 习危险来了  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/xpxtxh3586/ntdtv/blob/master/gb/2020/09/05/a102934317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/灾难当前不必慌 步虚大师有妙方       >-009fcc?logoWidth=1" title="灾难当前不必慌 步虚大师有妙方  " alt="灾难当前不必慌 步虚大师有妙方  "></a></p>
-<p><a href="https://github.com/xpxtxh3586/ntdtv/blob/master/gb/2020/09/06/a102934686.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国人民“绝不答应”？网友：我答应     >-009fcc?logoWidth=1" title="中国人民“绝不答应”？网友：我答应  " alt="中国人民“绝不答应”？网友：我答应  "></a></p>
-<p><a href="https://github.com/xpxtxh3586/djy/blob/master/gb/20/9/5/n12382833.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哪些中国留学生在机场更可能被美海关筛查   >-009fcc?logoWidth=1" title="哪些中国留学生在机场更可能被美海关筛查  " alt="哪些中国留学生在机场更可能被美海关筛查  "></a></p>
-<p><a href="https://github.com/xpxtxh3586/djy/blob/master/gb/20/9/6/n12383661.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张慧东：中共的五个“绝不答应”是垂死挣扎  >-009fcc?logoWidth=1" title="张慧东：中共的五个“绝不答应”是垂死挣扎  " alt="张慧东：中共的五个“绝不答应”是垂死挣扎  "></a></p>
-<p><a href="https://github.com/xpxtxh3586/ntdtv/blob/master/gb/2020/09/05/a102934208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逾500家中国房企破产 买房者恐楼财两空  >-009fcc?logoWidth=1" title="逾500家中国房企破产 买房者恐楼财两空  " alt="逾500家中国房企破产 买房者恐楼财两空  "></a></p>
-<p><a href="https://github.com/xpxtxh3586/ntdtv/blob/master/gb/2020/09/05/a102934572.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/共军国际赛事频出丑 血旗拿反、炮手赛场晕倒 >-009fcc?logoWidth=1" title="共军国际赛事频出丑 血旗拿反、炮手赛场晕倒  " alt="共军国际赛事频出丑 血旗拿反、炮手赛场晕倒  "></a></p>
-<p><a href="https://github.com/xpxtxh3586/djy/blob/master/gb/20/9/5/n12382837.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：抗战胜利的中流砥柱是中共还是国民党？ >-009fcc?logoWidth=1" title="袁斌：抗战胜利的中流砥柱是中共还是国民党？  " alt="袁斌：抗战胜利的中流砥柱是中共还是国民党？  "></a></p>
-<p><a href="https://github.com/xpxtxh3586/djy/blob/master/gb/20/9/6/n12383368.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美考虑制裁中芯国际 华为最后的希望恐破灭  >-009fcc?logoWidth=1" title="美考虑制裁中芯国际 华为最后的希望恐破灭  " alt="美考虑制裁中芯国际 华为最后的希望恐破灭  "></a></p>
-<p><a href="https://github.com/xpxtxh3586/ntdtv/blob/master/gb/2020/09/06/a102934775.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：战机坠毁广西 遭美台击落？公安部长甩>-009fcc?logoWidth=1" title="陈破空：战机坠毁广西 遭美台击落？公安部长甩锅习近平  " alt="陈破空：战机坠毁广西 遭美台击落？公安部长甩锅习近平  "></a></p>
-<p><a href="https://github.com/xpxtxh3586/ntdtv/blob/master/gb/2020/09/06/a102934779.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国或将彻底清洗中国芯片产业 进入“无芯时代>-009fcc?logoWidth=1" title="美国或将彻底清洗中国芯片产业 进入“无芯时代”  " alt="美国或将彻底清洗中国芯片产业 进入“无芯时代”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -260,9 +250,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://xpxtxh3586.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?xldgu">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?cjtpz">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?rrffv">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?hhiws">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +296,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?wvrad">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?yderd">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?cpyxt">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ktbeb">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,8 +476,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/xpxtxh3586/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xpxtxh3586/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xpxtxh3586/www/master/index.html?f">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xpxtxh3586/www/blob/master/README.md?b#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xpxtxh3586/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xpxtxh3586/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xpxtxh3586/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xpxtxh3586/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xpxtxh3586/www/blob/master/README.md?v#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xpxtxh3586/www/blob/master/README.md?h%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/5yyyy">git.io/5yyyy</a></div>
+<div align="center">短网址: <a href="https://git.io/rbbbb">git.io/rbbbb</a></div>
 
