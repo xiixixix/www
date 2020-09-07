@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ywevrg351/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ywevrg351/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nmmmm">git.io/nmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/4445">x.co/4445</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k5555">git.io/k5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pmp">x.co/pmp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -42,14 +42,13 @@
 <p><a href="https://github.com/ywevrg351/ntdtv/blob/master/gb/2020/09/07/a102935166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美人鱼转生？湖南2岁女童10分钟游200米(>-009fcc?logoWidth=1" title="美人鱼转生？湖南2岁女童10分钟游200米(视频)  " alt="美人鱼转生？湖南2岁女童10分钟游200米(视频)  "></a></p>
 <p><a href="https://github.com/ywevrg351/djy/blob/master/gb/20/9/6/n12384458.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/边境冲突升级 中共防长要求印度勿公开负面信息>-009fcc?logoWidth=1" title="边境冲突升级 中共防长要求印度勿公开负面信息  " alt="边境冲突升级 中共防长要求印度勿公开负面信息  "></a></p>
 <p><a href="https://github.com/ywevrg351/ntdtv/blob/master/gb/2020/09/07/a102935093.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/9.6游行近300港人被捕 晚间3人坠亡  >-009fcc?logoWidth=1" title="9.6游行近300港人被捕 晚间3人坠亡  " alt="9.6游行近300港人被捕 晚间3人坠亡  "></a></p>
-<p><a href="https://github.com/ywevrg351/ntdtv/blob/master/gb/2020/09/06/a102934688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/毛泽东会见江青前夫 瞪大眼睛说出三个字   >-009fcc?logoWidth=1" title="毛泽东会见江青前夫 瞪大眼睛说出三个字  " alt="毛泽东会见江青前夫 瞪大眼睛说出三个字  "></a></p>
 <p><a href="https://github.com/ywevrg351/djy/blob/master/gb/20/9/6/n12383893.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国际军事赛共军出糗 国旗拿反 炮手晕倒   >-009fcc?logoWidth=1" title="国际军事赛共军出糗 国旗拿反 炮手晕倒  " alt="国际军事赛共军出糗 国旗拿反 炮手晕倒  "></a></p>
 <p><a href="https://github.com/ywevrg351/djy/blob/master/gb/20/9/2/n12376410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农李文亮都被屏蔽 微信审查疫情内幕曝光  >-009fcc?logoWidth=1" title="班农李文亮都被屏蔽 微信审查疫情内幕曝光  " alt="班农李文亮都被屏蔽 微信审查疫情内幕曝光  "></a></p>
+<p><a href="https://github.com/ywevrg351/ntdtv/blob/master/gb/2020/09/06/a102934688.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/毛泽东会见江青前夫 瞪大眼睛说出三个字   >-009fcc?logoWidth=1" title="毛泽东会见江青前夫 瞪大眼睛说出三个字  " alt="毛泽东会见江青前夫 瞪大眼睛说出三个字  "></a></p>
 <p><a href="https://github.com/ywevrg351/ntdtv/blob/master/gb/2020/09/06/a102935012.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：习近平的国师栽了！原因说不出口   >-009fcc?logoWidth=1" title="陈破空：习近平的国师栽了！原因说不出口  " alt="陈破空：习近平的国师栽了！原因说不出口  "></a></p>
-<p><a href="https://github.com/ywevrg351/ntdtv/blob/master/gb/2020/08/31/a102930552.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/NASA收到地下神秘信号！专家：地心人试图和>-009fcc?logoWidth=1" title="NASA收到地下神秘信号！专家：地心人试图和人类联系的方式  " alt="NASA收到地下神秘信号！专家：地心人试图和人类联系的方式  "></a></p>
 <p><a href="https://github.com/ywevrg351/djy/blob/master/gb/20/9/6/n12385049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：文明码是在文明旗号下对文明的公然践踏 >-009fcc?logoWidth=1" title="袁斌：文明码是在文明旗号下对文明的公然践踏  " alt="袁斌：文明码是在文明旗号下对文明的公然践踏  "></a></p>
 <p><a href="https://github.com/ywevrg351/djy/blob/master/gb/20/9/6/n12384813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一个港籍大陆人 令捷克走进台湾       >-009fcc?logoWidth=1" title="一个港籍大陆人 令捷克走进台湾  " alt="一个港籍大陆人 令捷克走进台湾  "></a></p>
-<p><a href="https://github.com/ywevrg351/ntdtv/blob/master/gb/2020/09/06/a102934844.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世界正在消亡？ 霍比预言留给今天的启示   >-009fcc?logoWidth=1" title="世界正在消亡？ 霍比预言留给今天的启示  " alt="世界正在消亡？ 霍比预言留给今天的启示  "></a></p>
+<p><a href="https://github.com/ywevrg351/ntdtv/blob/master/gb/2020/08/31/a102930552.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/NASA收到地下神秘信号！专家：地心人试图和>-009fcc?logoWidth=1" title="NASA收到地下神秘信号！专家：地心人试图和人类联系的方式  " alt="NASA收到地下神秘信号！专家：地心人试图和人类联系的方式  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -261,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://ywevrg351.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?zbxgv">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?odggw">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?nsinq">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?hausf">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?eayao">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?vmimu">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?gxnsr">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?duebk">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ywevrg351/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ywevrg351/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ywevrg351/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ywevrg351/www/blob/master/README.md?m#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ywevrg351/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ywevrg351/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ywevrg351/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ywevrg351/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ywevrg351/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ywevrg351/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/nmmmm">git.io/nmmmm</a></div>
+<div align="center">短网址: <a href="https://git.io/k5555">git.io/k5555</a></div>
 
