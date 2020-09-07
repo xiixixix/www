@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/uzotts3669/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/uzotts3669/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/duuuu">git.io/duuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/fpp">x.co/fpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ydddd">git.io/ydddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/afa">x.co/afa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/uzotts3669/ntdtv/blob/master/gb/2020/09/07/a102935362.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视主播被抓 成龙房产被查 胡锡进功不可没 >-009fcc?logoWidth=1" title="央视主播被抓 成龙房产被查 胡锡进功不可没  " alt="央视主播被抓 成龙房产被查 胡锡进功不可没  "></a></p>
 <p><a href="https://github.com/uzotts3669/ntdtv/blob/master/gb/2020/09/07/a102935328.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平成敏感词 微信审查疫情内幕曝光    >-009fcc?logoWidth=1" title="习近平成敏感词 微信审查疫情内幕曝光  " alt="习近平成敏感词 微信审查疫情内幕曝光  "></a></p>
 <p><a href="https://github.com/uzotts3669/ntdtv/blob/master/gb/2020/09/07/a102935304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强迫内蒙古学生返校 内部威胁文件曝光  >-009fcc?logoWidth=1" title="中共强迫内蒙古学生返校 内部威胁文件曝光  " alt="中共强迫内蒙古学生返校 内部威胁文件曝光  "></a></p>
 <p><a href="https://github.com/uzotts3669/ntdtv/blob/master/gb/2020/09/07/a102935144.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海较量惊心动魄 近2月35名政法官员落网>-009fcc?logoWidth=1" title="中南海较量惊心动魄 近2月35名政法官员落网  " alt="中南海较量惊心动魄 近2月35名政法官员落网  "></a></p>
 <p><a href="https://github.com/uzotts3669/ntdtv/blob/master/gb/2020/09/07/a102935117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视主播被抓，成龙房产被查，胡锡进功不可没 >-009fcc?logoWidth=1" title="央视主播被抓，成龙房产被查，胡锡进功不可没  " alt="央视主播被抓，成龙房产被查，胡锡进功不可没  "></a></p>
 <p><a href="https://github.com/uzotts3669/ntdtv/blob/master/gb/2020/09/07/a102935064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德智库学者：中国经济政策将四处碰壁     >-009fcc?logoWidth=1" title="德智库学者：中国经济政策将四处碰壁  " alt="德智库学者：中国经济政策将四处碰壁  "></a></p>
-<p><a href="https://github.com/uzotts3669/ntdtv/blob/master/gb/2020/09/07/a102935068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港警骑12岁女童身上 哥哥想保护妹妹也被扑倒>-009fcc?logoWidth=1" title="港警骑12岁女童身上 哥哥想保护妹妹也被扑倒(视频)  " alt="港警骑12岁女童身上 哥哥想保护妹妹也被扑倒(视频)  "></a></p>
 <p><a href="https://github.com/uzotts3669/ntdtv/blob/master/gb/2020/09/07/a102935279.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/史上罕见 中国东北半月遭台风三连击     >-009fcc?logoWidth=1" title="史上罕见 中国东北半月遭台风三连击  " alt="史上罕见 中国东北半月遭台风三连击  "></a></p>
 <p><a href="https://github.com/uzotts3669/ntdtv/blob/master/gb/2020/09/07/a102935286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韦德齐正告捷克总理：依赖不民主国家像犯瘾危险>-009fcc?logoWidth=1" title="韦德齐正告捷克总理：依赖不民主国家像犯瘾危险  " alt="韦德齐正告捷克总理：依赖不民主国家像犯瘾危险  "></a></p>
 <p><a href="https://github.com/uzotts3669/ntdtv/blob/master/gb/2020/09/07/a102935267.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一天有2个“护心时间” 养心安神最有效   >-009fcc?logoWidth=1" title="一天有2个“护心时间” 养心安神最有效  " alt="一天有2个“护心时间” 养心安神最有效  "></a></p>
@@ -50,6 +50,7 @@
 <p><a href="https://github.com/uzotts3669/djy/blob/master/gb/20/9/7/n12385994.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/Costa青岛门店全关 消费者排队求退款  >-009fcc?logoWidth=1" title="Costa青岛门店全关 消费者排队求退款  " alt="Costa青岛门店全关 消费者排队求退款  "></a></p>
 <p><a href="https://github.com/uzotts3669/djy/blob/master/gb/20/9/6/n12384813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一个港籍大陆人 令捷克走进台湾       >-009fcc?logoWidth=1" title="一个港籍大陆人 令捷克走进台湾  " alt="一个港籍大陆人 令捷克走进台湾  "></a></p>
 <p><a href="https://github.com/uzotts3669/ntdtv/blob/master/gb/2020/09/07/a102935193.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惊！轿车引擎盖“顶人”狂飙 男子冒雨强撑30>-009fcc?logoWidth=1" title="惊！轿车引擎盖“顶人”狂飙 男子冒雨强撑30公里  " alt="惊！轿车引擎盖“顶人”狂飙 男子冒雨强撑30公里  "></a></p>
+<p><a href="https://github.com/uzotts3669/ntdtv/blob/master/gb/2020/09/07/a102935068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港警骑12岁女童身上 哥哥想保护妹妹也被扑倒>-009fcc?logoWidth=1" title="港警骑12岁女童身上 哥哥想保护妹妹也被扑倒(视频)  " alt="港警骑12岁女童身上 哥哥想保护妹妹也被扑倒(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -261,9 +262,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://uzotts3669.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?cmbin">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?exhgq">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ptzlf">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?tmiyu">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +308,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?lqjdo">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?oykqa">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?bogmm">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?gxirv">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/uzotts3669/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uzotts3669/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/uzotts3669/www/master/index.html?y">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uzotts3669/www/blob/master/README.md?x#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uzotts3669/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/uzotts3669/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uzotts3669/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/uzotts3669/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uzotts3669/www/blob/master/README.md?j#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uzotts3669/www/blob/master/README.md?l%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/duuuu">git.io/duuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/ydddd">git.io/ydddd</a></div>
 
