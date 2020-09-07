@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/uzotts3669/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/uzotts3669/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/xbbbb">git.io/xbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pfp">x.co/pfp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/sffff">git.io/sffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3pp">x.co/3pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,17 +27,17 @@
 <p><a href="https://github.com/uzotts3669/ntdtv/blob/master/gb/2020/09/07/a102935537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谭得志涉“煽动文字”被捕 香港再现文字狱  >-009fcc?logoWidth=1" title="谭得志涉“煽动文字”被捕 香港再现文字狱  " alt="谭得志涉“煽动文字”被捕 香港再现文字狱  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/uzotts3669/djy/blob/master/gb/20/9/7/n12385065.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙强推汉语教育 维稳手段曝光       >-009fcc?logoWidth=1" title="内蒙强推汉语教育 维稳手段曝光  " alt="内蒙强推汉语教育 维稳手段曝光  "></a></p>
+<p><a href="https://github.com/uzotts3669/djy/blob/master/gb/20/9/7/n12387030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普为何考虑制裁中芯？一份报告震动华府   >-009fcc?logoWidth=1" title="川普为何考虑制裁中芯？一份报告震动华府  " alt="川普为何考虑制裁中芯？一份报告震动华府  "></a></p>
 <p><a href="https://github.com/uzotts3669/djy/blob/master/gb/20/9/7/n12385264.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：中共造芯大计就怕中芯重演中兴事件  >-009fcc?logoWidth=1" title="陈思敏：中共造芯大计就怕中芯重演中兴事件  " alt="陈思敏：中共造芯大计就怕中芯重演中兴事件  "></a></p>
-<p><a href="https://github.com/uzotts3669/djy/blob/master/gb/20/9/6/n12383514.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/太平洋海战系列 史上首次航母对战（上）   >-009fcc?logoWidth=1" title="太平洋海战系列 史上首次航母对战（上）  " alt="太平洋海战系列 史上首次航母对战（上）  "></a></p>
-<p><a href="https://github.com/uzotts3669/djy/blob/master/gb/20/9/6/n12384453.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟将中芯列黑名单 台专家：美中转向硬脱钩 >-009fcc?logoWidth=1" title="美拟将中芯列黑名单 台专家：美中转向硬脱钩  " alt="美拟将中芯列黑名单 台专家：美中转向硬脱钩  "></a></p>
+<p><a href="https://github.com/uzotts3669/djy/blob/master/gb/20/9/7/n12387134.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共党媒为何忽称防范风险应对突发事件 >-009fcc?logoWidth=1" title="钟原：中共党媒为何忽称防范风险应对突发事件  " alt="钟原：中共党媒为何忽称防范风险应对突发事件  "></a></p>
 <p><a href="https://github.com/uzotts3669/djy/blob/master/gb/20/9/6/n12384826.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抗共大事记：中共威胁远超俄 美联盟抗共(8/>-009fcc?logoWidth=1" title="抗共大事记：中共威胁远超俄 美联盟抗共(8/31-9/6)  " alt="抗共大事记：中共威胁远超俄 美联盟抗共(8/31-9/6)  "></a></p>
-<p><a href="https://github.com/uzotts3669/djy/blob/master/gb/20/9/2/n12376505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/花钱保政权 中山网信办购五大服务      >-009fcc?logoWidth=1" title="花钱保政权 中山网信办购五大服务  " alt="花钱保政权 中山网信办购五大服务  "></a></p>
-<p><a href="https://github.com/uzotts3669/djy/blob/master/gb/20/9/7/n12385417.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传安徽高官车建军落马 系前浙江书记弟弟%3F  >-009fcc?logoWidth=1" title="传安徽高官车建军落马 系前浙江书记弟弟?  " alt="传安徽高官车建军落马 系前浙江书记弟弟?  "></a></p>
+<p><a href="https://github.com/uzotts3669/djy/blob/master/gb/20/9/7/n12386720.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/廖远：为什么中共间谍这么多         >-009fcc?logoWidth=1" title="廖远：为什么中共间谍这么多  " alt="廖远：为什么中共间谍这么多  "></a></p>
+<p><a href="https://github.com/uzotts3669/djy/blob/master/gb/20/9/7/n12387205.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/举报公安系统贪腐 江西男遭“脑控”12年  >-009fcc?logoWidth=1" title="举报公安系统贪腐 江西男遭“脑控”12年  " alt="举报公安系统贪腐 江西男遭“脑控”12年  "></a></p>
 <p><a href="https://github.com/uzotts3669/djy/blob/master/gb/20/9/4/n12380415.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/穿越生死 生命得以重塑 一位直销员的故事  >-009fcc?logoWidth=1" title="穿越生死 生命得以重塑 一位直销员的故事  " alt="穿越生死 生命得以重塑 一位直销员的故事  "></a></p>
 <p><a href="https://github.com/uzotts3669/djy/blob/master/gb/20/9/7/n12385350.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙杀人犯“纸面服刑”15年曝光 社会哗然 >-009fcc?logoWidth=1" title="内蒙杀人犯“纸面服刑”15年曝光 社会哗然  " alt="内蒙杀人犯“纸面服刑”15年曝光 社会哗然  "></a></p>
+<p><a href="https://github.com/uzotts3669/djy/blob/master/gb/20/9/7/n12385417.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传安徽高官车建军落马 系前浙江书记弟弟%3F  >-009fcc?logoWidth=1" title="传安徽高官车建军落马 系前浙江书记弟弟?  " alt="传安徽高官车建军落马 系前浙江书记弟弟?  "></a></p>
 <p><a href="https://github.com/uzotts3669/djy/blob/master/gb/20/9/7/n12385221.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内部文件曝资金外逃加剧         >-009fcc?logoWidth=1" title="中共内部文件曝资金外逃加剧  " alt="中共内部文件曝资金外逃加剧  "></a></p>
 <p><a href="https://github.com/uzotts3669/djy/blob/master/gb/20/9/7/n12385832.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/700老兵发公开信挺川普 驳斥左媒不实报导 >-009fcc?logoWidth=1" title="700老兵发公开信挺川普 驳斥左媒不实报导  " alt="700老兵发公开信挺川普 驳斥左媒不实报导  "></a></p>
-<p><a href="https://github.com/uzotts3669/djy/blob/master/gb/20/9/6/n12384673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：川普说与普京相处融洽对北京意味什么 >-009fcc?logoWidth=1" title="周晓辉：川普说与普京相处融洽对北京意味什么  " alt="周晓辉：川普说与普京相处融洽对北京意味什么  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/uzotts3669/ntdtv/blob/master/gb/2020/09/06/a102934687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平急喊“绝不答应”壮胆？ 蔡霞：他怕混不>-009fcc?logoWidth=1" title="习近平急喊“绝不答应”壮胆？ 蔡霞：他怕混不下去  " alt="习近平急喊“绝不答应”壮胆？ 蔡霞：他怕混不下去  "></a></p>
 <p><a href="https://github.com/uzotts3669/ntdtv/blob/master/gb/2020/09/07/a102935166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美人鱼转生？湖南2岁女童10分钟游200米(>-009fcc?logoWidth=1" title="美人鱼转生？湖南2岁女童10分钟游200米(视频)  " alt="美人鱼转生？湖南2岁女童10分钟游200米(视频)  "></a></p>
@@ -262,9 +262,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://uzotts3669.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?rpfze">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?eyphx">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?sfsuh">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?valfd">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -308,8 +308,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?phyxt">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?zehsm">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?yfdfa">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?iadim">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -489,7 +489,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/uzotts3669/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uzotts3669/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/uzotts3669/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uzotts3669/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uzotts3669/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uzotts3669/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/uzotts3669/www/blob/master/README.md?t%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/xbbbb">git.io/xbbbb</a></div>
+<div align="center">短网址: <a href="https://git.io/sffff">git.io/sffff</a></div>
 
