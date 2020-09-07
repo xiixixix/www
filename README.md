@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ywevrg351/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ywevrg351/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gkkkk">git.io/gkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/gdd">x.co/gdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nnnnnnn">git.io/nnnnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp3">x.co/pp3</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ywevrg351/ntdtv/blob/master/gb/2020/09/06/a102934937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港九六游行近300人被捕 警员拖行少男骑压>-009fcc?logoWidth=1" title="香港九六游行近300人被捕 警员拖行少男骑压少女  " alt="香港九六游行近300人被捕 警员拖行少男骑压少女  "></a></p>
 <p><a href="https://github.com/ywevrg351/ntdtv/blob/master/gb/2020/09/06/a102934957.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共拒给美记者延签 要挟华盛顿放党媒一马  >-009fcc?logoWidth=1" title="中共拒给美记者延签 要挟华盛顿放党媒一马  " alt="中共拒给美记者延签 要挟华盛顿放党媒一马  "></a></p>
 <p><a href="https://github.com/ywevrg351/ntdtv/blob/master/gb/2020/09/06/a102934923.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金融开战？白宫要求联邦机构提交涉华资金明细 >-009fcc?logoWidth=1" title="金融开战？白宫要求联邦机构提交涉华资金明细  " alt="金融开战？白宫要求联邦机构提交涉华资金明细  "></a></p>
+<p><a href="https://github.com/ywevrg351/ntdtv/blob/master/gb/2020/09/07/a102935166.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美人鱼转生？湖南2岁女童10分钟游200米(>-009fcc?logoWidth=1" title="美人鱼转生？湖南2岁女童10分钟游200米(视频)  " alt="美人鱼转生？湖南2岁女童10分钟游200米(视频)  "></a></p>
+<p><a href="https://github.com/ywevrg351/ntdtv/blob/master/gb/2020/09/07/a102935155.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/截查共谍手段升级 美国机场严查中国学生   >-009fcc?logoWidth=1" title="截查共谍手段升级 美国机场严查中国学生  " alt="截查共谍手段升级 美国机场严查中国学生  "></a></p>
 <p><a href="https://github.com/ywevrg351/ntdtv/blob/master/gb/2020/09/07/a102935128.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上任47天落马 青海副省长文国栋主动投案  >-009fcc?logoWidth=1" title="上任47天落马 青海副省长文国栋主动投案  " alt="上任47天落马 青海副省长文国栋主动投案  "></a></p>
 <p><a href="https://github.com/ywevrg351/ntdtv/blob/master/gb/2020/09/07/a102935113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海神酿日本至少35伤4人失踪 直扑韩国逾30>-009fcc?logoWidth=1" title="海神酿日本至少35伤4人失踪 直扑韩国逾300航班取消  " alt="海神酿日本至少35伤4人失踪 直扑韩国逾300航班取消  "></a></p>
 <p><a href="https://github.com/ywevrg351/ntdtv/blob/master/gb/2020/09/07/a102935093.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/9.6游行近300港人被捕 晚间3人坠亡  >-009fcc?logoWidth=1" title="9.6游行近300港人被捕 晚间3人坠亡  " alt="9.6游行近300港人被捕 晚间3人坠亡  "></a></p>
-<p><a href="https://github.com/ywevrg351/ntdtv/blob/master/gb/2020/09/07/a102935041.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/异象！广西海滩死鱼绵延8里 数量还在增加(视>-009fcc?logoWidth=1" title="异象！广西海滩死鱼绵延8里 数量还在增加(视频)  " alt="异象！广西海滩死鱼绵延8里 数量还在增加(视频)  "></a></p>
-<p><a href="https://github.com/ywevrg351/ntdtv/blob/master/gb/2020/09/07/a102935075.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/强台海神袭日本九州 过境韩国晚间进入大陆东北>-009fcc?logoWidth=1" title="强台海神袭日本九州 过境韩国晚间进入大陆东北  " alt="强台海神袭日本九州 过境韩国晚间进入大陆东北  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ywevrg351/djy/blob/master/gb/20/9/7/n12385264.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：中共造芯大计就怕中芯重演中兴事件  >-009fcc?logoWidth=1" title="陈思敏：中共造芯大计就怕中芯重演中兴事件  " alt="陈思敏：中共造芯大计就怕中芯重演中兴事件  "></a></p>
 <p><a href="https://github.com/ywevrg351/djy/blob/master/gb/20/9/6/n12383514.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/太平洋海战系列 史上首次航母对战（上）   >-009fcc?logoWidth=1" title="太平洋海战系列 史上首次航母对战（上）  " alt="太平洋海战系列 史上首次航母对战（上）  "></a></p>
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://ywevrg351.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?trmjl">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?tpujr">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?mrspr">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?vfuoq">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?yxgiv">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?tybby">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?pcobq">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?pmybr">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ywevrg351/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ywevrg351/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ywevrg351/www/master/index.html?d">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ywevrg351/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ywevrg351/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ywevrg351/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ywevrg351/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ywevrg351/www/master/index.html?o">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ywevrg351/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ywevrg351/www/blob/master/README.md?i%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gkkkk">git.io/gkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/nnnnnnn">git.io/nnnnnnn</a></div>
 
