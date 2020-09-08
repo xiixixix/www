@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/luegnr3147/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/luegnr3147/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kkkkkkk">git.io/kkkkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/uqq">x.co/uqq</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gpppp">git.io/gpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j99">x.co/j99</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,16 +40,14 @@
 <p><a href="https://github.com/luegnr3147/djy/blob/master/gb/20/8/26/n12358840.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨虎城走钢丝 “英雄”跌入地狱       >-009fcc?logoWidth=1" title="杨虎城走钢丝 “英雄”跌入地狱  " alt="杨虎城走钢丝 “英雄”跌入地狱  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/luegnr3147/ntdtv/blob/master/gb/2020/09/07/a102935544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田庄台古镇天空奇观与红眼石狮的故事     >-009fcc?logoWidth=1" title="田庄台古镇天空奇观与红眼石狮的故事  " alt="田庄台古镇天空奇观与红眼石狮的故事  "></a></p>
-<p><a href="https://github.com/luegnr3147/djy/blob/master/gb/20/9/7/n12385264.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：中共造芯大计就怕中芯重演中兴事件  >-009fcc?logoWidth=1" title="陈思敏：中共造芯大计就怕中芯重演中兴事件  " alt="陈思敏：中共造芯大计就怕中芯重演中兴事件  "></a></p>
 <p><a href="https://github.com/luegnr3147/ntdtv/blob/master/gb/2020/09/07/a102935547.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/真假玩笑？拜登笑问习近平：能否帮我登大位  >-009fcc?logoWidth=1" title="真假玩笑？拜登笑问习近平：能否帮我登大位  " alt="真假玩笑？拜登笑问习近平：能否帮我登大位  "></a></p>
 <p><a href="https://github.com/luegnr3147/djy/blob/master/gb/20/9/7/n12387144.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中谍战 FBI和中共军方学者展开猫鼠战术 >-009fcc?logoWidth=1" title="美中谍战 FBI和中共军方学者展开猫鼠战术  " alt="美中谍战 FBI和中共军方学者展开猫鼠战术  "></a></p>
 <p><a href="https://github.com/luegnr3147/djy/blob/master/gb/20/9/7/n12387205.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/举报公安系统贪腐 江西男遭“脑控”12年  >-009fcc?logoWidth=1" title="举报公安系统贪腐 江西男遭“脑控”12年  " alt="举报公安系统贪腐 江西男遭“脑控”12年  "></a></p>
 <p><a href="https://github.com/luegnr3147/ntdtv/blob/master/gb/2020/09/07/a102935459.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/今日头条评论翻车：美国太腐败！上任47天落马>-009fcc?logoWidth=1" title="今日头条评论翻车：美国太腐败！上任47天落马！  " alt="今日头条评论翻车：美国太腐败！上任47天落马！  "></a></p>
-<p><a href="https://github.com/luegnr3147/ntdtv/blob/master/gb/2020/09/07/a102935572.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/原鸡西副市长逃美 揭露中共整治“自己人”  >-009fcc?logoWidth=1" title="原鸡西副市长逃美 揭露中共整治“自己人”  " alt="原鸡西副市长逃美 揭露中共整治“自己人”  "></a></p>
 <p><a href="https://github.com/luegnr3147/djy/blob/master/gb/20/9/7/n12387131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三星将于11月末关闭大陆唯一电视工厂    >-009fcc?logoWidth=1" title="三星将于11月末关闭大陆唯一电视工厂  " alt="三星将于11月末关闭大陆唯一电视工厂  "></a></p>
 <p><a href="https://github.com/luegnr3147/djy/blob/master/gb/20/9/7/n12387076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：美打造“太平洋北约” 目标遏制中共 >-009fcc?logoWidth=1" title="周晓辉：美打造“太平洋北约” 目标遏制中共  " alt="周晓辉：美打造“太平洋北约” 目标遏制中共  "></a></p>
+<p><a href="https://github.com/luegnr3147/ntdtv/blob/master/gb/2020/09/07/a102935572.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/原鸡西副市长逃美 揭露中共整治“自己人”  >-009fcc?logoWidth=1" title="原鸡西副市长逃美 揭露中共整治“自己人”  " alt="原鸡西副市长逃美 揭露中共整治“自己人”  "></a></p>
 <p><a href="https://github.com/luegnr3147/ntdtv/blob/master/gb/2020/09/05/a102934417.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/想处理掉旧电脑和旧手机？如何避免犯大错   >-009fcc?logoWidth=1" title="想处理掉旧电脑和旧手机？如何避免犯大错  " alt="想处理掉旧电脑和旧手机？如何避免犯大错  "></a></p>
-<p><a href="https://github.com/luegnr3147/ntdtv/blob/master/gb/2020/09/07/a102935328.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平成敏感词 微信审查疫情内幕曝光    >-009fcc?logoWidth=1" title="习近平成敏感词 微信审查疫情内幕曝光  " alt="习近平成敏感词 微信审查疫情内幕曝光  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -261,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://luegnr3147.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?gqoxk">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ahzgu">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?nxurr">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?yemju">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?kytxt">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?jiyyx">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?gmdvr">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?egfmn">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/luegnr3147/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/luegnr3147/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/luegnr3147/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/luegnr3147/www/blob/master/README.md?g#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/luegnr3147/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/luegnr3147/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/luegnr3147/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/luegnr3147/www/master/index.html?k">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/luegnr3147/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/luegnr3147/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/kkkkkkk">git.io/kkkkkkk</a></div>
+<div align="center">短网址: <a href="https://git.io/gpppp">git.io/gpppp</a></div>
 
