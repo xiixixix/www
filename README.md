@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hmzftj3856/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hmzftj3856/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/puuuu">git.io/puuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2223">x.co/2223</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/huuuu">git.io/huuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3666">x.co/3666</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/hmzftj3856/ntdtv/blob/master/gb/2020/09/08/a102935951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI抓中共间谍 “猫鼠战术”细节曝光   >-009fcc?logoWidth=1" title="FBI抓中共间谍 “猫鼠战术”细节曝光  " alt="FBI抓中共间谍 “猫鼠战术”细节曝光  "></a></p>
 <p><a href="https://github.com/hmzftj3856/ntdtv/blob/master/gb/2020/09/08/a102935925.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登家族与中共 纪录片揭真相        >-009fcc?logoWidth=1" title="拜登家族与中共 纪录片揭真相  " alt="拜登家族与中共 纪录片揭真相  "></a></p>
 <p><a href="https://github.com/hmzftj3856/ntdtv/blob/master/gb/2020/09/08/a102935901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网文：大灾难一件接一件，CCP你们该离场了 >-009fcc?logoWidth=1" title="网文：大灾难一件接一件，CCP你们该离场了  " alt="网文：大灾难一件接一件，CCP你们该离场了  "></a></p>
-<p><a href="https://github.com/hmzftj3856/ntdtv/blob/master/gb/2020/09/08/a102936055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不睬世卫疫情警告 中南海丧事喜办自诩“壮举”>-009fcc?logoWidth=1" title="不睬世卫疫情警告 中南海丧事喜办自诩“壮举”  " alt="不睬世卫疫情警告 中南海丧事喜办自诩“壮举”  "></a></p>
+<p><a href="https://github.com/hmzftj3856/ntdtv/blob/master/gb/2020/09/09/a102936430.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台媒：中共逼出“五独”习近平危机倒计时   >-009fcc?logoWidth=1" title="台媒：中共逼出“五独”习近平危机倒计时  " alt="台媒：中共逼出“五独”习近平危机倒计时  "></a></p>
+<p><a href="https://github.com/hmzftj3856/ntdtv/blob/master/gb/2020/09/08/a102936055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海丧事喜办 习近平“壮举”遭世卫警告  >-009fcc?logoWidth=1" title="中南海丧事喜办 习近平“壮举”遭世卫警告  " alt="中南海丧事喜办 习近平“壮举”遭世卫警告  "></a></p>
 <p><a href="https://github.com/hmzftj3856/ntdtv/blob/master/gb/2020/09/08/a102936393.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普提经济脱钩并查联邦资金与中国关系    >-009fcc?logoWidth=1" title="川普提经济脱钩并查联邦资金与中国关系  " alt="川普提经济脱钩并查联邦资金与中国关系  "></a></p>
 <p><a href="https://github.com/hmzftj3856/ntdtv/blob/master/gb/2020/09/08/a102936363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共战狼外交 逼欧洲团结对抗        >-009fcc?logoWidth=1" title="中共战狼外交 逼欧洲团结对抗  " alt="中共战狼外交 逼欧洲团结对抗  "></a></p>
 <p><a href="https://github.com/hmzftj3856/ntdtv/blob/master/gb/2020/09/08/a102936338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普或投入个人资金支持竞选：我们必须赢   >-009fcc?logoWidth=1" title="川普或投入个人资金支持竞选：我们必须赢  " alt="川普或投入个人资金支持竞选：我们必须赢  "></a></p>
-<p><a href="https://github.com/hmzftj3856/ntdtv/blob/master/gb/2020/09/08/a102936325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/撒币难买人心 萨摩亚岛国抱怨“一带一路”工程>-009fcc?logoWidth=1" title="撒币难买人心 萨摩亚岛国抱怨“一带一路”工程质量  " alt="撒币难买人心 萨摩亚岛国抱怨“一带一路”工程质量  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/hmzftj3856/djy/blob/master/gb/20/9/6/n12385025.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/萨摩亚发函抱怨一带一路工程质量       >-009fcc?logoWidth=1" title="萨摩亚发函抱怨一带一路工程质量  " alt="萨摩亚发函抱怨一带一路工程质量  "></a></p>
 <p><a href="https://github.com/hmzftj3856/djy/blob/master/gb/20/9/8/n12389565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情未退 习近平为何急开防疫表彰会？    >-009fcc?logoWidth=1" title="疫情未退 习近平为何急开防疫表彰会？  " alt="疫情未退 习近平为何急开防疫表彰会？  "></a></p>
@@ -262,9 +262,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://hmzftj3856.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ztlrm">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?hsnat">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?lomam">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?kuvti">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -308,8 +308,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?yucap">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?vzskc">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?wygdi">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?fceky">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/hmzftj3856/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hmzftj3856/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/hmzftj3856/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hmzftj3856/www/blob/master/README.md?h#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hmzftj3856/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/hmzftj3856/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hmzftj3856/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/hmzftj3856/www/master/index.html?q">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hmzftj3856/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/hmzftj3856/www/blob/master/README.md?g%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/puuuu">git.io/puuuu</a></div>
+<div align="center">短网址: <a href="https://git.io/huuuu">git.io/huuuu</a></div>
 
