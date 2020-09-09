@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ibfsyb3725/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ibfsyb3725/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/z3333">git.io/z3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2299">x.co/2299</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eeeeeee">git.io/eeeeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/uaa">x.co/uaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,6 @@
 <p><a href="https://github.com/ibfsyb3725/djy/blob/master/gb/20/9/9/n12390336.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红二代马晓力公开反习近平？         >-009fcc?logoWidth=1" title="红二代马晓力公开反习近平？  " alt="红二代马晓力公开反习近平？  "></a></p>
 <p><a href="https://github.com/ibfsyb3725/djy/blob/master/gb/20/9/8/n12389548.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共高层冒险不戴口罩开会的玄机    >-009fcc?logoWidth=1" title="钟原：中共高层冒险不戴口罩开会的玄机  " alt="钟原：中共高层冒险不戴口罩开会的玄机  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ibfsyb3725/ntdtv/blob/master/gb/2020/09/09/a102936430.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台媒：中南海逼出“五独”习近平危机倒计时  >-009fcc?logoWidth=1" title="台媒：中南海逼出“五独”习近平危机倒计时  " alt="台媒：中南海逼出“五独”习近平危机倒计时  "></a></p>
-<p><a href="https://github.com/ibfsyb3725/ntdtv/blob/master/gb/2020/09/09/a102936861.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/进了“大裤衩”就好比进了窑子 能露多少脸 内>-009fcc?logoWidth=1" title="进了“大裤衩”就好比进了窑子 能露多少脸 内藏玄机  " alt="进了“大裤衩”就好比进了窑子 能露多少脸 内藏玄机  "></a></p>
-<p><a href="https://github.com/ibfsyb3725/djy/blob/master/gb/20/9/9/n12391016.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/经济学家：中共长期捏造数据 掩盖人口危机  >-009fcc?logoWidth=1" title="经济学家：中共长期捏造数据 掩盖人口危机  " alt="经济学家：中共长期捏造数据 掩盖人口危机  "></a></p>
-<p><a href="https://github.com/ibfsyb3725/djy/blob/master/gb/20/9/8/n12389839.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁大招生效 川普再敲习近平       >-009fcc?logoWidth=1" title="美制裁大招生效 川普再敲习近平  " alt="美制裁大招生效 川普再敲习近平  "></a></p>
-<p><a href="https://github.com/ibfsyb3725/ntdtv/blob/master/gb/2020/09/09/a102936772.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为禁令15日生效 三星、LG将停供高阶手机>-009fcc?logoWidth=1" title="华为禁令15日生效 三星、LG将停供高阶手机面板  " alt="华为禁令15日生效 三星、LG将停供高阶手机面板  "></a></p>
-<p><a href="https://github.com/ibfsyb3725/ntdtv/blob/master/gb/2020/09/08/a102936239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/共军人手一杆“关大刀” 印媒照片疑曝开枪原因>-009fcc?logoWidth=1" title="共军人手一杆“关大刀” 印媒照片疑曝开枪原因  " alt="共军人手一杆“关大刀” 印媒照片疑曝开枪原因  "></a></p>
-<p><a href="https://github.com/ibfsyb3725/djy/blob/master/gb/20/9/9/n12390398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海外蒙族抗议强推汉语 席海明：民族生存危机 >-009fcc?logoWidth=1" title="海外蒙族抗议强推汉语 席海明：民族生存危机  " alt="海外蒙族抗议强推汉语 席海明：民族生存危机  "></a></p>
-<p><a href="https://github.com/ibfsyb3725/djy/blob/master/gb/20/9/8/n12389833.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/报告揭秘：微信TikTok将审查从墙内带到墙>-009fcc?logoWidth=1" title="报告揭秘：微信TikTok将审查从墙内带到墙外  " alt="报告揭秘：微信TikTok将审查从墙内带到墙外  "></a></p>
-<p><a href="https://github.com/ibfsyb3725/ntdtv/blob/master/gb/2020/09/09/a102936410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：俄罗斯出兵！援印抗中 习近平加速与各>-009fcc?logoWidth=1" title="陈破空：俄罗斯出兵！援印抗中 习近平加速与各国脱钩  " alt="陈破空：俄罗斯出兵！援印抗中 习近平加速与各国脱钩  "></a></p>
-<p><a href="https://github.com/ibfsyb3725/ntdtv/blob/master/gb/2020/09/09/a102936556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国客户取消钢琴订单 捷克富商出手全买   >-009fcc?logoWidth=1" title="中国客户取消钢琴订单 捷克富商出手全买  " alt="中国客户取消钢琴订单 捷克富商出手全买  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -260,9 +250,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://ibfsyb3725.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?qpyik">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?gpojt">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ikxux">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ecfgc">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +296,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?hwbmn">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?nuduv">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?egwuk">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?txyjy">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,7 +477,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/ibfsyb3725/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ibfsyb3725/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ibfsyb3725/www/master/index.html?o">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ibfsyb3725/www/blob/master/README.md?u#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ibfsyb3725/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ibfsyb3725/www/blob/master/README.md?a#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ibfsyb3725/www/blob/master/README.md?n%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/z3333">git.io/z3333</a></div>
+<div align="center">短网址: <a href="https://git.io/eeeeeee">git.io/eeeeeee</a></div>
 
