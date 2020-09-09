@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ibfsyb3725/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ibfsyb3725/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jgggg">git.io/jgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/daa">x.co/daa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/888888">git.io/888888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aaq">x.co/aaq</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,8 +20,8 @@
 <p><a href="https://github.com/ibfsyb3725/ntdtv/blob/master/gb/2020/09/09/a102936616.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视女主持成蕾被拘 赵立坚公布罪名     >-009fcc?logoWidth=1" title="央视女主持成蕾被拘 赵立坚公布罪名  " alt="央视女主持成蕾被拘 赵立坚公布罪名  "></a></p>
 <p><a href="https://github.com/ibfsyb3725/ntdtv/blob/master/gb/2020/09/09/a102936594.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不是科幻片 美军坦克炮成功击落巡航导弹   >-009fcc?logoWidth=1" title="不是科幻片 美军坦克炮成功击落巡航导弹  " alt="不是科幻片 美军坦克炮成功击落巡航导弹  "></a></p>
 <p><a href="https://github.com/ibfsyb3725/ntdtv/blob/master/gb/2020/09/09/a102936581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朱德25岁孙子被枪决真相：家中强奸数名女性 >-009fcc?logoWidth=1" title="朱德25岁孙子被枪决真相：家中强奸数名女性  " alt="朱德25岁孙子被枪决真相：家中强奸数名女性  "></a></p>
-<p><a href="https://github.com/ibfsyb3725/ntdtv/blob/master/gb/2020/09/09/a102936890.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中东斡旋有成 川普再获诺贝尔和平奖提名   >-009fcc?logoWidth=1" title="中东斡旋有成 川普再获诺贝尔和平奖提名  " alt="中东斡旋有成 川普再获诺贝尔和平奖提名  "></a></p>
 <p><a href="https://github.com/ibfsyb3725/ntdtv/blob/master/gb/2020/09/09/a102936826.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宋庄艺术家狱中绝食抗议致病危        >-009fcc?logoWidth=1" title="宋庄艺术家狱中绝食抗议致病危  " alt="宋庄艺术家狱中绝食抗议致病危  "></a></p>
+<p><a href="https://github.com/ibfsyb3725/ntdtv/blob/master/gb/2020/09/09/a102936791.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷纽约记者会 阐述“依法灭共”理念   >-009fcc?logoWidth=1" title="袁弓夷纽约记者会 阐述“依法灭共”理念  " alt="袁弓夷纽约记者会 阐述“依法灭共”理念  "></a></p>
 <p><a href="https://github.com/ibfsyb3725/ntdtv/blob/master/gb/2020/09/02/a102931621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海丧事喜办 习近平“壮举”遭世卫警告  >-009fcc?logoWidth=1" title="中南海丧事喜办 习近平“壮举”遭世卫警告  " alt="中南海丧事喜办 习近平“壮举”遭世卫警告  "></a></p>
 <p><a href="https://github.com/ibfsyb3725/ntdtv/blob/master/gb/2020/09/09/a102936783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阿富汗副总统车队遭袭 多人丧生       >-009fcc?logoWidth=1" title="阿富汗副总统车队遭袭 多人丧生  " alt="阿富汗副总统车队遭袭 多人丧生  "></a></p>
 <p><a href="https://github.com/ibfsyb3725/ntdtv/blob/master/gb/2020/09/09/a102936715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不办喜宴上街送披萨 新婚夫妻暖举获热赞   >-009fcc?logoWidth=1" title="不办喜宴上街送披萨 新婚夫妻暖举获热赞  " alt="不办喜宴上街送披萨 新婚夫妻暖举获热赞  "></a></p>
@@ -41,15 +41,14 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ibfsyb3725/ntdtv/blob/master/gb/2020/09/09/a102936595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/13岁大学毕业 河南天才少女怨父母将她带上错>-009fcc?logoWidth=1" title="13岁大学毕业 河南天才少女怨父母将她带上错路  " alt="13岁大学毕业 河南天才少女怨父母将她带上错路  "></a></p>
 <p><a href="https://github.com/ibfsyb3725/ntdtv/blob/master/gb/2020/09/09/a102936861.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/进了“大裤衩”就好比进了窑子 能露多少脸 内>-009fcc?logoWidth=1" title="进了“大裤衩”就好比进了窑子 能露多少脸 内藏玄机  " alt="进了“大裤衩”就好比进了窑子 能露多少脸 内藏玄机  "></a></p>
-<p><a href="https://github.com/ibfsyb3725/ntdtv/blob/master/gb/2020/09/09/a102936752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第一枪响了 中印都有“秘密部队”      >-009fcc?logoWidth=1" title="第一枪响了 中印都有“秘密部队”  " alt="第一枪响了 中印都有“秘密部队”  "></a></p>
 <p><a href="https://github.com/ibfsyb3725/djy/blob/master/gb/20/9/9/n12391016.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/经济学家：中共长期捏造数据 掩盖人口危机  >-009fcc?logoWidth=1" title="经济学家：中共长期捏造数据 掩盖人口危机  " alt="经济学家：中共长期捏造数据 掩盖人口危机  "></a></p>
 <p><a href="https://github.com/ibfsyb3725/djy/blob/master/gb/20/9/8/n12389839.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁大招生效 川普再敲习近平       >-009fcc?logoWidth=1" title="美制裁大招生效 川普再敲习近平  " alt="美制裁大招生效 川普再敲习近平  "></a></p>
+<p><a href="https://github.com/ibfsyb3725/ntdtv/blob/master/gb/2020/09/09/a102936752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第一枪响了 中印都有“秘密部队”      >-009fcc?logoWidth=1" title="第一枪响了 中印都有“秘密部队”  " alt="第一枪响了 中印都有“秘密部队”  "></a></p>
 <p><a href="https://github.com/ibfsyb3725/ntdtv/blob/master/gb/2020/09/09/a102936772.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为禁令15日生效 三星、LG将停供高阶手机>-009fcc?logoWidth=1" title="华为禁令15日生效 三星、LG将停供高阶手机面板  " alt="华为禁令15日生效 三星、LG将停供高阶手机面板  "></a></p>
-<p><a href="https://github.com/ibfsyb3725/ntdtv/blob/master/gb/2020/09/08/a102936239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/共军人手一杆“关大刀” 印媒照片疑曝开枪原因>-009fcc?logoWidth=1" title="共军人手一杆“关大刀” 印媒照片疑曝开枪原因  " alt="共军人手一杆“关大刀” 印媒照片疑曝开枪原因  "></a></p>
 <p><a href="https://github.com/ibfsyb3725/djy/blob/master/gb/20/9/9/n12390398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海外蒙族抗议强推汉语 席海明：民族生存危机 >-009fcc?logoWidth=1" title="海外蒙族抗议强推汉语 席海明：民族生存危机  " alt="海外蒙族抗议强推汉语 席海明：民族生存危机  "></a></p>
 <p><a href="https://github.com/ibfsyb3725/djy/blob/master/gb/20/9/8/n12389833.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/报告揭秘：微信TikTok将审查从墙内带到墙>-009fcc?logoWidth=1" title="报告揭秘：微信TikTok将审查从墙内带到墙外  " alt="报告揭秘：微信TikTok将审查从墙内带到墙外  "></a></p>
+<p><a href="https://github.com/ibfsyb3725/ntdtv/blob/master/gb/2020/09/08/a102936239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/共军人手一杆“关大刀” 印媒照片疑曝开枪原因>-009fcc?logoWidth=1" title="共军人手一杆“关大刀” 印媒照片疑曝开枪原因  " alt="共军人手一杆“关大刀” 印媒照片疑曝开枪原因  "></a></p>
 <p><a href="https://github.com/ibfsyb3725/ntdtv/blob/master/gb/2020/09/09/a102936410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：俄罗斯出兵！援印抗中 习近平加速与各>-009fcc?logoWidth=1" title="陈破空：俄罗斯出兵！援印抗中 习近平加速与各国脱钩  " alt="陈破空：俄罗斯出兵！援印抗中 习近平加速与各国脱钩  "></a></p>
-<p><a href="https://github.com/ibfsyb3725/ntdtv/blob/master/gb/2020/09/09/a102936486.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“绝不答应”仍在发酵 学者：习近平被逼到墙角>-009fcc?logoWidth=1" title="“绝不答应”仍在发酵 学者：习近平被逼到墙角  " alt="“绝不答应”仍在发酵 学者：习近平被逼到墙角  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -261,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://ibfsyb3725.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?qepsc">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?nmtfh">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?bbjbu">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?hbpsu">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?eoozs">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?zoiah">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?lffck">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?lmbqc">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,8 +486,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/ibfsyb3725/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ibfsyb3725/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ibfsyb3725/www/master/index.html?t">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ibfsyb3725/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ibfsyb3725/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/ibfsyb3725/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ibfsyb3725/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ibfsyb3725/www/master/index.html?j">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ibfsyb3725/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/ibfsyb3725/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/jgggg">git.io/jgggg</a></div>
+<div align="center">短网址: <a href="https://git.io/888888">git.io/888888</a></div>
 
