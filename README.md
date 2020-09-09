@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qbxytb345/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qbxytb345/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/39999">git.io/39999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp7">x.co/pp7</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/p6666">git.io/p6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/7aa">x.co/7aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -37,9 +37,10 @@
 <p><a href="https://github.com/qbxytb345/djy/blob/master/gb/20/9/8/n12387727.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国芬太尼害惨美国 川普：这是战争     >-009fcc?logoWidth=1" title="中国芬太尼害惨美国 川普：这是战争  " alt="中国芬太尼害惨美国 川普：这是战争  "></a></p>
 <p><a href="https://github.com/qbxytb345/djy/blob/master/gb/20/9/9/n12390336.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红二代马晓力公开反习近平？         >-009fcc?logoWidth=1" title="红二代马晓力公开反习近平？  " alt="红二代马晓力公开反习近平？  "></a></p>
 <p><a href="https://github.com/qbxytb345/djy/blob/master/gb/20/9/8/n12389331.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共召开抗疫表彰大会 民批丧事喜办壮胆   >-009fcc?logoWidth=1" title="中共召开抗疫表彰大会 民批丧事喜办壮胆  " alt="中共召开抗疫表彰大会 民批丧事喜办壮胆  "></a></p>
-<p><a href="https://github.com/qbxytb345/djy/blob/master/gb/20/9/8/n12388965.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国印度台湾 中共发动战争可能性      >-009fcc?logoWidth=1" title="美国印度台湾 中共发动战争可能性  " alt="美国印度台湾 中共发动战争可能性  "></a></p>
+<p><a href="https://github.com/qbxytb345/djy/blob/master/gb/20/9/8/n12389548.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共高层冒险不戴口罩开会的玄机    >-009fcc?logoWidth=1" title="钟原：中共高层冒险不戴口罩开会的玄机  " alt="钟原：中共高层冒险不戴口罩开会的玄机  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qbxytb345/ntdtv/blob/master/gb/2020/09/08/a102935848.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/范冰冰、黄晓明豪宅保安 曝有钱人“私生活内幕>-009fcc?logoWidth=1" title="范冰冰、黄晓明豪宅保安 曝有钱人“私生活内幕”  " alt="范冰冰、黄晓明豪宅保安 曝有钱人“私生活内幕”  "></a></p>
+<p><a href="https://github.com/qbxytb345/djy/blob/master/gb/20/9/8/n12388965.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国印度台湾 中共发动战争可能性      >-009fcc?logoWidth=1" title="美国印度台湾 中共发动战争可能性  " alt="美国印度台湾 中共发动战争可能性  "></a></p>
 <p><a href="https://github.com/qbxytb345/ntdtv/blob/master/gb/2020/09/09/a102936433.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:中共抗疫表彰会 泄习最怕一件事/中印边>-009fcc?logoWidth=1" title="文昭:中共抗疫表彰会 泄习最怕一件事/中印边境45年首传枪声  " alt="文昭:中共抗疫表彰会 泄习最怕一件事/中印边境45年首传枪声  "></a></p>
 <p><a href="https://github.com/qbxytb345/ntdtv/blob/master/gb/2020/09/09/a102936410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：俄罗斯出兵！援印抗中 习近平加速与各>-009fcc?logoWidth=1" title="陈破空：俄罗斯出兵！援印抗中 习近平加速与各国脱钩  " alt="陈破空：俄罗斯出兵！援印抗中 习近平加速与各国脱钩  "></a></p>
 <p><a href="https://github.com/qbxytb345/djy/blob/master/gb/20/9/8/n12389833.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/报告揭秘：微信TikTok将审查从墙内带到墙>-009fcc?logoWidth=1" title="报告揭秘：微信TikTok将审查从墙内带到墙外  " alt="报告揭秘：微信TikTok将审查从墙内带到墙外  "></a></p>
@@ -261,9 +262,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://qbxytb345.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?sxvgw">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?agzwf">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ebmbk">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?xkhgy">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +308,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?rwhfe">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?wxjuc">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?lcbct">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?fsmkp">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -488,7 +489,7 @@
 <div align="center">
 <hr>
 <p><strong><a href="https://github.com/qbxytb345/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qbxytb345/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qbxytb345/www/master/index.html?l">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qbxytb345/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qbxytb345/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qbxytb345/www/blob/master/README.md?p#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qbxytb345/www/blob/master/README.md?m%231" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/39999">git.io/39999</a></div>
+<div align="center">短网址: <a href="https://git.io/p6666">git.io/p6666</a></div>
 
