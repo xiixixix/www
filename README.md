@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dbwccs309/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dbwccs309/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ajjjj">git.io/ajjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp5">x.co/pp5</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pffff">git.io/pffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/4455">x.co/4455</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,9 +39,9 @@
 <p><a href="https://github.com/dbwccs309/djy/blob/master/gb/20/9/10/n12393303.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共驻英大使刘晓明点赞色情帖        >-009fcc?logoWidth=1" title="中共驻英大使刘晓明点赞色情帖  " alt="中共驻英大使刘晓明点赞色情帖  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dbwccs309/ntdtv/blob/master/gb/2020/09/10/a102937460.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/你想像不到 中共怎样对待这群残疾人（1）  >-009fcc?logoWidth=1" title="你想像不到 中共怎样对待这群残疾人（1）  " alt="你想像不到 中共怎样对待这群残疾人（1）  "></a></p>
-<p><a href="https://github.com/dbwccs309/djy/blob/master/gb/20/9/8/n12388731.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/强推汉语 内蒙查党员 不服者众       >-009fcc?logoWidth=1" title="强推汉语 内蒙查党员 不服者众  " alt="强推汉语 内蒙查党员 不服者众  "></a></p>
 <p><a href="https://github.com/dbwccs309/ntdtv/blob/master/gb/2020/09/10/a102937676.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共金融“核弹”为何变哑弹         >-009fcc?logoWidth=1" title="中共金融“核弹”为何变哑弹  " alt="中共金融“核弹”为何变哑弹  "></a></p>
 <p><a href="https://github.com/dbwccs309/ntdtv/blob/master/gb/2020/09/10/a102937696.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战狼变“色狼” 中共骇人“脑控”      >-009fcc?logoWidth=1" title="战狼变“色狼” 中共骇人“脑控”  " alt="战狼变“色狼” 中共骇人“脑控”  "></a></p>
+<p><a href="https://github.com/dbwccs309/djy/blob/master/gb/20/9/8/n12388731.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/强推汉语 内蒙查党员 不服者众       >-009fcc?logoWidth=1" title="强推汉语 内蒙查党员 不服者众  " alt="强推汉语 内蒙查党员 不服者众  "></a></p>
 <p><a href="https://github.com/dbwccs309/djy/blob/master/gb/20/9/8/n12389970.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉退休教授失踪4天利器刺腿  真相成谜  >-009fcc?logoWidth=1" title="武汉退休教授失踪4天利器刺腿  真相成谜  " alt="武汉退休教授失踪4天利器刺腿  真相成谜  "></a></p>
 <p><a href="https://github.com/dbwccs309/ntdtv/blob/master/gb/2020/09/10/a102937725.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/久坐肥肚 屁股大 萝卜腿又有小腹吗？3动作解>-009fcc?logoWidth=1" title="久坐肥肚 屁股大 萝卜腿又有小腹吗？3动作解决  " alt="久坐肥肚 屁股大 萝卜腿又有小腹吗？3动作解决  "></a></p>
 <p><a href="https://github.com/dbwccs309/ntdtv/blob/master/gb/2020/09/10/a102937703.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谎言如何锻造共和国勋章：钟南山的莲花清瘟、陈>-009fcc?logoWidth=1" title="谎言如何锻造共和国勋章：钟南山的莲花清瘟、陈薇的二月疫苗  " alt="谎言如何锻造共和国勋章：钟南山的莲花清瘟、陈薇的二月疫苗  "></a></p>
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://dbwccs309.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?pirfw">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?siqwk">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ovuqz">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?wxfmc">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?wmebu">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ollcn">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?wqtpu">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?nfktz">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/dbwccs309/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dbwccs309/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dbwccs309/www/master/index.html?q">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dbwccs309/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/mmmmi" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dbwccs309/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dbwccs309/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dbwccs309/www/master/index.html?c">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dbwccs309/www/blob/master/README.md?s#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/uzzzz" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/ajjjj">git.io/ajjjj</a></div>
+<div align="center">短网址: <a href="https://git.io/pffff">git.io/pffff</a></div>
 
