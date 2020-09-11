@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nlnfbc3897/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nlnfbc3897/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e2222">git.io/e2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/uqq">x.co/uqq</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/z2222">git.io/z2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppg">x.co/ppg</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,7 +22,7 @@
 <p><a href="https://github.com/nlnfbc3897/ntdtv/blob/master/gb/2020/09/10/a102937910.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普发推说金正恩健康 金与正反常隐身惹揣测 >-009fcc?logoWidth=1" title="川普发推说金正恩健康 金与正反常隐身惹揣测  " alt="川普发推说金正恩健康 金与正反常隐身惹揣测  "></a></p>
 <p><a href="https://github.com/nlnfbc3897/ntdtv/blob/master/gb/2020/09/11/a102938136.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/12名港人偷渡逃往台湾 3名律师被迫退出案件>-009fcc?logoWidth=1" title="12名港人偷渡逃往台湾 3名律师被迫退出案件  " alt="12名港人偷渡逃往台湾 3名律师被迫退出案件  "></a></p>
 <p><a href="https://github.com/nlnfbc3897/ntdtv/blob/master/gb/2020/09/11/a102938134.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传中共士兵“墓地入党” 网友：去送死吗？(>-009fcc?logoWidth=1" title="网传中共士兵“墓地入党” 网友：去送死吗？(视频)  " alt="网传中共士兵“墓地入党” 网友：去送死吗？(视频)  "></a></p>
-<p><a href="https://github.com/nlnfbc3897/ntdtv/blob/master/gb/2020/09/11/a102938129.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/耿潇男夫妇被拘 许章润怒发“致暴政书”   >-009fcc?logoWidth=1" title="耿潇男夫妇被拘 许章润怒发“致暴政书”  " alt="耿潇男夫妇被拘 许章润怒发“致暴政书”  "></a></p>
+<p><a href="https://github.com/nlnfbc3897/ntdtv/blob/master/gb/2020/09/11/a102938129.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/耿潇男夫妇被拘 许章润“致暴政书”莫欺女子 >-009fcc?logoWidth=1" title="耿潇男夫妇被拘 许章润“致暴政书”莫欺女子  " alt="耿潇男夫妇被拘 许章润“致暴政书”莫欺女子  "></a></p>
 <p><a href="https://github.com/nlnfbc3897/ntdtv/blob/master/gb/2020/09/11/a102938085.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/薛浩然：三权分立事实 忧港府洗脑      >-009fcc?logoWidth=1" title="薛浩然：三权分立事实 忧港府洗脑  " alt="薛浩然：三权分立事实 忧港府洗脑  "></a></p>
 <p><a href="https://github.com/nlnfbc3897/ntdtv/blob/master/gb/2020/09/11/a102938078.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战狼变色狼？刘晓明点赞色情片 英媒：老脸丢尽>-009fcc?logoWidth=1" title="战狼变色狼？刘晓明点赞色情片 英媒：老脸丢尽  " alt="战狼变色狼？刘晓明点赞色情片 英媒：老脸丢尽  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -40,6 +40,7 @@
 <p><a href="https://github.com/nlnfbc3897/djy/blob/master/gb/20/9/10/n12395255.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习抄袭港人金句？中南海最恐惧啥       >-009fcc?logoWidth=1" title="习抄袭港人金句？中南海最恐惧啥  " alt="习抄袭港人金句？中南海最恐惧啥  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nlnfbc3897/ntdtv/blob/master/gb/2020/09/10/a102937447.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平突然“为热干面加油” 官员懵了不敢鼓掌>-009fcc?logoWidth=1" title="习近平突然“为热干面加油” 官员懵了不敢鼓掌  " alt="习近平突然“为热干面加油” 官员懵了不敢鼓掌  "></a></p>
+<p><a href="https://github.com/nlnfbc3897/ntdtv/blob/master/gb/2020/09/11/a102938129.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/耿潇男夫妇被拘 许章润怒发“致暴政书”   >-009fcc?logoWidth=1" title="耿潇男夫妇被拘 许章润怒发“致暴政书”  " alt="耿潇男夫妇被拘 许章润怒发“致暴政书”  "></a></p>
 <p><a href="https://github.com/nlnfbc3897/ntdtv/blob/master/gb/2020/09/10/a102937952.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/皖南事变不是冤案              >-009fcc?logoWidth=1" title="皖南事变不是冤案  " alt="皖南事变不是冤案  "></a></p>
 <p><a href="https://github.com/nlnfbc3897/ntdtv/blob/master/gb/2020/09/10/a102937830.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逃美副市长曝虚假开发区黑幕：无人敢说    >-009fcc?logoWidth=1" title="逃美副市长曝虚假开发区黑幕：无人敢说  " alt="逃美副市长曝虚假开发区黑幕：无人敢说  "></a></p>
 <p><a href="https://github.com/nlnfbc3897/djy/blob/master/gb/20/9/10/n12395128.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉香港新疆争议 网信办下令陆媒禁报花木兰  >-009fcc?logoWidth=1" title="涉香港新疆争议 网信办下令陆媒禁报花木兰  " alt="涉香港新疆争议 网信办下令陆媒禁报花木兰  "></a></p>
@@ -260,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://nlnfbc3897.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?zaomo">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?agwft">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?daxpe">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?dwzeq">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?bxifr">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?fzyoy">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?jvxwr">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?yagbb">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,8 +487,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/nlnfbc3897/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nlnfbc3897/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nlnfbc3897/www/master/index.html?h">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nlnfbc3897/www/blob/master/README.md?e#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/ttktt" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nlnfbc3897/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nlnfbc3897/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nlnfbc3897/www/master/index.html?x">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nlnfbc3897/www/blob/master/README.md?r#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/rrrr8" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/e2222">git.io/e2222</a></div>
+<div align="center">短网址: <a href="https://git.io/z2222">git.io/z2222</a></div>
 
