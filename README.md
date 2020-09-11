@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/uzxpls3131/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/uzxpls3131/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gaaaa">git.io/gaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u88">x.co/u88</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rmmmm">git.io/rmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ypp">x.co/ypp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -35,22 +35,22 @@
 <p><a href="https://github.com/uzxpls3131/djy/blob/master/gb/20/9/10/n12395482.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：捷克总统顾问叶简明的总后台是谁？  >-009fcc?logoWidth=1" title="王友群：捷克总统顾问叶简明的总后台是谁？  " alt="王友群：捷克总统顾问叶简明的总后台是谁？  "></a></p>
 <p><a href="https://github.com/uzxpls3131/djy/blob/master/gb/20/9/8/n12388731.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/强推汉语 内蒙查党员 不服者众       >-009fcc?logoWidth=1" title="强推汉语 内蒙查党员 不服者众  " alt="强推汉语 内蒙查党员 不服者众  "></a></p>
 <p><a href="https://github.com/uzxpls3131/djy/blob/master/gb/20/9/10/n12394754.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美驻华大使写了啥文章 人民日报不敢刊登   >-009fcc?logoWidth=1" title="美驻华大使写了啥文章 人民日报不敢刊登  " alt="美驻华大使写了啥文章 人民日报不敢刊登  "></a></p>
+<p><a href="https://github.com/uzxpls3131/djy/blob/master/gb/20/9/11/n12395667.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强案开庭 大量警察戒备 无人能旁听   >-009fcc?logoWidth=1" title="任志强案开庭 大量警察戒备 无人能旁听  " alt="任志强案开庭 大量警察戒备 无人能旁听  "></a></p>
 <p><a href="https://github.com/uzxpls3131/djy/blob/master/gb/20/9/10/n12394566.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谁写的稿？习近平演说引用香港反送中名言   >-009fcc?logoWidth=1" title="谁写的稿？习近平演说引用香港反送中名言  " alt="谁写的稿？习近平演说引用香港反送中名言  "></a></p>
 <p><a href="https://github.com/uzxpls3131/djy/blob/master/gb/20/9/10/n12395128.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉香港新疆争议 网信办下令陆媒禁报花木兰  >-009fcc?logoWidth=1" title="涉香港新疆争议 网信办下令陆媒禁报花木兰  " alt="涉香港新疆争议 网信办下令陆媒禁报花木兰  "></a></p>
-<p><a href="https://github.com/uzxpls3131/djy/blob/master/gb/20/9/10/n12395214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：北京上演表彰闹剧 川普追责要出重手 >-009fcc?logoWidth=1" title="周晓辉：北京上演表彰闹剧 川普追责要出重手  " alt="周晓辉：北京上演表彰闹剧 川普追责要出重手  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/uzxpls3131/ntdtv/blob/master/gb/2020/09/10/a102937740.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美驻港澳领馆出售25亿港元房产 外界猜疑  >-009fcc?logoWidth=1" title="美驻港澳领馆出售25亿港元房产 外界猜疑  " alt="美驻港澳领馆出售25亿港元房产 外界猜疑  "></a></p>
-<p><a href="https://github.com/uzxpls3131/ntdtv/blob/master/gb/2020/09/10/a102937282.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山东董事长当孙女面强奸儿媳 儿子敲锣骂畜生(>-009fcc?logoWidth=1" title="山东董事长当孙女面强奸儿媳 儿子敲锣骂畜生(视频)  " alt="山东董事长当孙女面强奸儿媳 儿子敲锣骂畜生(视频)  "></a></p>
 <p><a href="https://github.com/uzxpls3131/ntdtv/blob/master/gb/2020/09/10/a102937450.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫苗选国产还是进口？张文宏回答火爆网路(视频>-009fcc?logoWidth=1" title="疫苗选国产还是进口？张文宏回答火爆网路(视频)  " alt="疫苗选国产还是进口？张文宏回答火爆网路(视频)  "></a></p>
-<p><a href="https://github.com/uzxpls3131/ntdtv/blob/master/gb/2020/09/10/a102937880.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贺锦丽丈夫被揭大发中共财 聘中共高官当顾问 >-009fcc?logoWidth=1" title="贺锦丽丈夫被揭大发中共财 聘中共高官当顾问  " alt="贺锦丽丈夫被揭大发中共财 聘中共高官当顾问  "></a></p>
+<p><a href="https://github.com/uzxpls3131/djy/blob/master/gb/20/9/10/n12395214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：北京上演表彰闹剧 川普追责要出重手 >-009fcc?logoWidth=1" title="周晓辉：北京上演表彰闹剧 川普追责要出重手  " alt="周晓辉：北京上演表彰闹剧 川普追责要出重手  "></a></p>
+<p><a href="https://github.com/uzxpls3131/ntdtv/blob/master/gb/2020/09/10/a102937282.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山东董事长当孙女面强奸儿媳 儿子敲锣骂畜生(>-009fcc?logoWidth=1" title="山东董事长当孙女面强奸儿媳 儿子敲锣骂畜生(视频)  " alt="山东董事长当孙女面强奸儿媳 儿子敲锣骂畜生(视频)  "></a></p>
+<p><a href="https://github.com/uzxpls3131/ntdtv/blob/master/gb/2020/09/10/a102937795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台下官员爆傻眼！习近平：全国人民为热干面加油>-009fcc?logoWidth=1" title="台下官员爆傻眼！习近平：全国人民为热干面加油  " alt="台下官员爆傻眼！习近平：全国人民为热干面加油  "></a></p>
 <p><a href="https://github.com/uzxpls3131/djy/blob/master/gb/20/9/10/n12395398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共断供药品报复美国？陆学者：只会自毁   >-009fcc?logoWidth=1" title="中共断供药品报复美国？陆学者：只会自毁  " alt="中共断供药品报复美国？陆学者：只会自毁  "></a></p>
 <p><a href="https://github.com/uzxpls3131/djy/blob/master/gb/20/9/10/n12394966.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《花木兰》掀抵制潮 美政界痛斥中共和迪士尼 >-009fcc?logoWidth=1" title="《花木兰》掀抵制潮 美政界痛斥中共和迪士尼  " alt="《花木兰》掀抵制潮 美政界痛斥中共和迪士尼  "></a></p>
-<p><a href="https://github.com/uzxpls3131/ntdtv/blob/master/gb/2020/09/10/a102937898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《花木兰》致谢新疆酿风暴:拍摄区有10个集中>-009fcc?logoWidth=1" title="《花木兰》致谢新疆酿风暴:拍摄区有10个集中营  " alt="《花木兰》致谢新疆酿风暴:拍摄区有10个集中营  "></a></p>
-<p><a href="https://github.com/uzxpls3131/ntdtv/blob/master/gb/2020/09/10/a102937424.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/把情人炸成两截还不解恨 前副省长法庭上放狠话>-009fcc?logoWidth=1" title="把情人炸成两截还不解恨 前副省长法庭上放狠话  " alt="把情人炸成两截还不解恨 前副省长法庭上放狠话  "></a></p>
+<p><a href="https://github.com/uzxpls3131/ntdtv/blob/master/gb/2020/09/11/a102938061.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平才是李克强的经济“堵点” 赴美签证暴跌>-009fcc?logoWidth=1" title="习近平才是李克强的经济“堵点” 赴美签证暴跌99.3;  " alt="习近平才是李克强的经济“堵点” 赴美签证暴跌99.3;  "></a></p>
 <p><a href="https://github.com/uzxpls3131/djy/blob/master/gb/20/9/10/n12393239.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李传良再爆：中国民企崩溃 地方债台高筑   >-009fcc?logoWidth=1" title="李传良再爆：中国民企崩溃 地方债台高筑  " alt="李传良再爆：中国民企崩溃 地方债台高筑  "></a></p>
 <p><a href="https://github.com/uzxpls3131/djy/blob/master/gb/20/9/10/n12394922.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共研究脑控多年 民众或成实验对象（一）  >-009fcc?logoWidth=1" title="中共研究脑控多年 民众或成实验对象（一）  " alt="中共研究脑控多年 民众或成实验对象（一）  "></a></p>
-<p><a href="https://github.com/uzxpls3131/ntdtv/blob/master/gb/2020/09/10/a102937310.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印准备开战？两军相距仅200米 习左右为难>-009fcc?logoWidth=1" title="中印准备开战？两军相距仅200米 习左右为难  " alt="中印准备开战？两军相距仅200米 习左右为难  "></a></p>
-<p><a href="https://github.com/uzxpls3131/ntdtv/blob/master/gb/2020/09/10/a102937501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习突然“为热干面加油” 官员懵了      >-009fcc?logoWidth=1" title="习突然“为热干面加油” 官员懵了  " alt="习突然“为热干面加油” 官员懵了  "></a></p>
+<p><a href="https://github.com/uzxpls3131/ntdtv/blob/master/gb/2020/09/10/a102937880.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贺锦丽丈夫被揭大发中共财 聘中共高官当顾问 >-009fcc?logoWidth=1" title="贺锦丽丈夫被揭大发中共财 聘中共高官当顾问  " alt="贺锦丽丈夫被揭大发中共财 聘中共高官当顾问  "></a></p>
+<p><a href="https://github.com/uzxpls3131/ntdtv/blob/master/gb/2020/09/10/a102937725.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/久坐肥肚 屁股大 萝卜腿又有小腹吗？3动作解>-009fcc?logoWidth=1" title="久坐肥肚 屁股大 萝卜腿又有小腹吗？3动作解决  " alt="久坐肥肚 屁股大 萝卜腿又有小腹吗？3动作解决  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -262,9 +262,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://uzxpls3131.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ajlqi">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?npjkh">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?zfvfg">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?bdggt">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -308,8 +308,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?wkgng">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?zxjhv">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?qzmzw">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?yerer">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -488,8 +488,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/uzxpls3131/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uzxpls3131/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/uzxpls3131/www/master/index.html?r">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uzxpls3131/www/blob/master/README.md?z#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/ttdtt" title="分享本平台"></img>
+<p><strong><a href="https://github.com/uzxpls3131/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uzxpls3131/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/uzxpls3131/www/master/index.html?n">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uzxpls3131/www/blob/master/README.md?l#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/uuuup" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/gaaaa">git.io/gaaaa</a></div>
+<div align="center">短网址: <a href="https://git.io/rmmmm">git.io/rmmmm</a></div>
 
