@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mnmezt3433/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mnmezt3433/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e7777">git.io/e7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a6a">x.co/a6a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ytttt">git.io/ytttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aan">x.co/aan</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/mnmezt3433/ntdtv/blob/master/gb/2020/09/12/a102939027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文在寅亲共惹祸 近90万人吁美签“逮捕令” >-009fcc?logoWidth=1" title="文在寅亲共惹祸 近90万人吁美签“逮捕令”  " alt="文在寅亲共惹祸 近90万人吁美签“逮捕令”  "></a></p>
 <p><a href="https://github.com/mnmezt3433/ntdtv/blob/master/gb/2020/09/12/a102939005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平犯两难？任志强案避开关键一罪     >-009fcc?logoWidth=1" title="习近平犯两难？任志强案避开关键一罪  " alt="习近平犯两难？任志强案避开关键一罪  "></a></p>
 <p><a href="https://github.com/mnmezt3433/ntdtv/blob/master/gb/2020/09/12/a102938998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平再遇麻烦 欧洲对北京达成新共识    >-009fcc?logoWidth=1" title="习近平再遇麻烦 欧洲对北京达成新共识  " alt="习近平再遇麻烦 欧洲对北京达成新共识  "></a></p>
+<p><a href="https://github.com/mnmezt3433/ntdtv/blob/master/gb/2020/09/12/a102939218.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约世贸中心纪念9·11 拜登彭斯罕见“碰肘>-009fcc?logoWidth=1" title="纽约世贸中心纪念9·11 拜登彭斯罕见“碰肘”  " alt="纽约世贸中心纪念9·11 拜登彭斯罕见“碰肘”  "></a></p>
 <p><a href="https://github.com/mnmezt3433/ntdtv/blob/master/gb/2020/09/12/a102939339.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中欧峰会:习近平尚未登场 刘鹤视频通话先碰壁>-009fcc?logoWidth=1" title="中欧峰会:习近平尚未登场 刘鹤视频通话先碰壁  " alt="中欧峰会:习近平尚未登场 刘鹤视频通话先碰壁  "></a></p>
 <p><a href="https://github.com/mnmezt3433/ntdtv/blob/master/gb/2020/09/12/a102939278.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王金平拟赴海峡论坛被称“求和” 国民党要求央>-009fcc?logoWidth=1" title="王金平拟赴海峡论坛被称“求和” 国民党要求央视道歉  " alt="王金平拟赴海峡论坛被称“求和” 国民党要求央视道歉  "></a></p>
 <p><a href="https://github.com/mnmezt3433/ntdtv/blob/master/gb/2020/09/12/a102939257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/地中海东部实弹演习 土耳其与欧盟紧张加剧  >-009fcc?logoWidth=1" title="地中海东部实弹演习 土耳其与欧盟紧张加剧  " alt="地中海东部实弹演习 土耳其与欧盟紧张加剧  "></a></p>
 <p><a href="https://github.com/mnmezt3433/ntdtv/blob/master/gb/2020/09/12/a102939250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/12港人遭大陆羁押 家人营救 美国表关切  >-009fcc?logoWidth=1" title="12港人遭大陆羁押 家人营救 美国表关切  " alt="12港人遭大陆羁押 家人营救 美国表关切  "></a></p>
-<p><a href="https://github.com/mnmezt3433/ntdtv/blob/master/gb/2020/09/12/a102939203.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长沙富能案秘密庭审 家属揭司法黑暗     >-009fcc?logoWidth=1" title="长沙富能案秘密庭审 家属揭司法黑暗  " alt="长沙富能案秘密庭审 家属揭司法黑暗  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/mnmezt3433/djy/blob/master/gb/20/9/8/n12389899.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三星撤重创惠州 中共密令拉住日韩      >-009fcc?logoWidth=1" title="三星撤重创惠州 中共密令拉住日韩  " alt="三星撤重创惠州 中共密令拉住日韩  "></a></p>
 <p><a href="https://github.com/mnmezt3433/djy/blob/master/gb/20/9/11/n12397563.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传任志强拒认罪 量刑或让习近平左右为难   >-009fcc?logoWidth=1" title="传任志强拒认罪 量刑或让习近平左右为难  " alt="传任志强拒认罪 量刑或让习近平左右为难  "></a></p>
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://mnmezt3433.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?yftbr">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?dqxwz">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?icndj">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?sprcw">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?nefgu">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?khsgd">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?mczuy">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?syjtr">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,10 +485,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/mnmezt3433/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mnmezt3433/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mnmezt3433/www/master/index.html?j">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mnmezt3433/www/blob/master/README.md?k#1<br>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mnmezt3433/www/blob/master/README.md?z%231" title="分享本平台"></img>
-<br><a href="https://git.io/e7777">https://git.io/e7777</a>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/uukuu" title="分享本平台"></img>
-<br><a href="https://is.gd/uukuu">https://is.gd/uukuu</a>
+<p><strong><a href="https://github.com/mnmezt3433/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mnmezt3433/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mnmezt3433/www/master/index.html?u">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mnmezt3433/www/blob/master/README.md?t#1<br>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mnmezt3433/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<br><a href="https://git.io/ytttt">https://git.io/ytttt</a>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/mmmmb" title="分享本平台"></img>
+<br><a href="https://is.gd/mmmmb">https://is.gd/mmmmb</a>
 </div>
