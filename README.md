@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mnmezt3433/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mnmezt3433/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aeeee">git.io/aeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3337">x.co/3337</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hyyyy">git.io/hyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3388">x.co/3388</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -24,7 +24,7 @@
 <p><a href="https://github.com/mnmezt3433/ntdtv/blob/master/gb/2020/09/12/a102939135.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/汉尼提：对付邪恶 美需强大         >-009fcc?logoWidth=1" title="汉尼提：对付邪恶 美需强大  " alt="汉尼提：对付邪恶 美需强大  "></a></p>
 <p><a href="https://github.com/mnmezt3433/ntdtv/blob/master/gb/2020/09/10/a102937670.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/19世纪的油画中惊现智能手机！是时空穿越吗？>-009fcc?logoWidth=1" title="19世纪的油画中惊现智能手机！是时空穿越吗？  " alt="19世纪的油画中惊现智能手机！是时空穿越吗？  "></a></p>
 <p><a href="https://github.com/mnmezt3433/ntdtv/blob/master/gb/2020/09/12/a102939040.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/救经济松绑管制 印度新增近10万例病例 连2>-009fcc?logoWidth=1" title="救经济松绑管制 印度新增近10万例病例 连2天创新高  " alt="救经济松绑管制 印度新增近10万例病例 连2天创新高  "></a></p>
-<p><a href="https://github.com/mnmezt3433/ntdtv/blob/master/gb/2020/09/12/a102938993.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/历经数月延宕 阿富汗政府与塔利班首度和谈  >-009fcc?logoWidth=1" title="历经数月延宕 阿富汗政府与塔利班首度和谈  " alt="历经数月延宕 阿富汗政府与塔利班首度和谈  "></a></p>
+<p><a href="https://github.com/mnmezt3433/ntdtv/blob/master/gb/2020/09/12/a102939025.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刘亦菲“木兰”梦碎！美19位跨党派议员调查 >-009fcc?logoWidth=1" title="刘亦菲“木兰”梦碎！美19位跨党派议员调查  " alt="刘亦菲“木兰”梦碎！美19位跨党派议员调查  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/mnmezt3433/djy/blob/master/gb/20/9/8/n12389899.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三星撤重创惠州 中共密令拉住日韩      >-009fcc?logoWidth=1" title="三星撤重创惠州 中共密令拉住日韩  " alt="三星撤重创惠州 中共密令拉住日韩  "></a></p>
 <p><a href="https://github.com/mnmezt3433/djy/blob/master/gb/20/9/11/n12397563.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传任志强拒认罪 量刑或让习近平左右为难   >-009fcc?logoWidth=1" title="传任志强拒认罪 量刑或让习近平左右为难  " alt="传任志强拒认罪 量刑或让习近平左右为难  "></a></p>
@@ -46,7 +46,6 @@
 <p><a href="https://github.com/mnmezt3433/ntdtv/blob/master/gb/2020/09/12/a102938942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登演讲一半懵了：我的纸条呢？我放口袋了呀 >-009fcc?logoWidth=1" title="拜登演讲一半懵了：我的纸条呢？我放口袋了呀  " alt="拜登演讲一半懵了：我的纸条呢？我放口袋了呀  "></a></p>
 <p><a href="https://github.com/mnmezt3433/djy/blob/master/gb/20/9/11/n12397740.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共再提“丰收” 分析：大陆缺粮危机浮现  >-009fcc?logoWidth=1" title="中共再提“丰收” 分析：大陆缺粮危机浮现  " alt="中共再提“丰收” 分析：大陆缺粮危机浮现  "></a></p>
 <p><a href="https://github.com/mnmezt3433/djy/blob/master/gb/20/9/11/n12397321.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共研究脑控多年 民众或成实验对象（二）  >-009fcc?logoWidth=1" title="中共研究脑控多年 民众或成实验对象（二）  " alt="中共研究脑控多年 民众或成实验对象（二）  "></a></p>
-<p><a href="https://github.com/mnmezt3433/ntdtv/blob/master/gb/2020/09/12/a102939025.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刘亦菲“木兰”梦碎！美19位跨党派议员调查 >-009fcc?logoWidth=1" title="刘亦菲“木兰”梦碎！美19位跨党派议员调查  " alt="刘亦菲“木兰”梦碎！美19位跨党派议员调查  "></a></p>
 <p><a href="https://github.com/mnmezt3433/ntdtv/blob/master/gb/2020/09/12/a102939050.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/每天“叩齿”10下防牙齿松动！实用五官抗老法>-009fcc?logoWidth=1" title="每天“叩齿”10下防牙齿松动！实用五官抗老法  " alt="每天“叩齿”10下防牙齿松动！实用五官抗老法  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -259,9 +258,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://mnmezt3433.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?rinrv">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ykpim">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?mmqkl">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?gefkr">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +304,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?gczza">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?dmsac">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?xkhkp">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?kmvab">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,10 +484,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/mnmezt3433/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mnmezt3433/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mnmezt3433/www/master/index.html?v">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mnmezt3433/www/blob/master/README.md?t#1<br>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mnmezt3433/www/blob/master/README.md?n%231" title="分享本平台"></img>
-<br><a href="https://git.io/aeeee">https://git.io/aeeee</a>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/rxxxx" title="分享本平台"></img>
-<br><a href="https://is.gd/rxxxx">https://is.gd/rxxxx</a>
+<p><strong><a href="https://github.com/mnmezt3433/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mnmezt3433/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mnmezt3433/www/master/index.html?u">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mnmezt3433/www/blob/master/README.md?p#1<br>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/mnmezt3433/www/blob/master/README.md?p%231" title="分享本平台"></img>
+<br><a href="https://git.io/hyyyy">https://git.io/hyyyy</a>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/p3333" title="分享本平台"></img>
+<br><a href="https://is.gd/p3333">https://is.gd/p3333</a>
 </div>
