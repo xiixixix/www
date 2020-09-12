@@ -490,7 +490,7 @@
 <div align="center">
 <p><strong><a href="https://github.com/jhbojy3056/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jhbojy3056/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jhbojy3056/www/master/index.html?c">高速版平台</a></strong></p>
 手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jhbojy3056/www/blob/master/README.md?d#1<br>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jhbojy3056/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<br><img width="200" src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jhbojy3056/www/blob/master/README.md?z%231" title="分享本平台"></img>
 <br><a href="https://git.io/q5555">https://git.io/q5555</a>
 <br><img width="200" src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/yqqqq" title="分享本平台"></img>
 <br><a href="https://is.gd/yqqqq">https://is.gd/yqqqq</a>
