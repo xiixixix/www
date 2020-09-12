@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jhbojy3056/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jhbojy3056/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hhhhhh">git.io/hhhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2228">x.co/2228</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/atttt">git.io/atttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/cpp">x.co/cpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/jhbojy3056/ntdtv/blob/master/gb/2020/09/12/a102938998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平再遇麻烦 欧洲对北京达成新共识    >-009fcc?logoWidth=1" title="习近平再遇麻烦 欧洲对北京达成新共识  " alt="习近平再遇麻烦 欧洲对北京达成新共识  "></a></p>
 <p><a href="https://github.com/jhbojy3056/ntdtv/blob/master/gb/2020/09/12/a102938956.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内部特急文件曝光：拉住日韩       >-009fcc?logoWidth=1" title="中共内部特急文件曝光：拉住日韩  " alt="中共内部特急文件曝光：拉住日韩  "></a></p>
 <p><a href="https://github.com/jhbojy3056/ntdtv/blob/master/gb/2020/09/12/a102938942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登演讲一半懵了：我的纸条呢？我放口袋了呀 >-009fcc?logoWidth=1" title="拜登演讲一半懵了：我的纸条呢？我放口袋了呀  " alt="拜登演讲一半懵了：我的纸条呢？我放口袋了呀  "></a></p>
 <p><a href="https://github.com/jhbojy3056/ntdtv/blob/master/gb/2020/09/12/a102938915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强受审细节曝光 拒绝认罪坚持自辩    >-009fcc?logoWidth=1" title="任志强受审细节曝光 拒绝认罪坚持自辩  " alt="任志强受审细节曝光 拒绝认罪坚持自辩  "></a></p>
 <p><a href="https://github.com/jhbojy3056/ntdtv/blob/master/gb/2020/09/12/a102938902.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“红二代”饭局投下震憾弹 蔡霞谈与中共脱钩 >-009fcc?logoWidth=1" title="“红二代”饭局投下震憾弹 蔡霞谈与中共脱钩  " alt="“红二代”饭局投下震憾弹 蔡霞谈与中共脱钩  "></a></p>
 <p><a href="https://github.com/jhbojy3056/ntdtv/blob/master/gb/2020/09/12/a102938916.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥东盟发声 强烈谴责中共(声明全文)  >-009fcc?logoWidth=1" title="蓬佩奥东盟发声 强烈谴责中共(声明全文)  " alt="蓬佩奥东盟发声 强烈谴责中共(声明全文)  "></a></p>
-<p><a href="https://github.com/jhbojy3056/ntdtv/blob/master/gb/2020/09/12/a102938866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:中共含泪进坑 美大使戳痛党媒 背后有高>-009fcc?logoWidth=1" title="文昭:中共含泪进坑 美大使戳痛党媒 背后有高人  " alt="文昭:中共含泪进坑 美大使戳痛党媒 背后有高人  "></a></p>
+<p><a href="https://github.com/jhbojy3056/ntdtv/blob/master/gb/2020/09/12/a102939005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平犯两难？任志强案避开关键一罪     >-009fcc?logoWidth=1" title="习近平犯两难？任志强案避开关键一罪  " alt="习近平犯两难？任志强案避开关键一罪  "></a></p>
+<p><a href="https://github.com/jhbojy3056/ntdtv/blob/master/gb/2020/09/12/a102938993.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/历经数月延宕 阿富汗政府与塔利班首度和谈  >-009fcc?logoWidth=1" title="历经数月延宕 阿富汗政府与塔利班首度和谈  " alt="历经数月延宕 阿富汗政府与塔利班首度和谈  "></a></p>
 <p><a href="https://github.com/jhbojy3056/ntdtv/blob/master/gb/2020/09/12/a102938989.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情来自外太空？中共奇葩论文嫁祸陨石    >-009fcc?logoWidth=1" title="疫情来自外太空？中共奇葩论文嫁祸陨石  " alt="疫情来自外太空？中共奇葩论文嫁祸陨石  "></a></p>
 <p><a href="https://github.com/jhbojy3056/ntdtv/blob/master/gb/2020/09/12/a102938952.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军勇敢之盾军演 里根航母与上百架战机参与 >-009fcc?logoWidth=1" title="美军勇敢之盾军演 里根航母与上百架战机参与  " alt="美军勇敢之盾军演 里根航母与上百架战机参与  "></a></p>
 <p><a href="https://github.com/jhbojy3056/ntdtv/blob/master/gb/2020/09/12/a102938935.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/刚果矿坑崩塌 至少50人遭活埋       >-009fcc?logoWidth=1" title="刚果矿坑崩塌 至少50人遭活埋  " alt="刚果矿坑崩塌 至少50人遭活埋  "></a></p>
-<p><a href="https://github.com/jhbojy3056/ntdtv/blob/master/gb/2020/09/12/a102938924.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/土耳其染疫人数激增 安卡拉居全国之冠    >-009fcc?logoWidth=1" title="土耳其染疫人数激增 安卡拉居全国之冠  " alt="土耳其染疫人数激增 安卡拉居全国之冠  "></a></p>
-<p><a href="https://github.com/jhbojy3056/ntdtv/blob/master/gb/2020/09/12/a102938868.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加国政府与中国国企合同被起诉 将庭审    >-009fcc?logoWidth=1" title="加国政府与中国国企合同被起诉 将庭审  " alt="加国政府与中国国企合同被起诉 将庭审  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jhbojy3056/djy/blob/master/gb/20/9/8/n12389899.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三星撤重创惠州 中共密令拉住日韩      >-009fcc?logoWidth=1" title="三星撤重创惠州 中共密令拉住日韩  " alt="三星撤重创惠州 中共密令拉住日韩  "></a></p>
 <p><a href="https://github.com/jhbojy3056/djy/blob/master/gb/20/9/11/n12397563.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传任志强拒认罪 量刑或让习近平左右为难   >-009fcc?logoWidth=1" title="传任志强拒认罪 量刑或让习近平左右为难  " alt="传任志强拒认罪 量刑或让习近平左右为难  "></a></p>
@@ -261,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://jhbojy3056.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?gqwcq">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?nrdas">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?vccms">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?yvnld">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?uswwt">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?hgudq">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?hwiiq">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?hxpts">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,10 +487,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/jhbojy3056/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jhbojy3056/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jhbojy3056/www/master/index.html?n">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jhbojy3056/www/blob/master/README.md?i#1<br>
+<p><strong><a href="https://github.com/jhbojy3056/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jhbojy3056/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jhbojy3056/www/master/index.html?f">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jhbojy3056/www/blob/master/README.md?h#1<br>
 <br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jhbojy3056/www/blob/master/README.md?l%231" title="分享本平台"></img>
-<br><a href="https://git.io/hhhhhh">https://git.io/hhhhhh</a>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/zgggg" title="分享本平台"></img>
-<br><a href="https://is.gd/zgggg">https://is.gd/zgggg</a>
+<br><a href="https://git.io/atttt">https://git.io/atttt</a>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/zzezz" title="分享本平台"></img>
+<br><a href="https://is.gd/zzezz">https://is.gd/zzezz</a>
 </div>
