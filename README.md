@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jhbojy3056/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jhbojy3056/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/7dddd">git.io/7dddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppe">x.co/ppe</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mssss">git.io/mssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3888">x.co/3888</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -42,10 +42,10 @@
 <p><a href="https://github.com/jhbojy3056/ntdtv/blob/master/gb/2020/09/12/a102938866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:中共含泪进坑 美大使戳痛党媒 背后有高>-009fcc?logoWidth=1" title="文昭:中共含泪进坑 美大使戳痛党媒 背后有高人  " alt="文昭:中共含泪进坑 美大使戳痛党媒 背后有高人  "></a></p>
 <p><a href="https://github.com/jhbojy3056/ntdtv/blob/master/gb/2020/09/11/a102938815.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美占星师预言:美国深层政府 2020大决战 >-009fcc?logoWidth=1" title="美占星师预言:美国深层政府 2020大决战 东方之子  " alt="美占星师预言:美国深层政府 2020大决战 东方之子  "></a></p>
 <p><a href="https://github.com/jhbojy3056/ntdtv/blob/master/gb/2020/09/12/a102939022.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓小平给红二代三指示 习只做到一个     >-009fcc?logoWidth=1" title="邓小平给红二代三指示 习只做到一个  " alt="邓小平给红二代三指示 习只做到一个  "></a></p>
-<p><a href="https://github.com/jhbojy3056/djy/blob/master/gb/20/8/23/n12350795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/汉尼提：对付邪恶 美需强大         >-009fcc?logoWidth=1" title="汉尼提：对付邪恶 美需强大  " alt="汉尼提：对付邪恶 美需强大  "></a></p>
-<p><a href="https://github.com/jhbojy3056/djy/blob/master/gb/20/9/11/n12397012.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推特不提黑客 战狼刘晓明删所有点赞贴    >-009fcc?logoWidth=1" title="推特不提黑客 战狼刘晓明删所有点赞贴  " alt="推特不提黑客 战狼刘晓明删所有点赞贴  "></a></p>
-<p><a href="https://github.com/jhbojy3056/ntdtv/blob/master/gb/2020/09/11/a102938398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美空军最大规模高科技演习 机器狗首登场   >-009fcc?logoWidth=1" title="美空军最大规模高科技演习 机器狗首登场  " alt="美空军最大规模高科技演习 机器狗首登场  "></a></p>
+<p><a href="https://github.com/jhbojy3056/djy/blob/master/gb/20/9/12/n12398262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平提“内循环” 官场民间均质疑     >-009fcc?logoWidth=1" title="习近平提“内循环” 官场民间均质疑  " alt="习近平提“内循环” 官场民间均质疑  "></a></p>
 <p><a href="https://github.com/jhbojy3056/djy/blob/master/gb/20/9/11/n12397321.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共研究脑控多年 民众或成实验对象（二）  >-009fcc?logoWidth=1" title="中共研究脑控多年 民众或成实验对象（二）  " alt="中共研究脑控多年 民众或成实验对象（二）  "></a></p>
+<p><a href="https://github.com/jhbojy3056/ntdtv/blob/master/gb/2020/09/11/a102938398.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美空军最大规模高科技演习 机器狗首登场   >-009fcc?logoWidth=1" title="美空军最大规模高科技演习 机器狗首登场  " alt="美空军最大规模高科技演习 机器狗首登场  "></a></p>
+<p><a href="https://github.com/jhbojy3056/djy/blob/master/gb/20/9/12/n12398252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020年的P2P？ 大陆多省长租公寓爆雷 >-009fcc?logoWidth=1" title="2020年的P2P？ 大陆多省长租公寓爆雷  " alt="2020年的P2P？ 大陆多省长租公寓爆雷  "></a></p>
 <p><a href="https://github.com/jhbojy3056/djy/blob/master/gb/20/9/11/n12397827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：美中外交战频繁争夺 胜负已明     >-009fcc?logoWidth=1" title="杨威：美中外交战频繁争夺 胜负已明  " alt="杨威：美中外交战频繁争夺 胜负已明  "></a></p>
 <p><a href="https://github.com/jhbojy3056/ntdtv/blob/master/gb/2020/09/10/a102937403.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国通灵大师对中国的预言惊骇西方      >-009fcc?logoWidth=1" title="美国通灵大师对中国的预言惊骇西方  " alt="美国通灵大师对中国的预言惊骇西方  "></a></p>
 <p><a href="https://github.com/jhbojy3056/ntdtv/blob/master/gb/2020/09/11/a102938095.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平内部讲话流出：有人与我争夺人心！   >-009fcc?logoWidth=1" title="习近平内部讲话流出：有人与我争夺人心！  " alt="习近平内部讲话流出：有人与我争夺人心！  "></a></p>
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://jhbojy3056.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?baial">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?lwcxr">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?apxyq">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?qznww">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?hwjbk">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?qzkjy">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?xvrel">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?bmmgl">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,10 +486,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/jhbojy3056/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jhbojy3056/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jhbojy3056/www/master/index.html?c">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jhbojy3056/www/blob/master/README.md?g#1<br>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jhbojy3056/www/blob/master/README.md?r%231" title="分享本平台"></img>
-<br><a href="https://git.io/7dddd">https://git.io/7dddd</a>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/rrrre" title="分享本平台"></img>
-<br><a href="https://is.gd/rrrre">https://is.gd/rrrre</a>
+<p><strong><a href="https://github.com/jhbojy3056/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jhbojy3056/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jhbojy3056/www/master/index.html?e">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jhbojy3056/www/blob/master/README.md?z#1<br>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jhbojy3056/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<br><a href="https://git.io/mssss">https://git.io/mssss</a>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/ttftt" title="分享本平台"></img>
+<br><a href="https://is.gd/ttftt">https://is.gd/ttftt</a>
 </div>
