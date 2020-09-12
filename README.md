@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jhbojy3056/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jhbojy3056/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/y3333">git.io/y3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/5pp">x.co/5pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ccccccc">git.io/ccccccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppx">x.co/ppx</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -70,9 +70,9 @@
 <p><details><summary><a href="https://gitlab.com/szzdlab/w/raw/master/szzd/oGatea.apk">网门&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;（安卓版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <p><a href="https://gitlab.com/szzdlab/w/raw/master/szzd/oGate.zip">网门（电脑版）</a>
 </details>
-<p><details><summary><a href="https://gitlab.com/szzdlab/w/raw/master/szzd/SzzdOgate.apk">神州正道（安卓版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://gitlab.com/szzdlab/w/raw/master/szzd/szzdogate.zip">神州正道（网页版）</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</p>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://gitlab.com/szzdlab/w/raw/master/szzd/SzzdOgateTV.apk">神州正道（电视机顶盒版）</a></p>
+<p><details><summary><a href="https://gitlab.com/szzdlab/w/raw/master/szzd/SzzdOgate.apk">神州明见（安卓版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://gitlab.com/szzdlab/w/raw/master/szzd/szzdogate.zip">神州明见（网页版）</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;</p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://gitlab.com/szzdlab/w/raw/master/szzd/SzzdOgateTV.apk">神州明见（电视机顶盒版）</a></p>
 </details>
 <p><details><summary><a href="https://gitlab.com/szzdlab/w/raw/master/szzd/fgp.zip">自由门&thinsp;&nbsp;&nbsp;&nbsp;（电脑版）</a>&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a href="https://gitlab.com/szzdlab/w/raw/master/szzd/fgma.apk">自由门4.2（安卓版）</a></p>
@@ -262,9 +262,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://jhbojy3056.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?oiyvx">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?woblt">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ygxwz">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?rdgps">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -308,8 +308,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ftxgt">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?krrsb">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ridna">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?izior">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,10 +486,12 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;稍微盘点中共的罪恶，让人感到心情无比的沉重。了解了中共，才明白什么叫做罪恶滔天，罄竹难书。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="https://ducte28bpp8o2.cloudfront.net/?name=ogQuit.aspx&key=hhcbdjgypepptctt&from=nayunhai_852&tag=23251645" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </strong></p>
-<div align="center">
 <hr>
-<p><strong><a href="https://github.com/jhbojy3056/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jhbojy3056/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jhbojy3056/www/master/index.html?u">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jhbojy3056/www/blob/master/README.md?q#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/rrrrj" title="分享本平台"></img>
+<div align="center">
+<p><strong><a href="https://github.com/jhbojy3056/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jhbojy3056/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jhbojy3056/www/master/index.html?t">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jhbojy3056/www/blob/master/README.md?m#1<br>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jhbojy3056/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<br><a href="https://git.io/ccccccc">https://git.io/ccccccc</a>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/ppppj" title="分享本平台"></img>
+<br><a href="https://is.gd/ppppj">https://is.gd/ppppj</a>
 </div>
-<div align="center">短网址: <a href="https://git.io/y3333">git.io/y3333</a></div>
-
