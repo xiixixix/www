@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/uadjvg3894/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/uadjvg3894/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/7qqqq">git.io/7qqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/jdd">x.co/jdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g8888">git.io/g8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa4">x.co/aa4</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,14 +39,15 @@
 <p><a href="https://github.com/uadjvg3894/djy/blob/master/gb/20/9/11/n12395664.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台海紧绷开战？习近平三致命顾虑       >-009fcc?logoWidth=1" title="台海紧绷开战？习近平三致命顾虑  " alt="台海紧绷开战？习近平三致命顾虑  "></a></p>
 <p><a href="https://github.com/uadjvg3894/djy/blob/master/gb/20/9/11/n12396478.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国经济奇迹—建立在恶之上的竞争力（上）  >-009fcc?logoWidth=1" title="中国经济奇迹—建立在恶之上的竞争力（上）  " alt="中国经济奇迹—建立在恶之上的竞争力（上）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/uadjvg3894/ntdtv/blob/master/gb/2020/09/11/a102938352.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：不给TikTok延期 不关掉就卖掉  >-009fcc?logoWidth=1" title="川普：不给TikTok延期 不关掉就卖掉  " alt="川普：不给TikTok延期 不关掉就卖掉  "></a></p>
 <p><a href="https://github.com/uadjvg3894/ntdtv/blob/master/gb/2020/09/10/a102937403.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国通灵大师对中国的预言惊骇西方      >-009fcc?logoWidth=1" title="美国通灵大师对中国的预言惊骇西方  " alt="美国通灵大师对中国的预言惊骇西方  "></a></p>
+<p><a href="https://github.com/uadjvg3894/ntdtv/blob/master/gb/2020/09/11/a102938815.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美占星师预言:美国深层政府 2020大决战 >-009fcc?logoWidth=1" title="美占星师预言:美国深层政府 2020大决战 东方之子  " alt="美占星师预言:美国深层政府 2020大决战 东方之子  "></a></p>
+<p><a href="https://github.com/uadjvg3894/ntdtv/blob/master/gb/2020/09/11/a102938748.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普透露神秘尖端核武器？习近平都不知道！  >-009fcc?logoWidth=1" title="川普透露神秘尖端核武器？习近平都不知道！  " alt="川普透露神秘尖端核武器？习近平都不知道！  "></a></p>
 <p><a href="https://github.com/uadjvg3894/djy/blob/master/gb/20/9/11/n12397321.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共研究脑控多年 民众或成实验对象（二）  >-009fcc?logoWidth=1" title="中共研究脑控多年 民众或成实验对象（二）  " alt="中共研究脑控多年 民众或成实验对象（二）  "></a></p>
 <p><a href="https://github.com/uadjvg3894/djy/blob/master/gb/20/8/26/n12358513.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/鲜为人知：五面间谍被毛泽东逼疯       >-009fcc?logoWidth=1" title="鲜为人知：五面间谍被毛泽东逼疯  " alt="鲜为人知：五面间谍被毛泽东逼疯  "></a></p>
+<p><a href="https://github.com/uadjvg3894/ntdtv/blob/master/gb/2020/09/11/a102938272.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不沾锅别用错 厨房6样东西使用不当小心吃毒 >-009fcc?logoWidth=1" title="不沾锅别用错 厨房6样东西使用不当小心吃毒  " alt="不沾锅别用错 厨房6样东西使用不当小心吃毒  "></a></p>
+<p><a href="https://github.com/uadjvg3894/ntdtv/blob/master/gb/2020/09/11/a102938280.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习内部讲话流出：有人与我争夺人心！     >-009fcc?logoWidth=1" title="习内部讲话流出：有人与我争夺人心！  " alt="习内部讲话流出：有人与我争夺人心！  "></a></p>
 <p><a href="https://github.com/uadjvg3894/djy/blob/master/gb/20/9/10/n12395352.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美官员：中共战狼外交和军事挑衅惹众怒    >-009fcc?logoWidth=1" title="美官员：中共战狼外交和军事挑衅惹众怒  " alt="美官员：中共战狼外交和军事挑衅惹众怒  "></a></p>
 <p><a href="https://github.com/uadjvg3894/djy/blob/master/gb/20/9/11/n12396620.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美大使批中共虚伪 “投书门”论战升级    >-009fcc?logoWidth=1" title="美大使批中共虚伪 “投书门”论战升级  " alt="美大使批中共虚伪 “投书门”论战升级  "></a></p>
-<p><a href="https://github.com/uadjvg3894/ntdtv/blob/master/gb/2020/09/11/a102938280.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习内部讲话流出：有人与我争夺人心！     >-009fcc?logoWidth=1" title="习内部讲话流出：有人与我争夺人心！  " alt="习内部讲话流出：有人与我争夺人心！  "></a></p>
-<p><a href="https://github.com/uadjvg3894/ntdtv/blob/master/gb/2020/09/11/a102938249.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/隋志：万事莫如退党急 贻误机缘悔不及    >-009fcc?logoWidth=1" title="隋志：万事莫如退党急 贻误机缘悔不及  " alt="隋志：万事莫如退党急 贻误机缘悔不及  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -258,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://uadjvg3894.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?hiamk">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?llxjl">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?txure">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?sltga">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -304,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?zguyp">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?xripn">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?yxxmb">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?urcut">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -484,8 +485,8 @@
 </strong></p>
 <div align="center">
 <hr>
-<p><strong><a href="https://github.com/uadjvg3894/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uadjvg3894/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/uadjvg3894/www/master/index.html?b">高速版平台</a></strong></p>
-<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uadjvg3894/www/blob/master/README.md?n#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/ttktt" title="分享本平台"></img>
+<p><strong><a href="https://github.com/uadjvg3894/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uadjvg3894/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/uadjvg3894/www/master/index.html?w">高速版平台</a></strong></p>
+<h4><h4>手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uadjvg3894/www/blob/master/README.md?w#1<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/rnnnn" title="分享本平台"></img>
 </div>
-<div align="center">短网址: <a href="https://git.io/7qqqq">git.io/7qqqq</a></div>
+<div align="center">短网址: <a href="https://git.io/g8888">git.io/g8888</a></div>
 
