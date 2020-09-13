@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qbzpkf3224/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qbzpkf3224/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/s6666">git.io/s6666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/x99">x.co/x99</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/eaaaa">git.io/eaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/qaa">x.co/qaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -38,7 +38,6 @@
 <p><a href="https://github.com/qbzpkf3224/djy/blob/master/gb/20/9/12/n12398262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平提“内循环” 官场民间均质疑     >-009fcc?logoWidth=1" title="习近平提“内循环” 官场民间均质疑  " alt="习近平提“内循环” 官场民间均质疑  "></a></p>
 <p><a href="https://github.com/qbzpkf3224/djy/blob/master/gb/20/9/12/n12399380.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《花木兰》遭抵制潮 大陆首映日票房惨淡   >-009fcc?logoWidth=1" title="《花木兰》遭抵制潮 大陆首映日票房惨淡  " alt="《花木兰》遭抵制潮 大陆首映日票房惨淡  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/qbzpkf3224/djy/blob/master/gb/20/9/13/n12399703.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/章天亮：共产贪官多色情狂 看美国左派如何？ >-009fcc?logoWidth=1" title="章天亮：共产贪官多色情狂 看美国左派如何？  " alt="章天亮：共产贪官多色情狂 看美国左派如何？  "></a></p>
 <p><a href="https://github.com/qbzpkf3224/ntdtv/blob/master/gb/2020/09/12/a102939071.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“战狼外长”东盟受挫 越南外长给王毅难堪  >-009fcc?logoWidth=1" title="“战狼外长”东盟受挫 越南外长给王毅难堪  " alt="“战狼外长”东盟受挫 越南外长给王毅难堪  "></a></p>
 <p><a href="https://github.com/qbzpkf3224/ntdtv/blob/master/gb/2020/09/12/a102939022.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓小平给红二代三指示 习只做到一个     >-009fcc?logoWidth=1" title="邓小平给红二代三指示 习只做到一个  " alt="邓小平给红二代三指示 习只做到一个  "></a></p>
 <p><a href="https://github.com/qbzpkf3224/djy/blob/master/gb/20/9/12/n12399363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亲共惹祸 逾88万人连署吁美国逮捕文在寅  >-009fcc?logoWidth=1" title="亲共惹祸 逾88万人连署吁美国逮捕文在寅  " alt="亲共惹祸 逾88万人连署吁美国逮捕文在寅  "></a></p>
@@ -260,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://qbzpkf3224.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?bmanx">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ipzeu">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ztdhx">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?mxtjp">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?bjgyh">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?tpthy">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?bmpxr">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?qsogp">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,10 +485,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/qbzpkf3224/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qbzpkf3224/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qbzpkf3224/www/master/index.html?j">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qbzpkf3224/www/blob/master/README.md?w#1<br>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qbzpkf3224/www/blob/master/README.md?d%231" title="分享本平台"></img>
-<br><a href="https://git.io/s6666">https://git.io/s6666</a>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/p2222" title="分享本平台"></img>
-<br><a href="https://is.gd/p2222">https://is.gd/p2222</a>
+<p><strong><a href="https://github.com/qbzpkf3224/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qbzpkf3224/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qbzpkf3224/www/master/index.html?v">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qbzpkf3224/www/blob/master/README.md?i#1<br>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qbzpkf3224/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<br><a href="https://git.io/eaaaa">https://git.io/eaaaa</a>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/scccc" title="分享本平台"></img>
+<br><a href="https://is.gd/scccc">https://is.gd/scccc</a>
 </div>
