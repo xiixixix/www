@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gmcdso3109/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gmcdso3109/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/63333">git.io/63333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aea">x.co/aea</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/72222">git.io/72222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/hhii">x.co/hhii</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/gmcdso3109/ntdtv/blob/master/gb/2020/09/13/a102939739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/九一一改变世界 美誓言永不忘记       >-009fcc?logoWidth=1" title="九一一改变世界 美誓言永不忘记  " alt="九一一改变世界 美誓言永不忘记  "></a></p>
 <p><a href="https://github.com/gmcdso3109/ntdtv/blob/master/gb/2020/09/13/a102939669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞：不少红二代反思“我们愧对人民”    >-009fcc?logoWidth=1" title="蔡霞：不少红二代反思“我们愧对人民”  " alt="蔡霞：不少红二代反思“我们愧对人民”  "></a></p>
 <p><a href="https://github.com/gmcdso3109/ntdtv/blob/master/gb/2020/09/13/a102939667.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：习近平内外交困  “贴心人”火上浇油 >-009fcc?logoWidth=1" title="分析：习近平内外交困  “贴心人”火上浇油  " alt="分析：习近平内外交困  “贴心人”火上浇油  "></a></p>
 <p><a href="https://github.com/gmcdso3109/ntdtv/blob/master/gb/2020/09/13/a102939596.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海人人自危 传数万亿海外资产无人敢认领 >-009fcc?logoWidth=1" title="中南海人人自危 传数万亿海外资产无人敢认领  " alt="中南海人人自危 传数万亿海外资产无人敢认领  "></a></p>
 <p><a href="https://github.com/gmcdso3109/ntdtv/blob/master/gb/2020/09/13/a102939599.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暂不安排习近平访日 菅义伟称防疫优先    >-009fcc?logoWidth=1" title="暂不安排习近平访日 菅义伟称防疫优先  " alt="暂不安排习近平访日 菅义伟称防疫优先  "></a></p>
 <p><a href="https://github.com/gmcdso3109/ntdtv/blob/master/gb/2020/09/13/a102939566.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共航天再出事 “吉林一号”高分02C发射失>-009fcc?logoWidth=1" title="中共航天再出事 “吉林一号”高分02C发射失败(视频)  " alt="中共航天再出事 “吉林一号”高分02C发射失败(视频)  "></a></p>
-<p><a href="https://github.com/gmcdso3109/ntdtv/blob/master/gb/2020/09/13/a102939536.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/九一三事件49周年 林彪谋杀毛泽东真相揭秘 >-009fcc?logoWidth=1" title="九一三事件49周年 林彪谋杀毛泽东真相揭秘  " alt="九一三事件49周年 林彪谋杀毛泽东真相揭秘  "></a></p>
 <p><a href="https://github.com/gmcdso3109/ntdtv/blob/master/gb/2020/09/13/a102939709.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/热带风暴莎莉增强 逼近墨西哥湾 沿岸戒备  >-009fcc?logoWidth=1" title="热带风暴莎莉增强 逼近墨西哥湾 沿岸戒备  " alt="热带风暴莎莉增强 逼近墨西哥湾 沿岸戒备  "></a></p>
 <p><a href="https://github.com/gmcdso3109/ntdtv/blob/master/gb/2020/09/13/a102939650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军心涣散 南海危急 习近平发文强调打仗   >-009fcc?logoWidth=1" title="军心涣散 南海危急 习近平发文强调打仗  " alt="军心涣散 南海危急 习近平发文强调打仗  "></a></p>
 <p><a href="https://github.com/gmcdso3109/ntdtv/blob/master/gb/2020/09/13/a102939642.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁弓夷：中共高官海外资产不敢认领      >-009fcc?logoWidth=1" title="袁弓夷：中共高官海外资产不敢认领  " alt="袁弓夷：中共高官海外资产不敢认领  "></a></p>
 <p><a href="https://github.com/gmcdso3109/ntdtv/blob/master/gb/2020/09/13/a102939592.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/想去欧洲 希腊离岛难民与警方爆发冲突    >-009fcc?logoWidth=1" title="想去欧洲 希腊离岛难民与警方爆发冲突  " alt="想去欧洲 希腊离岛难民与警方爆发冲突  "></a></p>
-<p><a href="https://github.com/gmcdso3109/ntdtv/blob/master/gb/2020/09/12/a102939142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/解密：美12名军人被秘密送往外星人星球生活 >-009fcc?logoWidth=1" title="解密：美12名军人被秘密送往外星人星球生活  " alt="解密：美12名军人被秘密送往外星人星球生活  "></a></p>
+<p><a href="https://github.com/gmcdso3109/ntdtv/blob/master/gb/2020/09/13/a102939536.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/九一三事件49周年 林彪谋杀毛泽东真相揭秘 >-009fcc?logoWidth=1" title="九一三事件49周年 林彪谋杀毛泽东真相揭秘  " alt="九一三事件49周年 林彪谋杀毛泽东真相揭秘  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gmcdso3109/djy/blob/master/gb/20/9/11/n12396481.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国经济奇迹—建立在恶之上的竞争力（中）  >-009fcc?logoWidth=1" title="中国经济奇迹—建立在恶之上的竞争力（中）  " alt="中国经济奇迹—建立在恶之上的竞争力（中）  "></a></p>
 <p><a href="https://github.com/gmcdso3109/djy/blob/master/gb/20/9/12/n12399550.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共四处树敌 美学者：在国际处境急剧恶化  >-009fcc?logoWidth=1" title="中共四处树敌 美学者：在国际处境急剧恶化  " alt="中共四处树敌 美学者：在国际处境急剧恶化  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/gmcdso3109/djy/blob/master/gb/20/9/12/n12399303.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：美军B--1B快速回应中共台海挑衅   >-009fcc?logoWidth=1" title="沈舟：美军B-1B快速回应中共台海挑衅  " alt="沈舟：美军B-1B快速回应中共台海挑衅  "></a></p>
 <p><a href="https://github.com/gmcdso3109/djy/blob/master/gb/20/9/12/n12398262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平提“内循环” 官场民间均质疑     >-009fcc?logoWidth=1" title="习近平提“内循环” 官场民间均质疑  " alt="习近平提“内循环” 官场民间均质疑  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/gmcdso3109/ntdtv/blob/master/gb/2020/09/12/a102939142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/解密：美12名军人被秘密送往外星人星球生活 >-009fcc?logoWidth=1" title="解密：美12名军人被秘密送往外星人星球生活  " alt="解密：美12名军人被秘密送往外星人星球生活  "></a></p>
 <p><a href="https://github.com/gmcdso3109/ntdtv/blob/master/gb/2020/09/13/a102939562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强案 可能引发内部造反？红二代的“原罪”>-009fcc?logoWidth=1" title="任志强案 可能引发内部造反？红二代的“原罪”  " alt="任志强案 可能引发内部造反？红二代的“原罪”  "></a></p>
 <p><a href="https://github.com/gmcdso3109/ntdtv/blob/master/gb/2020/09/13/a102939698.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话：我党驻外人员有个共同外号叫“二>-009fcc?logoWidth=1" title="外交部大实话：我党驻外人员有个共同外号叫“二狼”  " alt="外交部大实话：我党驻外人员有个共同外号叫“二狼”  "></a></p>
 <p><a href="https://github.com/gmcdso3109/djy/blob/master/gb/20/9/12/n12399363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亲共惹祸 逾88万人连署吁美国逮捕文在寅  >-009fcc?logoWidth=1" title="亲共惹祸 逾88万人连署吁美国逮捕文在寅  " alt="亲共惹祸 逾88万人连署吁美国逮捕文在寅  "></a></p>
@@ -260,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://gmcdso3109.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?uszda">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?gujtt">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?iiezh">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?zedus">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ervfd">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?vgwva">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?fekfr">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ahdro">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,10 +487,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/gmcdso3109/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gmcdso3109/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gmcdso3109/www/master/index.html?l">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gmcdso3109/www/blob/master/README.md?c#1<br>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gmcdso3109/www/blob/master/README.md?c%231" title="分享本平台"></img>
-<br><a href="https://git.io/63333">https://git.io/63333</a>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/ryyyy" title="分享本平台"></img>
-<br><a href="https://is.gd/ryyyy">https://is.gd/ryyyy</a>
+<p><strong><a href="https://github.com/gmcdso3109/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gmcdso3109/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gmcdso3109/www/master/index.html?n">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gmcdso3109/www/blob/master/README.md?l#1<br>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gmcdso3109/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<br><a href="https://git.io/72222">https://git.io/72222</a>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/u5555" title="分享本平台"></img>
+<br><a href="https://is.gd/u5555">https://is.gd/u5555</a>
 </div>
