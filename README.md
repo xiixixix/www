@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gmcdso3109/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gmcdso3109/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/biiii">git.io/biiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/xdd">x.co/xdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/6mmmm">git.io/6mmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp5">x.co/pp5</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -48,7 +48,7 @@
 <p><a href="https://github.com/gmcdso3109/djy/blob/master/gb/20/9/12/n12399424.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共监控黑科技泄密 旷视科技蚂蚁集团紧急回应>-009fcc?logoWidth=1" title="中共监控黑科技泄密 旷视科技蚂蚁集团紧急回应  " alt="中共监控黑科技泄密 旷视科技蚂蚁集团紧急回应  "></a></p>
 <p><a href="https://github.com/gmcdso3109/djy/blob/master/gb/20/9/12/n12398012.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普布反共大阵 中共垮台三部曲       >-009fcc?logoWidth=1" title="川普布反共大阵 中共垮台三部曲  " alt="川普布反共大阵 中共垮台三部曲  "></a></p>
 <p><a href="https://github.com/gmcdso3109/ntdtv/blob/master/gb/2020/09/13/a102939690.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/霍比族“5万年前预言”大揭密！人类大淘汰已来>-009fcc?logoWidth=1" title="霍比族“5万年前预言”大揭密！人类大淘汰已来临，获救方法大公开！  " alt="霍比族“5万年前预言”大揭密！人类大淘汰已来临，获救方法大公开！  "></a></p>
-<p><a href="https://github.com/gmcdso3109/ntdtv/blob/master/gb/2020/09/12/a102939075.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平训话尴尬一幕 现场专家“装听”    >-009fcc?logoWidth=1" title="习近平训话尴尬一幕 现场专家“装听”  " alt="习近平训话尴尬一幕 现场专家“装听”  "></a></p>
+<p><a href="https://github.com/gmcdso3109/ntdtv/blob/master/gb/2020/09/13/a102939520.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：美国西部山火不断，惊传土共超限战？ >-009fcc?logoWidth=1" title="陈破空：美国西部山火不断，惊传土共超限战？  " alt="陈破空：美国西部山火不断，惊传土共超限战？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://gmcdso3109.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ufqjf">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?cress">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?uicib">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?qllit">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?bnbux">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ngnhx">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ukpme">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ngcms">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,10 +486,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/gmcdso3109/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gmcdso3109/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gmcdso3109/www/master/index.html?r">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gmcdso3109/www/blob/master/README.md?e#1<br>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gmcdso3109/www/blob/master/README.md?y%231" title="分享本平台"></img>
-<br><a href="https://git.io/biiii">https://git.io/biiii</a>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/yzzzz" title="分享本平台"></img>
-<br><a href="https://is.gd/yzzzz">https://is.gd/yzzzz</a>
+<p><strong><a href="https://github.com/gmcdso3109/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gmcdso3109/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gmcdso3109/www/master/index.html?e">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gmcdso3109/www/blob/master/README.md?h#1<br>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gmcdso3109/www/blob/master/README.md?b%231" title="分享本平台"></img>
+<br><a href="https://git.io/6mmmm">https://git.io/6mmmm</a>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/nnnnc" title="分享本平台"></img>
+<br><a href="https://is.gd/nnnnc">https://is.gd/nnnnc</a>
 </div>
