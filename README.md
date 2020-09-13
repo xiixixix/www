@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gmcdso3109/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gmcdso3109/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qffff">git.io/qffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pgp">x.co/pgp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ubbbb">git.io/ubbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u88">x.co/u88</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -34,13 +34,14 @@
 <p><a href="https://github.com/gmcdso3109/djy/blob/master/gb/20/9/12/n12399257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拍花木兰是否用奴工？美议员要迪士尼解释   >-009fcc?logoWidth=1" title="拍花木兰是否用奴工？美议员要迪士尼解释  " alt="拍花木兰是否用奴工？美议员要迪士尼解释  "></a></p>
 <p><a href="https://github.com/gmcdso3109/djy/blob/master/gb/20/9/12/n12399126.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞曝不少红二代反思和质疑中共政权     >-009fcc?logoWidth=1" title="蔡霞曝不少红二代反思和质疑中共政权  " alt="蔡霞曝不少红二代反思和质疑中共政权  "></a></p>
 <p><a href="https://github.com/gmcdso3109/djy/blob/master/gb/20/9/12/n12398885.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新州：中共把医院变成残害善良的鬼魅之地   >-009fcc?logoWidth=1" title="新州：中共把医院变成残害善良的鬼魅之地  " alt="新州：中共把医院变成残害善良的鬼魅之地  "></a></p>
-<p><a href="https://github.com/gmcdso3109/djy/blob/master/gb/20/9/12/n12399309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共研究脑控多年 民众或成实验对象（三）  >-009fcc?logoWidth=1" title="中共研究脑控多年 民众或成实验对象（三）  " alt="中共研究脑控多年 民众或成实验对象（三）  "></a></p>
+<p><a href="https://github.com/gmcdso3109/djy/blob/master/gb/20/9/13/n12400086.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东盟外长会议王毅再叫嚣 遭越南外长打脸   >-009fcc?logoWidth=1" title="东盟外长会议王毅再叫嚣 遭越南外长打脸  " alt="东盟外长会议王毅再叫嚣 遭越南外长打脸  "></a></p>
 <p><a href="https://github.com/gmcdso3109/djy/blob/master/gb/20/9/13/n12399837.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强出庭 状态不错？           >-009fcc?logoWidth=1" title="任志强出庭 状态不错？  " alt="任志强出庭 状态不错？  "></a></p>
+<p><a href="https://github.com/gmcdso3109/djy/blob/master/gb/20/9/12/n12399309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共研究脑控多年 民众或成实验对象（三）  >-009fcc?logoWidth=1" title="中共研究脑控多年 民众或成实验对象（三）  " alt="中共研究脑控多年 民众或成实验对象（三）  "></a></p>
 <p><a href="https://github.com/gmcdso3109/djy/blob/master/gb/20/9/12/n12399303.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：美军B--1B快速回应中共台海挑衅   >-009fcc?logoWidth=1" title="沈舟：美军B-1B快速回应中共台海挑衅  " alt="沈舟：美军B-1B快速回应中共台海挑衅  "></a></p>
-<p><a href="https://github.com/gmcdso3109/djy/blob/master/gb/20/9/12/n12398262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平提“内循环” 官场民间均质疑     >-009fcc?logoWidth=1" title="习近平提“内循环” 官场民间均质疑  " alt="习近平提“内循环” 官场民间均质疑  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gmcdso3109/ntdtv/blob/master/gb/2020/09/12/a102939142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/解密：美12名军人被秘密送往外星人星球生活 >-009fcc?logoWidth=1" title="解密：美12名军人被秘密送往外星人星球生活  " alt="解密：美12名军人被秘密送往外星人星球生活  "></a></p>
 <p><a href="https://github.com/gmcdso3109/ntdtv/blob/master/gb/2020/09/13/a102939562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强案 可能引发内部造反？红二代的“原罪”>-009fcc?logoWidth=1" title="任志强案 可能引发内部造反？红二代的“原罪”  " alt="任志强案 可能引发内部造反？红二代的“原罪”  "></a></p>
+<p><a href="https://github.com/gmcdso3109/djy/blob/master/gb/20/9/12/n12398262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平提“内循环” 官场民间均质疑     >-009fcc?logoWidth=1" title="习近平提“内循环” 官场民间均质疑  " alt="习近平提“内循环” 官场民间均质疑  "></a></p>
 <p><a href="https://github.com/gmcdso3109/ntdtv/blob/master/gb/2020/09/13/a102939706.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/【时事小品 】密审任志强          >-009fcc?logoWidth=1" title="【时事小品 】密审任志强  " alt="【时事小品 】密审任志强  "></a></p>
 <p><a href="https://github.com/gmcdso3109/djy/blob/master/gb/20/9/12/n12399363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亲共惹祸 逾88万人连署吁美国逮捕文在寅  >-009fcc?logoWidth=1" title="亲共惹祸 逾88万人连署吁美国逮捕文在寅  " alt="亲共惹祸 逾88万人连署吁美国逮捕文在寅  "></a></p>
 <p><a href="https://github.com/gmcdso3109/djy/blob/master/gb/20/9/12/n12398927.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/封锁防疫从错误转变为犯罪          >-009fcc?logoWidth=1" title="封锁防疫从错误转变为犯罪  " alt="封锁防疫从错误转变为犯罪  "></a></p>
@@ -260,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://gmcdso3109.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?rcljz">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?kjftv">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?vpqll">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?wufgb">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?pddop">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?xhref">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?vqmjj">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?dlpop">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,9 +488,9 @@
 <hr>
 <div align="center">
 <p><strong><a href="https://github.com/gmcdso3109/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gmcdso3109/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gmcdso3109/www/master/index.html?h">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gmcdso3109/www/blob/master/README.md?b#1<br>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gmcdso3109/www/blob/master/README.md?g%231" title="分享本平台"></img>
-<br><a href="https://git.io/qffff">https://git.io/qffff</a>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/ppepp" title="分享本平台"></img>
-<br><a href="https://is.gd/ppepp">https://is.gd/ppepp</a>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gmcdso3109/www/blob/master/README.md?c#1<br>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/gmcdso3109/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<br><a href="https://git.io/ubbbb">https://git.io/ubbbb</a>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/uuuuz" title="分享本平台"></img>
+<br><a href="https://is.gd/uuuuz">https://is.gd/uuuuz</a>
 </div>
