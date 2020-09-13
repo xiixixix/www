@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qbzpkf3224/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qbzpkf3224/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/xjjjj">git.io/xjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/eaa">x.co/eaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rcccc">git.io/rcccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3555">x.co/3555</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,15 +39,15 @@
 <p><a href="https://github.com/qbzpkf3224/djy/blob/master/gb/20/9/12/n12398018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：微博和微信删美驻华使馆文章 凭啥？  >-009fcc?logoWidth=1" title="田云：微博和微信删美驻华使馆文章 凭啥？  " alt="田云：微博和微信删美驻华使馆文章 凭啥？  "></a></p>
 <p><a href="https://github.com/qbzpkf3224/djy/blob/master/gb/20/9/11/n12397615.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：专家听习近平训话假装记笔记的尴尬   >-009fcc?logoWidth=1" title="钟原：专家听习近平训话假装记笔记的尴尬  " alt="钟原：专家听习近平训话假装记笔记的尴尬  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/qbzpkf3224/ntdtv/blob/master/gb/2020/09/12/a102939436.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境 印日军事协议这一点最要中共的命  >-009fcc?logoWidth=1" title="中印边境 印日军事协议这一点最要中共的命  " alt="中印边境 印日军事协议这一点最要中共的命  "></a></p>
+<p><a href="https://github.com/qbzpkf3224/ntdtv/blob/master/gb/2020/09/12/a102938916.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥东盟发声 强烈谴责中共(声明全文)  >-009fcc?logoWidth=1" title="蓬佩奥东盟发声 强烈谴责中共(声明全文)  " alt="蓬佩奥东盟发声 强烈谴责中共(声明全文)  "></a></p>
 <p><a href="https://github.com/qbzpkf3224/ntdtv/blob/master/gb/2020/09/12/a102938915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强受审细节曝光 拒绝认罪坚持自辩    >-009fcc?logoWidth=1" title="任志强受审细节曝光 拒绝认罪坚持自辩  " alt="任志强受审细节曝光 拒绝认罪坚持自辩  "></a></p>
-<p><a href="https://github.com/qbzpkf3224/ntdtv/blob/master/gb/2020/09/12/a102939022.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓小平给红二代三指示 习只做到一个     >-009fcc?logoWidth=1" title="邓小平给红二代三指示 习只做到一个  " alt="邓小平给红二代三指示 习只做到一个  "></a></p>
-<p><a href="https://github.com/qbzpkf3224/ntdtv/blob/master/gb/2020/09/12/a102938866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:中共含泪进坑 美大使戳痛党媒 背后有高>-009fcc?logoWidth=1" title="文昭:中共含泪进坑 美大使戳痛党媒 背后有高人  " alt="文昭:中共含泪进坑 美大使戳痛党媒 背后有高人  "></a></p>
 <p><a href="https://github.com/qbzpkf3224/djy/blob/master/gb/20/9/12/n12398864.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/频出事故 “吉林一号”高分02C卫星发射失败>-009fcc?logoWidth=1" title="频出事故 “吉林一号”高分02C卫星发射失败  " alt="频出事故 “吉林一号”高分02C卫星发射失败  "></a></p>
 <p><a href="https://github.com/qbzpkf3224/djy/blob/master/gb/20/9/12/n12398252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020年的P2P？ 大陆多省长租公寓爆雷 >-009fcc?logoWidth=1" title="2020年的P2P？ 大陆多省长租公寓爆雷  " alt="2020年的P2P？ 大陆多省长租公寓爆雷  "></a></p>
-<p><a href="https://github.com/qbzpkf3224/ntdtv/blob/master/gb/2020/09/12/a102938998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平再遇麻烦 欧洲对北京达成新共识    >-009fcc?logoWidth=1" title="习近平再遇麻烦 欧洲对北京达成新共识  " alt="习近平再遇麻烦 欧洲对北京达成新共识  "></a></p>
+<p><a href="https://github.com/qbzpkf3224/ntdtv/blob/master/gb/2020/09/12/a102939022.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓小平给红二代三指示 习只做到一个     >-009fcc?logoWidth=1" title="邓小平给红二代三指示 习只做到一个  " alt="邓小平给红二代三指示 习只做到一个  "></a></p>
 <p><a href="https://github.com/qbzpkf3224/djy/blob/master/gb/20/9/12/n12399257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拍花木兰是否用奴工？美议员要迪士尼解释   >-009fcc?logoWidth=1" title="拍花木兰是否用奴工？美议员要迪士尼解释  " alt="拍花木兰是否用奴工？美议员要迪士尼解释  "></a></p>
 <p><a href="https://github.com/qbzpkf3224/djy/blob/master/gb/20/9/12/n12398455.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谭军起诉武汉当局隐瞒疫情 再向高院提诉状  >-009fcc?logoWidth=1" title="谭军起诉武汉当局隐瞒疫情 再向高院提诉状  " alt="谭军起诉武汉当局隐瞒疫情 再向高院提诉状  "></a></p>
-<p><a href="https://github.com/qbzpkf3224/ntdtv/blob/master/gb/2020/09/12/a102938902.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“红二代”饭局投下震憾弹 蔡霞谈与中共脱钩 >-009fcc?logoWidth=1" title="“红二代”饭局投下震憾弹 蔡霞谈与中共脱钩  " alt="“红二代”饭局投下震憾弹 蔡霞谈与中共脱钩  "></a></p>
+<p><a href="https://github.com/qbzpkf3224/ntdtv/blob/master/gb/2020/09/12/a102938998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平再遇麻烦 欧洲对北京达成新共识    >-009fcc?logoWidth=1" title="习近平再遇麻烦 欧洲对北京达成新共识  " alt="习近平再遇麻烦 欧洲对北京达成新共识  "></a></p>
 <p><a href="https://github.com/qbzpkf3224/ntdtv/blob/master/gb/2020/09/12/a102939064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吹风机保养全身！这样吹增强免疫力 改善慢性病>-009fcc?logoWidth=1" title="吹风机保养全身！这样吹增强免疫力 改善慢性病  " alt="吹风机保养全身！这样吹增强免疫力 改善慢性病  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://qbzpkf3224.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?bxdxr">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?vuhye">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?wueag">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?cukqf">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?opvkq">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?afpfo">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?lvhhj">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?qrvoo">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,10 +486,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/qbzpkf3224/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qbzpkf3224/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qbzpkf3224/www/master/index.html?t">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qbzpkf3224/www/blob/master/README.md?a#1<br>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qbzpkf3224/www/blob/master/README.md?p%231" title="分享本平台"></img>
-<br><a href="https://git.io/xjjjj">https://git.io/xjjjj</a>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/urrrr" title="分享本平台"></img>
-<br><a href="https://is.gd/urrrr">https://is.gd/urrrr</a>
+<p><strong><a href="https://github.com/qbzpkf3224/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qbzpkf3224/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qbzpkf3224/www/master/index.html?j">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qbzpkf3224/www/blob/master/README.md?b#1<br>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/qbzpkf3224/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<br><a href="https://git.io/rcccc">https://git.io/rcccc</a>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/ssssq" title="分享本平台"></img>
+<br><a href="https://is.gd/ssssq">https://is.gd/ssssq</a>
 </div>
