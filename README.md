@@ -10,17 +10,17 @@
 <div align="center">
 <a target="_blank" href="https://github.com/saipau3170/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/saipau3170/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/62222">git.io/62222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9996">x.co/9996</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/s7777">git.io/s7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp7">x.co/pp7</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/14/a102940082.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/嘲讽习近平热干面？ 中国公厕惊见“特色小吃”>-009fcc?logoWidth=1" title="嘲讽习近平热干面？ 中国公厕惊见“特色小吃”(视频)  " alt="嘲讽习近平热干面？ 中国公厕惊见“特色小吃”(视频)  "></a></p>
 <p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/13/a102939972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/共军专家唐娟获保离监 检方要求再次拘押   >-009fcc?logoWidth=1" title="共军专家唐娟获保离监 检方要求再次拘押  " alt="共军专家唐娟获保离监 检方要求再次拘押  "></a></p>
 <p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/13/a102939939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家曝“先发制人”细节 :印军战术让共军气急>-009fcc?logoWidth=1" title="专家曝“先发制人”细节 :印军战术让共军气急败坏  " alt="专家曝“先发制人”细节 :印军战术让共军气急败坏  "></a></p>
 <p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/13/a102939927.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阎丽梦将公布研究报告 证中共病毒源自实验室 >-009fcc?logoWidth=1" title="阎丽梦将公布研究报告 证中共病毒源自实验室  " alt="阎丽梦将公布研究报告 证中共病毒源自实验室  "></a></p>
 <p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/13/a102939815.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传数万亿海外资产 中共高官无人敢认领    >-009fcc?logoWidth=1" title="传数万亿海外资产 中共高官无人敢认领  " alt="传数万亿海外资产 中共高官无人敢认领  "></a></p>
 <p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/13/a102939739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/九一一改变世界 美誓言永不忘记       >-009fcc?logoWidth=1" title="九一一改变世界 美誓言永不忘记  " alt="九一一改变世界 美誓言永不忘记  "></a></p>
-<p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/13/a102939669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞：不少红二代反思“我们愧对人民”    >-009fcc?logoWidth=1" title="蔡霞：不少红二代反思“我们愧对人民”  " alt="蔡霞：不少红二代反思“我们愧对人民”  "></a></p>
-<p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/14/a102940082.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/嘲讽习近平热干面？ 中国公厕惊见“特色小吃”>-009fcc?logoWidth=1" title="嘲讽习近平热干面？ 中国公厕惊见“特色小吃”(视频)  " alt="嘲讽习近平热干面？ 中国公厕惊见“特色小吃”(视频)  "></a></p>
+<p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/14/a102940089.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许多中国留学生收到美国的一封信，如坠冰窟  >-009fcc?logoWidth=1" title="许多中国留学生收到美国的一封信，如坠冰窟  " alt="许多中国留学生收到美国的一封信，如坠冰窟  "></a></p>
 <p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/13/a102940012.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共欲阻TikTok出售 避免“显得软弱”>-009fcc?logoWidth=1" title="传中共欲阻TikTok出售 避免“显得软弱”  " alt="传中共欲阻TikTok出售 避免“显得软弱”  "></a></p>
 <p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/13/a102939979.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拒进口德国猪肉 中国猪肉价格继续上涨    >-009fcc?logoWidth=1" title="拒进口德国猪肉 中国猪肉价格继续上涨  " alt="拒进口德国猪肉 中国猪肉价格继续上涨  "></a></p>
 <p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/13/a102940014.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/对手退选 共和党人拿下乔州众议员席位    >-009fcc?logoWidth=1" title="对手退选 共和党人拿下乔州众议员席位  " alt="对手退选 共和党人拿下乔州众议员席位  "></a></p>
@@ -40,6 +40,7 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/12/a102939142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/解密：美12名军人被秘密送往外星人星球生活 >-009fcc?logoWidth=1" title="解密：美12名军人被秘密送往外星人星球生活  " alt="解密：美12名军人被秘密送往外星人星球生活  "></a></p>
 <p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/13/a102939562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强案 可能引发内部造反？红二代的“原罪”>-009fcc?logoWidth=1" title="任志强案 可能引发内部造反？红二代的“原罪”  " alt="任志强案 可能引发内部造反？红二代的“原罪”  "></a></p>
+<p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/13/a102939669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞：不少红二代反思“我们愧对人民”    >-009fcc?logoWidth=1" title="蔡霞：不少红二代反思“我们愧对人民”  " alt="蔡霞：不少红二代反思“我们愧对人民”  "></a></p>
 <p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/13/a102939667.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：习近平内外交困  “贴心人”火上浇油 >-009fcc?logoWidth=1" title="分析：习近平内外交困  “贴心人”火上浇油  " alt="分析：习近平内外交困  “贴心人”火上浇油  "></a></p>
 <p><a href="https://github.com/saipau3170/djy/blob/master/gb/20/9/13/n12399885.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆一借贷平台爆雷%3F%3F数十亿元资金被“套牢”>-009fcc?logoWidth=1" title="大陆一借贷平台爆雷??数十亿元资金被“套牢”  " alt="大陆一借贷平台爆雷??数十亿元资金被“套牢”  "></a></p>
 <p><a href="https://github.com/saipau3170/djy/blob/master/gb/20/9/8/n12387615.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哪些中国私企成中共军企 五角大楼报告揭秘  >-009fcc?logoWidth=1" title="哪些中国私企成中共军企 五角大楼报告揭秘  " alt="哪些中国私企成中共军企 五角大楼报告揭秘  "></a></p>
@@ -259,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://saipau3170.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?guygf">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?indph">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?qummx">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?yuyvw">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ezntx">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ulgxu">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?wunsj">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ifken">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,10 +486,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/saipau3170/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/saipau3170/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/saipau3170/www/master/index.html?l">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/saipau3170/www/blob/master/README.md?l#1<br>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/saipau3170/www/blob/master/README.md?c%231" title="分享本平台"></img>
-<br><a href="https://git.io/62222">https://git.io/62222</a>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/zzfzz" title="分享本平台"></img>
-<br><a href="https://is.gd/zzfzz">https://is.gd/zzfzz</a>
+<p><strong><a href="https://github.com/saipau3170/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/saipau3170/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/saipau3170/www/master/index.html?f">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/saipau3170/www/blob/master/README.md?t#1<br>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/saipau3170/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<br><a href="https://git.io/s7777">https://git.io/s7777</a>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/nnenn" title="分享本平台"></img>
+<br><a href="https://is.gd/nnenn">https://is.gd/nnenn</a>
 </div>
