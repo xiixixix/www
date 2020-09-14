@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/opgoqe307/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/opgoqe307/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ezzzz">git.io/ezzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/cpp">x.co/cpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nrrrr">git.io/nrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3338">x.co/3338</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,18 +39,15 @@
 <p><a href="https://github.com/opgoqe307/djy/blob/master/gb/20/9/14/n12402352.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普政府高层罕见提疫情为“中共病毒”    >-009fcc?logoWidth=1" title="川普政府高层罕见提疫情为“中共病毒”  " alt="川普政府高层罕见提疫情为“中共病毒”  "></a></p>
 <p><a href="https://github.com/opgoqe307/djy/blob/master/gb/20/9/14/n12403045.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余茂春又遭逐出“族谱” 评：黔驴技穷    >-009fcc?logoWidth=1" title="余茂春又遭逐出“族谱” 评：黔驴技穷  " alt="余茂春又遭逐出“族谱” 评：黔驴技穷  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/opgoqe307/djy/blob/master/gb/20/9/14/n12401586.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙古两村官拒送子女返校 不参加中共会议  >-009fcc?logoWidth=1" title="内蒙古两村官拒送子女返校 不参加中共会议  " alt="内蒙古两村官拒送子女返校 不参加中共会议  "></a></p>
-<p><a href="https://github.com/opgoqe307/djy/blob/master/gb/20/9/14/n12401540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵立坚推特关注色情网站引嘲讽        >-009fcc?logoWidth=1" title="赵立坚推特关注色情网站引嘲讽  " alt="赵立坚推特关注色情网站引嘲讽  "></a></p>
 <p><a href="https://github.com/opgoqe307/ntdtv/blob/master/gb/2020/09/13/a102939536.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/九一三事件49周年 林彪谋杀毛泽东真相揭秘 >-009fcc?logoWidth=1" title="九一三事件49周年 林彪谋杀毛泽东真相揭秘  " alt="九一三事件49周年 林彪谋杀毛泽东真相揭秘  "></a></p>
-<p><a href="https://github.com/opgoqe307/djy/blob/master/gb/20/9/13/n12400625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普内华达集会 阐述第二任期任务目标    >-009fcc?logoWidth=1" title="川普内华达集会 阐述第二任期任务目标  " alt="川普内华达集会 阐述第二任期任务目标  "></a></p>
 <p><a href="https://github.com/opgoqe307/ntdtv/blob/master/gb/2020/09/14/a102940433.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/从川普停止资助1619项目说起       >-009fcc?logoWidth=1" title="从川普停止资助1619项目说起  " alt="从川普停止资助1619项目说起  "></a></p>
 <p><a href="https://github.com/opgoqe307/ntdtv/blob/master/gb/2020/09/14/a102940442.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平进了胡锡进王毅王沪宁包围圈！     >-009fcc?logoWidth=1" title="习近平进了胡锡进王毅王沪宁包围圈！  " alt="习近平进了胡锡进王毅王沪宁包围圈！  "></a></p>
-<p><a href="https://github.com/opgoqe307/djy/blob/master/gb/20/9/14/n12401845.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张慧东：京津冀为何此时签粮食互助协议    >-009fcc?logoWidth=1" title="张慧东：京津冀为何此时签粮食互助协议  " alt="张慧东：京津冀为何此时签粮食互助协议  "></a></p>
-<p><a href="https://github.com/opgoqe307/djy/blob/master/gb/20/9/14/n12401613.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/廖远：山东民兵肆意杀人 世人不能再麻木   >-009fcc?logoWidth=1" title="廖远：山东民兵肆意杀人 世人不能再麻木  " alt="廖远：山东民兵肆意杀人 世人不能再麻木  "></a></p>
+<p><a href="https://github.com/opgoqe307/djy/blob/master/gb/20/9/14/n12403408.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/云南瑞丽爆疫情 小区民众居家隔离      >-009fcc?logoWidth=1" title="云南瑞丽爆疫情 小区民众居家隔离  " alt="云南瑞丽爆疫情 小区民众居家隔离  "></a></p>
+<p><a href="https://github.com/opgoqe307/djy/blob/master/gb/20/9/14/n12402675.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/教师节送礼引热议 网民：应改为受贿节    >-009fcc?logoWidth=1" title="教师节送礼引热议 网民：应改为受贿节  " alt="教师节送礼引热议 网民：应改为受贿节  "></a></p>
 <p><a href="https://github.com/opgoqe307/ntdtv/blob/master/gb/2020/09/14/a102940383.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/婴儿学爬急坏宠物狗 小狗亲自做示范(视频) >-009fcc?logoWidth=1" title="婴儿学爬急坏宠物狗 小狗亲自做示范(视频)  " alt="婴儿学爬急坏宠物狗 小狗亲自做示范(视频)  "></a></p>
 <p><a href="https://github.com/opgoqe307/ntdtv/blob/master/gb/2020/09/14/a102940469.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒来自陨石%3F网络微博大V现惊人言论“毁灭人>-009fcc?logoWidth=1" title="病毒来自陨石?网络微博大V现惊人言论“毁灭人类”!  " alt="病毒来自陨石?网络微博大V现惊人言论“毁灭人类”!  "></a></p>
-<p><a href="https://github.com/opgoqe307/djy/blob/master/gb/20/9/14/n12401970.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/秦聿：口罩外交全败 疫苗外交翻盘？     >-009fcc?logoWidth=1" title="秦聿：口罩外交全败 疫苗外交翻盘？  " alt="秦聿：口罩外交全败 疫苗外交翻盘？  "></a></p>
-<p><a href="https://github.com/opgoqe307/djy/blob/master/gb/20/9/14/n12402530.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国驻华大使布兰斯塔德将于下月初卸任    >-009fcc?logoWidth=1" title="美国驻华大使布兰斯塔德将于下月初卸任  " alt="美国驻华大使布兰斯塔德将于下月初卸任  "></a></p>
+<p><a href="https://github.com/opgoqe307/djy/blob/master/gb/20/9/14/n12401845.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张慧东：京津冀为何此时签粮食互助协议    >-009fcc?logoWidth=1" title="张慧东：京津冀为何此时签粮食互助协议  " alt="张慧东：京津冀为何此时签粮食互助协议  "></a></p>
+<p><a href="https://github.com/opgoqe307/djy/blob/master/gb/20/9/14/n12403222.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战狼变色狼？刘晓明和华春莹相继出丑     >-009fcc?logoWidth=1" title="战狼变色狼？刘晓明和华春莹相继出丑  " alt="战狼变色狼？刘晓明和华春莹相继出丑  "></a></p>
 <p><a href="https://github.com/opgoqe307/ntdtv/blob/master/gb/2020/09/13/a102939927.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阎丽梦将公布研究报告 证中共病毒源自实验室 >-009fcc?logoWidth=1" title="阎丽梦将公布研究报告 证中共病毒源自实验室  " alt="阎丽梦将公布研究报告 证中共病毒源自实验室  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -263,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://opgoqe307.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?bgoer">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?jhgkf">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?oxrkz">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?taent">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -309,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?izlrg">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ocbwf">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?mfcxb">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?uqzta">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -489,10 +486,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/opgoqe307/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/opgoqe307/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/opgoqe307/www/master/index.html?r">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/opgoqe307/www/blob/master/README.md?e#1<br>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/opgoqe307/www/blob/master/README.md?y%231" title="分享本平台"></img>
-<br><a href="https://git.io/ezzzz">https://git.io/ezzzz</a>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/nyyyy" title="分享本平台"></img>
-<br><a href="https://is.gd/nyyyy">https://is.gd/nyyyy</a>
+<p><strong><a href="https://github.com/opgoqe307/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/opgoqe307/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/opgoqe307/www/master/index.html?m">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/opgoqe307/www/blob/master/README.md?k#1<br>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/opgoqe307/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<br><a href="https://git.io/nrrrr">https://git.io/nrrrr</a>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/yssss" title="分享本平台"></img>
+<br><a href="https://is.gd/yssss">https://is.gd/yssss</a>
 </div>
