@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/saipau3170/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/saipau3170/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/7gggg">git.io/7gggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa6">x.co/aa6</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/6tttt">git.io/6tttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp5">x.co/pp5</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/13/a102939815.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传数万亿海外资产 中共高官无人敢认领    >-009fcc?logoWidth=1" title="传数万亿海外资产 中共高官无人敢认领  " alt="传数万亿海外资产 中共高官无人敢认领  "></a></p>
 <p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/13/a102939739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/九一一改变世界 美誓言永不忘记       >-009fcc?logoWidth=1" title="九一一改变世界 美誓言永不忘记  " alt="九一一改变世界 美誓言永不忘记  "></a></p>
 <p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/13/a102939669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞：不少红二代反思“我们愧对人民”    >-009fcc?logoWidth=1" title="蔡霞：不少红二代反思“我们愧对人民”  " alt="蔡霞：不少红二代反思“我们愧对人民”  "></a></p>
+<p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/14/a102940082.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/嘲讽习近平热干面？ 中国公厕惊见“特色小吃”>-009fcc?logoWidth=1" title="嘲讽习近平热干面？ 中国公厕惊见“特色小吃”(视频)  " alt="嘲讽习近平热干面？ 中国公厕惊见“特色小吃”(视频)  "></a></p>
 <p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/13/a102940012.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共欲阻TikTok出售 避免“显得软弱”>-009fcc?logoWidth=1" title="传中共欲阻TikTok出售 避免“显得软弱”  " alt="传中共欲阻TikTok出售 避免“显得软弱”  "></a></p>
 <p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/13/a102939979.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拒进口德国猪肉 中国猪肉价格继续上涨    >-009fcc?logoWidth=1" title="拒进口德国猪肉 中国猪肉价格继续上涨  " alt="拒进口德国猪肉 中国猪肉价格继续上涨  "></a></p>
 <p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/13/a102940014.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/对手退选 共和党人拿下乔州众议员席位    >-009fcc?logoWidth=1" title="对手退选 共和党人拿下乔州众议员席位  " alt="对手退选 共和党人拿下乔州众议员席位  "></a></p>
 <p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/13/a102940017.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞：“红二代”反思并质疑中共体制     >-009fcc?logoWidth=1" title="蔡霞：“红二代”反思并质疑中共体制  " alt="蔡霞：“红二代”反思并质疑中共体制  "></a></p>
-<p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/13/a102939935.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《花木兰》风波仍持续 美国舆论痛批迪士尼  >-009fcc?logoWidth=1" title="《花木兰》风波仍持续 美国舆论痛批迪士尼  " alt="《花木兰》风波仍持续 美国舆论痛批迪士尼  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/saipau3170/djy/blob/master/gb/20/9/13/n12401217.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵立坚再次被曝关注色情账号惹议       >-009fcc?logoWidth=1" title="赵立坚再次被曝关注色情账号惹议  " alt="赵立坚再次被曝关注色情账号惹议  "></a></p>
 <p><a href="https://github.com/saipau3170/djy/blob/master/gb/20/9/13/n12401109.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一代奸相周恩来（上）            >-009fcc?logoWidth=1" title="一代奸相周恩来（上）  " alt="一代奸相周恩来（上）  "></a></p>
@@ -261,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://saipau3170.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?nngys">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?hwmyb">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?fyyrq">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?dwgrb">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?xorhl">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?dipul">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?mkygb">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?fdydp">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,10 +487,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/saipau3170/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/saipau3170/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/saipau3170/www/master/index.html?x">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/saipau3170/www/blob/master/README.md?j#1<br>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/saipau3170/www/blob/master/README.md?c%231" title="分享本平台"></img>
-<br><a href="https://git.io/7gggg">https://git.io/7gggg</a>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/rrrrz" title="分享本平台"></img>
-<br><a href="https://is.gd/rrrrz">https://is.gd/rrrrz</a>
+<p><strong><a href="https://github.com/saipau3170/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/saipau3170/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/saipau3170/www/master/index.html?t">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/saipau3170/www/blob/master/README.md?g#1<br>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/saipau3170/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<br><a href="https://git.io/6tttt">https://git.io/6tttt</a>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/zssss" title="分享本平台"></img>
+<br><a href="https://is.gd/zssss">https://is.gd/zssss</a>
 </div>
