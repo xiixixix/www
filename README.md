@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/saipau3170/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/saipau3170/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/666666">git.io/666666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa7">x.co/aa7</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ncccc">git.io/ncccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/npp">x.co/npp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,16 @@
 <p><a href="https://github.com/saipau3170/djy/blob/master/gb/20/9/13/n12400370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国加速科技脱钩 大陆科技产业或入寒冬   >-009fcc?logoWidth=1" title="美国加速科技脱钩 大陆科技产业或入寒冬  " alt="美国加速科技脱钩 大陆科技产业或入寒冬  "></a></p>
 <p><a href="https://github.com/saipau3170/djy/blob/master/gb/20/9/13/n12400746.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/太平洋海战系列 史上首次航母对战（下）   >-009fcc?logoWidth=1" title="太平洋海战系列 史上首次航母对战（下）  " alt="太平洋海战系列 史上首次航母对战（下）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/13/a102939698.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话：我党驻外人员有个共同外号叫“二>-009fcc?logoWidth=1" title="外交部大实话：我党驻外人员有个共同外号叫“二狼”  " alt="外交部大实话：我党驻外人员有个共同外号叫“二狼”  "></a></p>
-<p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/13/a102939566.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共航天再出事 “吉林一号”高分02C发射失>-009fcc?logoWidth=1" title="中共航天再出事 “吉林一号”高分02C发射失败(视频)  " alt="中共航天再出事 “吉林一号”高分02C发射失败(视频)  "></a></p>
-<p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/12/a102939360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/歌曲《推翻中共》登上苹果音乐下载榜首    >-009fcc?logoWidth=1" title="歌曲《推翻中共》登上苹果音乐下载榜首  " alt="歌曲《推翻中共》登上苹果音乐下载榜首  "></a></p>
+<p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/12/a102939142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/解密：美12名军人被秘密送往外星人星球生活 >-009fcc?logoWidth=1" title="解密：美12名军人被秘密送往外星人星球生活  " alt="解密：美12名军人被秘密送往外星人星球生活  "></a></p>
+<p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/13/a102939562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强案 可能引发内部造反？红二代的“原罪”>-009fcc?logoWidth=1" title="任志强案 可能引发内部造反？红二代的“原罪”  " alt="任志强案 可能引发内部造反？红二代的“原罪”  "></a></p>
+<p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/13/a102939809.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/ 一代奸相（上） 周恩来与光照帮      >-009fcc?logoWidth=1" title=" 一代奸相（上） 周恩来与光照帮  " alt=" 一代奸相（上） 周恩来与光照帮  "></a></p>
 <p><a href="https://github.com/saipau3170/djy/blob/master/gb/20/9/13/n12400555.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/说漏嘴？李开复称蚂蚁金服提供人脸数据    >-009fcc?logoWidth=1" title="说漏嘴？李开复称蚂蚁金服提供人脸数据  " alt="说漏嘴？李开复称蚂蚁金服提供人脸数据  "></a></p>
 <p><a href="https://github.com/saipau3170/djy/blob/master/gb/20/9/13/n12401093.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/停供华为 台积电Q3全球市占率将增至54  >-009fcc?logoWidth=1" title="停供华为 台积电Q3全球市占率将增至54  " alt="停供华为 台积电Q3全球市占率将增至54  "></a></p>
-<p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/13/a102939536.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/九一三事件49周年 林彪谋杀毛泽东真相揭秘 >-009fcc?logoWidth=1" title="九一三事件49周年 林彪谋杀毛泽东真相揭秘  " alt="九一三事件49周年 林彪谋杀毛泽东真相揭秘  "></a></p>
-<p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/12/a102939142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/解密：美12名军人被秘密送往外星人星球生活 >-009fcc?logoWidth=1" title="解密：美12名军人被秘密送往外星人星球生活  " alt="解密：美12名军人被秘密送往外星人星球生活  "></a></p>
+<p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/13/a102939698.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外交部大实话：我党驻外人员有个共同外号叫“二>-009fcc?logoWidth=1" title="外交部大实话：我党驻外人员有个共同外号叫“二狼”  " alt="外交部大实话：我党驻外人员有个共同外号叫“二狼”  "></a></p>
 <p><a href="https://github.com/saipau3170/djy/blob/master/gb/20/9/12/n12399580.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：川普刚柔相济见成效 中东和平现曙光 >-009fcc?logoWidth=1" title="王友群：川普刚柔相济见成效 中东和平现曙光  " alt="王友群：川普刚柔相济见成效 中东和平现曙光  "></a></p>
 <p><a href="https://github.com/saipau3170/djy/blob/master/gb/20/9/13/n12399885.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆一借贷平台爆雷%3F%3F数十亿元资金被“套牢”>-009fcc?logoWidth=1" title="大陆一借贷平台爆雷??数十亿元资金被“套牢”  " alt="大陆一借贷平台爆雷??数十亿元资金被“套牢”  "></a></p>
-<p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/13/a102939562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强案 可能引发内部造反？红二代的“原罪”>-009fcc?logoWidth=1" title="任志强案 可能引发内部造反？红二代的“原罪”  " alt="任志强案 可能引发内部造反？红二代的“原罪”  "></a></p>
+<p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/13/a102939690.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/霍比族“5万年前预言”大揭密！人类大淘汰已来>-009fcc?logoWidth=1" title="霍比族“5万年前预言”大揭密！人类大淘汰已来临，获救方法大公开！  " alt="霍比族“5万年前预言”大揭密！人类大淘汰已来临，获救方法大公开！  "></a></p>
+<p><a href="https://github.com/saipau3170/ntdtv/blob/master/gb/2020/09/12/a102939360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/歌曲《推翻中共》登上苹果音乐下载榜首    >-009fcc?logoWidth=1" title="歌曲《推翻中共》登上苹果音乐下载榜首  " alt="歌曲《推翻中共》登上苹果音乐下载榜首  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://saipau3170.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?zuioy">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?gjvov">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?hrucq">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?bljwh">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ocusz">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?huhfr">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?mafsv">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ivfeg">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,10 +486,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/saipau3170/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/saipau3170/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/saipau3170/www/master/index.html?k">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/saipau3170/www/blob/master/README.md?i#1<br>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/saipau3170/www/blob/master/README.md?c%231" title="分享本平台"></img>
-<br><a href="https://git.io/666666">https://git.io/666666</a>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/raaaa" title="分享本平台"></img>
-<br><a href="https://is.gd/raaaa">https://is.gd/raaaa</a>
+<p><strong><a href="https://github.com/saipau3170/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/saipau3170/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/saipau3170/www/master/index.html?n">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/saipau3170/www/blob/master/README.md?d#1<br>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/saipau3170/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<br><a href="https://git.io/ncccc">https://git.io/ncccc</a>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/qssss" title="分享本平台"></img>
+<br><a href="https://is.gd/qssss">https://is.gd/qssss</a>
 </div>
