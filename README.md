@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/opgoqe307/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/opgoqe307/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/zrrrr">git.io/zrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j22">x.co/j22</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mkkkk">git.io/mkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j77">x.co/j77</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/opgoqe307/ntdtv/blob/master/gb/2020/09/14/a102940122.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共明年攻台？分析：共军打不起仗一碰就碎  >-009fcc?logoWidth=1" title="中共明年攻台？分析：共军打不起仗一碰就碎  " alt="中共明年攻台？分析：共军打不起仗一碰就碎  "></a></p>
 <p><a href="https://github.com/opgoqe307/ntdtv/blob/master/gb/2020/09/14/a102940706.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红朝异象:苹果将熟挂满枝 又开一树新花（视频>-009fcc?logoWidth=1" title="红朝异象:苹果将熟挂满枝 又开一树新花（视频）  " alt="红朝异象:苹果将熟挂满枝 又开一树新花（视频）  "></a></p>
 <p><a href="https://github.com/opgoqe307/ntdtv/blob/master/gb/2020/09/14/a102940669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共全面镇压蒙族抗争 限时复课否则层层株连>-009fcc?logoWidth=1" title="传中共全面镇压蒙族抗争 限时复课否则层层株连  " alt="传中共全面镇压蒙族抗争 限时复课否则层层株连  "></a></p>
+<p><a href="https://github.com/opgoqe307/ntdtv/blob/master/gb/2020/09/14/a102940661.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/临床试验未完 中国几十万人已接种疫苗    >-009fcc?logoWidth=1" title="临床试验未完 中国几十万人已接种疫苗  " alt="临床试验未完 中国几十万人已接种疫苗  "></a></p>
 <p><a href="https://github.com/opgoqe307/ntdtv/blob/master/gb/2020/09/14/a102940648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/9.14川普表彰加州国民警卫队仪式上演讲（同>-009fcc?logoWidth=1" title="9.14川普表彰加州国民警卫队仪式上演讲（同声翻译）  " alt="9.14川普表彰加州国民警卫队仪式上演讲（同声翻译）  "></a></p>
 <p><a href="https://github.com/opgoqe307/ntdtv/blob/master/gb/2020/09/14/a102940647.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/菅义伟当选日自民党新总裁 或出任首相    >-009fcc?logoWidth=1" title="菅义伟当选日自民党新总裁 或出任首相  " alt="菅义伟当选日自民党新总裁 或出任首相  "></a></p>
-<p><a href="https://github.com/opgoqe307/ntdtv/blob/master/gb/2020/09/14/a102940499.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登民调领先不准？博彩市场更多押注川普   >-009fcc?logoWidth=1" title="拜登民调领先不准？博彩市场更多押注川普  " alt="拜登民调领先不准？博彩市场更多押注川普  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/opgoqe307/djy/blob/master/gb/20/9/5/n12382336.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/舆情专报泄十九大内部注意事项        >-009fcc?logoWidth=1" title="舆情专报泄十九大内部注意事项  " alt="舆情专报泄十九大内部注意事项  "></a></p>
 <p><a href="https://github.com/opgoqe307/djy/blob/master/gb/20/9/14/n12401655.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/字节跳动和中共关系有多深？报告揭内幕    >-009fcc?logoWidth=1" title="字节跳动和中共关系有多深？报告揭内幕  " alt="字节跳动和中共关系有多深？报告揭内幕  "></a></p>
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://opgoqe307.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?vwacx">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?hsxio">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?jluem">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ixkdr">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?hgfix">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?prviw">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?mxdvn">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ygday">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,10 +485,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/opgoqe307/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/opgoqe307/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/opgoqe307/www/master/index.html?o">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/opgoqe307/www/blob/master/README.md?b#1<br>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/opgoqe307/www/blob/master/README.md?d%231" title="分享本平台"></img>
-<br><a href="https://git.io/zrrrr">https://git.io/zrrrr</a>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/qkkkk" title="分享本平台"></img>
-<br><a href="https://is.gd/qkkkk">https://is.gd/qkkkk</a>
+<p><strong><a href="https://github.com/opgoqe307/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/opgoqe307/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/opgoqe307/www/master/index.html?a">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/opgoqe307/www/blob/master/README.md?a#1<br>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/opgoqe307/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<br><a href="https://git.io/mkkkk">https://git.io/mkkkk</a>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/tcccc" title="分享本平台"></img>
+<br><a href="https://is.gd/tcccc">https://is.gd/tcccc</a>
 </div>
