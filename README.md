@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/sbcwca310/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/sbcwca310/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ryyyy">git.io/ryyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a7a">x.co/a7a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/s2222">git.io/s2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ypp">x.co/ypp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,21 +28,22 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/15/n12403992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共高层急寻出路恐引发欧中贸易战   >-009fcc?logoWidth=1" title="钟原：中共高层急寻出路恐引发欧中贸易战  " alt="钟原：中共高层急寻出路恐引发欧中贸易战  "></a></p>
 <p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/15/n12404089.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/驻华大使离任 分析：美国对中共接触政策已死 >-009fcc?logoWidth=1" title="驻华大使离任 分析：美国对中共接触政策已死  " alt="驻华大使离任 分析：美国对中共接触政策已死  "></a></p>
-<p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/14/n12402947.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大V叫嚣引爆数千核弹毁灭全人类 被轰  >-009fcc?logoWidth=1" title="中共大V叫嚣引爆数千核弹毁灭全人类 被轰  " alt="中共大V叫嚣引爆数千核弹毁灭全人类 被轰  "></a></p>
-<p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/15/n12403872.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美驻华大使撤走 美中加速脱钩？       >-009fcc?logoWidth=1" title="美驻华大使撤走 美中加速脱钩？  " alt="美驻华大使撤走 美中加速脱钩？  "></a></p>
-<p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/14/n12403222.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战狼变色狼？刘晓明和华春莹相继出丑     >-009fcc?logoWidth=1" title="战狼变色狼？刘晓明和华春莹相继出丑  " alt="战狼变色狼？刘晓明和华春莹相继出丑  "></a></p>
+<p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/15/n12404579.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共搜集数据 川普长女成目标        >-009fcc?logoWidth=1" title="中共搜集数据 川普长女成目标  " alt="中共搜集数据 川普长女成目标  "></a></p>
+<p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/15/n12405772.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥揭习近平“复兴大业”真实目的     >-009fcc?logoWidth=1" title="蓬佩奥揭习近平“复兴大业”真实目的  " alt="蓬佩奥揭习近平“复兴大业”真实目的  "></a></p>
+<p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/15/n12405556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“华为禁令”生效 日韩台半导体大厂纷纷停供 >-009fcc?logoWidth=1" title="“华为禁令”生效 日韩台半导体大厂纷纷停供  " alt="“华为禁令”生效 日韩台半导体大厂纷纷停供  "></a></p>
 <p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/14/n12402498.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙文件曝大批学生罢课反抗中共       >-009fcc?logoWidth=1" title="内蒙文件曝大批学生罢课反抗中共  " alt="内蒙文件曝大批学生罢课反抗中共  "></a></p>
-<p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/14/n12403430.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：川普脱钩奇招？大使走人 外交降级   >-009fcc?logoWidth=1" title="杨威：川普脱钩奇招？大使走人 外交降级  " alt="杨威：川普脱钩奇招？大使走人 外交降级  "></a></p>
+<p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/15/n12403872.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美驻华大使撤走 美中加速脱钩？       >-009fcc?logoWidth=1" title="美驻华大使撤走 美中加速脱钩？  " alt="美驻华大使撤走 美中加速脱钩？  "></a></p>
 <p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/14/n12402315.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：危机当前 党媒头版开始带风向     >-009fcc?logoWidth=1" title="田云：危机当前 党媒头版开始带风向  " alt="田云：危机当前 党媒头版开始带风向  "></a></p>
 <p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/15/n12404057.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/芯片断供首日无B方案 业界：华为没路了   >-009fcc?logoWidth=1" title="芯片断供首日无B方案 业界：华为没路了  " alt="芯片断供首日无B方案 业界：华为没路了  "></a></p>
-<p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/15/n12404248.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧中峰会 习近平遇尴尬           >-009fcc?logoWidth=1" title="欧中峰会 习近平遇尴尬  " alt="欧中峰会 习近平遇尴尬  "></a></p>
-<p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/14/n12403196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/免职、罚款、停贷、开除 内蒙打压全面升级  >-009fcc?logoWidth=1" title="免职、罚款、停贷、开除 内蒙打压全面升级  " alt="免职、罚款、停贷、开除 内蒙打压全面升级  "></a></p>
+<p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/15/n12405690.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆女商贩遭城管狂殴挥刀自卫 民众送锦旗  >-009fcc?logoWidth=1" title="重庆女商贩遭城管狂殴挥刀自卫 民众送锦旗  " alt="重庆女商贩遭城管狂殴挥刀自卫 民众送锦旗  "></a></p>
 <p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/15/n12404502.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/兰州逾3000人感染布鲁氏菌病 官方瞒报  >-009fcc?logoWidth=1" title="兰州逾3000人感染布鲁氏菌病 官方瞒报  " alt="兰州逾3000人感染布鲁氏菌病 官方瞒报  "></a></p>
+<p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/14/n12403344.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德法猛批中共 TikTok前途未卜     >-009fcc?logoWidth=1" title="德法猛批中共 TikTok前途未卜  " alt="德法猛批中共 TikTok前途未卜  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/15/n12404248.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧中峰会 习近平遇尴尬           >-009fcc?logoWidth=1" title="欧中峰会 习近平遇尴尬  " alt="欧中峰会 习近平遇尴尬  "></a></p>
 <p><a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/2020/09/15/a102941040.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美驻华大使突然撤走 江派有人悬？      >-009fcc?logoWidth=1" title="美驻华大使突然撤走 江派有人悬？  " alt="美驻华大使突然撤走 江派有人悬？  "></a></p>
+<p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/14/n12403196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/免职、罚款、停贷、开除 内蒙打压全面升级  >-009fcc?logoWidth=1" title="免职、罚款、停贷、开除 内蒙打压全面升级  " alt="免职、罚款、停贷、开除 内蒙打压全面升级  "></a></p>
 <p><a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/2020/09/15/a102941153.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/眼袋90是脾虚引起！中医消除眼袋的食物茶饮 >-009fcc?logoWidth=1" title="眼袋90是脾虚引起！中医消除眼袋的食物茶饮  " alt="眼袋90是脾虚引起！中医消除眼袋的食物茶饮  "></a></p>
 <p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/14/n12403539.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧中在峰会上交锋 欧盟步步紧逼习近平    >-009fcc?logoWidth=1" title="欧中在峰会上交锋 欧盟步步紧逼习近平  " alt="欧中在峰会上交锋 欧盟步步紧逼习近平  "></a></p>
-<p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/14/n12403344.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德法猛批中共 TikTok前途未卜     >-009fcc?logoWidth=1" title="德法猛批中共 TikTok前途未卜  " alt="德法猛批中共 TikTok前途未卜  "></a></p>
 <p><a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/2020/09/14/a102940194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/敏感时刻央视女主播换人 内幕不寻常     >-009fcc?logoWidth=1" title="敏感时刻央视女主播换人 内幕不寻常  " alt="敏感时刻央视女主播换人 内幕不寻常  "></a></p>
 <p><a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/2020/09/15/a102940903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/担保唐娟神秘男身份揭秘/白宫网站请愿第一名:>-009fcc?logoWidth=1" title="担保唐娟神秘男身份揭秘/白宫网站请愿第一名:逮捕文在寅  " alt="担保唐娟神秘男身份揭秘/白宫网站请愿第一名:逮捕文在寅  "></a></p>
 <p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/14/n12403576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共与印度交锋 中共“不战已败”  >-009fcc?logoWidth=1" title="王友群：中共与印度交锋 中共“不战已败”  " alt="王友群：中共与印度交锋 中共“不战已败”  "></a></p>
@@ -260,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://sbcwca310.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ujnfx">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?izrqa">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?mhdfu">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?forvu">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?zztzr">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ihoyy">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?nbnec">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?qparf">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,10 +487,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/sbcwca310/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/sbcwca310/www/master/index.html?s">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/sbcwca310/www/blob/master/README.md?m#1<br>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/sbcwca310/www/blob/master/README.md?v%231" title="分享本平台"></img>
-<br><a href="https://git.io/ryyyy">https://git.io/ryyyy</a>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/mmmm9" title="分享本平台"></img>
-<br><a href="https://is.gd/mmmm9">https://is.gd/mmmm9</a>
+<p><strong><a href="https://github.com/sbcwca310/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/sbcwca310/www/master/index.html?x">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/sbcwca310/www/blob/master/README.md?n#1<br>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/sbcwca310/www/blob/master/README.md?c%231" title="分享本平台"></img>
+<br><a href="https://git.io/s2222">https://git.io/s2222</a>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/qqnqq" title="分享本平台"></img>
+<br><a href="https://is.gd/qqnqq">https://is.gd/qqnqq</a>
 </div>
