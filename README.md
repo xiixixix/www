@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xmykra3800/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xmykra3800/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kaaaa">git.io/kaaaa</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u66">x.co/u66</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/999999999">git.io/999999999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/jpp">x.co/jpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/xmykra3800/ntdtv/blob/master/gb/2020/09/15/a102941077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国狠夫害孕妻细节曝光 推下悬崖前抱吻送三字>-009fcc?logoWidth=1" title="中国狠夫害孕妻细节曝光 推下悬崖前抱吻送三字  " alt="中国狠夫害孕妻细节曝光 推下悬崖前抱吻送三字  "></a></p>
 <p><a href="https://github.com/xmykra3800/ntdtv/blob/master/gb/2020/09/15/a102941033.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平好友失望？美驻华大使闪辞内幕不一般  >-009fcc?logoWidth=1" title="习近平好友失望？美驻华大使闪辞内幕不一般  " alt="习近平好友失望？美驻华大使闪辞内幕不一般  "></a></p>
 <p><a href="https://github.com/xmykra3800/ntdtv/blob/master/gb/2020/09/15/a102940999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡春华急赴东北粮仓喊话 粮食危机再引关注  >-009fcc?logoWidth=1" title="胡春华急赴东北粮仓喊话 粮食危机再引关注  " alt="胡春华急赴东北粮仓喊话 粮食危机再引关注  "></a></p>
+<p><a href="https://github.com/xmykra3800/ntdtv/blob/master/gb/2020/09/02/a102931621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情表彰大会刚过 云南瑞丽急封城      >-009fcc?logoWidth=1" title="疫情表彰大会刚过 云南瑞丽急封城  " alt="疫情表彰大会刚过 云南瑞丽急封城  "></a></p>
 <p><a href="https://github.com/xmykra3800/ntdtv/blob/master/gb/2020/09/15/a102941231.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专访：南方街头运动活动家杨崇谈三退潮    >-009fcc?logoWidth=1" title="专访：南方街头运动活动家杨崇谈三退潮  " alt="专访：南方街头运动活动家杨崇谈三退潮  "></a></p>
+<p><a href="https://github.com/xmykra3800/ntdtv/blob/master/gb/2020/09/15/a102941204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阎丽梦论文吁：查武汉P4实验室与美卫生院金流>-009fcc?logoWidth=1" title="阎丽梦论文吁：查武汉P4实验室与美卫生院金流  " alt="阎丽梦论文吁：查武汉P4实验室与美卫生院金流  "></a></p>
 <p><a href="https://github.com/xmykra3800/ntdtv/blob/master/gb/2020/09/15/a102941168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本也要脱钩？逾1700家日企申请撤离中国 >-009fcc?logoWidth=1" title="日本也要脱钩？逾1700家日企申请撤离中国  " alt="日本也要脱钩？逾1700家日企申请撤离中国  "></a></p>
 <p><a href="https://github.com/xmykra3800/ntdtv/blob/master/gb/2020/09/15/a102941115.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“口罩外交”让习丢脸？美再查获50万中国假口>-009fcc?logoWidth=1" title="“口罩外交”让习丢脸？美再查获50万中国假口罩  " alt="“口罩外交”让习丢脸？美再查获50万中国假口罩  "></a></p>
-<p><a href="https://github.com/xmykra3800/ntdtv/blob/master/gb/2020/09/15/a102941092.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惊恐40秒！ 也门男开车“强闯洪水” 妻小5>-009fcc?logoWidth=1" title="惊恐40秒！ 也门男开车“强闯洪水” 妻小5人死亡  " alt="惊恐40秒！ 也门男开车“强闯洪水” 妻小5人死亡  "></a></p>
-<p><a href="https://github.com/xmykra3800/ntdtv/blob/master/gb/2020/09/15/a102941032.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦尼能短暂下床走动 俄地方选举反对派在西伯>-009fcc?logoWidth=1" title="纳瓦尼能短暂下床走动 俄地方选举反对派在西伯利亚有斩获  " alt="纳瓦尼能短暂下床走动 俄地方选举反对派在西伯利亚有斩获  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xmykra3800/djy/blob/master/gb/20/9/15/n12403992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共高层急寻出路恐引发欧中贸易战   >-009fcc?logoWidth=1" title="钟原：中共高层急寻出路恐引发欧中贸易战  " alt="钟原：中共高层急寻出路恐引发欧中贸易战  "></a></p>
 <p><a href="https://github.com/xmykra3800/djy/blob/master/gb/20/9/15/n12404089.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/驻华大使离任 分析：美国对中共接触政策已死 >-009fcc?logoWidth=1" title="驻华大使离任 分析：美国对中共接触政策已死  " alt="驻华大使离任 分析：美国对中共接触政策已死  "></a></p>
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://xmykra3800.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?lqsmd">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?fkgaa">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?aajmz">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?qmqge">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?hbygl">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?jsgmd">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ciyag">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?uxwcl">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,10 +485,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/xmykra3800/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xmykra3800/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xmykra3800/www/master/index.html?h">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xmykra3800/www/blob/master/README.md?c#1<br>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xmykra3800/www/blob/master/README.md?w%231" title="分享本平台"></img>
-<br><a href="https://git.io/kaaaa">https://git.io/kaaaa</a>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/zyyyy" title="分享本平台"></img>
-<br><a href="https://is.gd/zyyyy">https://is.gd/zyyyy</a>
+<p><strong><a href="https://github.com/xmykra3800/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xmykra3800/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xmykra3800/www/master/index.html?g">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xmykra3800/www/blob/master/README.md?b#1<br>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xmykra3800/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<br><a href="https://git.io/999999999">https://git.io/999999999</a>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/nrrrr" title="分享本平台"></img>
+<br><a href="https://is.gd/nrrrr">https://is.gd/nrrrr</a>
 </div>
