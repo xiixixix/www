@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jnscsn3572/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jnscsn3572/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/azzzz">git.io/azzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa3">x.co/aa3</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/peeee">git.io/peeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppg">x.co/ppg</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -42,10 +42,10 @@
 <p><a href="https://github.com/jnscsn3572/ntdtv/blob/master/gb/2020/09/14/a102940164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习江大战摆上台？高调悼杨家将释两大信号   >-009fcc?logoWidth=1" title="习江大战摆上台？高调悼杨家将释两大信号  " alt="习江大战摆上台？高调悼杨家将释两大信号  "></a></p>
 <p><a href="https://github.com/jnscsn3572/ntdtv/blob/master/gb/2020/09/14/a102940738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为鸿蒙被揭抄袭安卓 疑部分源代码曝光   >-009fcc?logoWidth=1" title="华为鸿蒙被揭抄袭安卓 疑部分源代码曝光  " alt="华为鸿蒙被揭抄袭安卓 疑部分源代码曝光  "></a></p>
 <p><a href="https://github.com/jnscsn3572/djy/blob/master/gb/20/9/14/n12403045.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余茂春又遭逐出“族谱” 评：黔驴技穷    >-009fcc?logoWidth=1" title="余茂春又遭逐出“族谱” 评：黔驴技穷  " alt="余茂春又遭逐出“族谱” 评：黔驴技穷  "></a></p>
-<p><a href="https://github.com/jnscsn3572/djy/blob/master/gb/20/9/15/n12403938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微信禁令执行在即 卢比奥促川普再禁QQ   >-009fcc?logoWidth=1" title="微信禁令执行在即 卢比奥促川普再禁QQ  " alt="微信禁令执行在即 卢比奥促川普再禁QQ  "></a></p>
+<p><a href="https://github.com/jnscsn3572/djy/blob/master/gb/20/9/14/n12403572.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧中峰会之际 德国会听证 推动人权问责法  >-009fcc?logoWidth=1" title="欧中峰会之际 德国会听证 推动人权问责法  " alt="欧中峰会之际 德国会听证 推动人权问责法  "></a></p>
 <p><a href="https://github.com/jnscsn3572/ntdtv/blob/master/gb/2020/09/14/a102940685.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒秀军机90度爬升 被揭是遥控飞机模型（视>-009fcc?logoWidth=1" title="党媒秀军机90度爬升 被揭是遥控飞机模型（视频）  " alt="党媒秀军机90度爬升 被揭是遥控飞机模型（视频）  "></a></p>
 <p><a href="https://github.com/jnscsn3572/ntdtv/blob/master/gb/2020/09/14/a102940207.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：王毅给习近平带来灾难 欧盟变脸世界变天>-009fcc?logoWidth=1" title="美媒：王毅给习近平带来灾难 欧盟变脸世界变天  " alt="美媒：王毅给习近平带来灾难 欧盟变脸世界变天  "></a></p>
-<p><a href="https://github.com/jnscsn3572/djy/blob/master/gb/20/9/14/n12402352.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普政府高层罕见提疫情为“中共病毒”    >-009fcc?logoWidth=1" title="川普政府高层罕见提疫情为“中共病毒”  " alt="川普政府高层罕见提疫情为“中共病毒”  "></a></p>
+<p><a href="https://github.com/jnscsn3572/djy/blob/master/gb/20/9/15/n12403938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微信禁令执行在即 卢比奥促川普再禁QQ   >-009fcc?logoWidth=1" title="微信禁令执行在即 卢比奥促川普再禁QQ  " alt="微信禁令执行在即 卢比奥促川普再禁QQ  "></a></p>
 <p><a href="https://github.com/jnscsn3572/djy/blob/master/gb/20/9/14/n12403408.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/云南瑞丽爆疫情 全城居家隔离        >-009fcc?logoWidth=1" title="云南瑞丽爆疫情 全城居家隔离  " alt="云南瑞丽爆疫情 全城居家隔离  "></a></p>
 <p><a href="https://github.com/jnscsn3572/ntdtv/blob/master/gb/2020/09/14/a102940839.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参议员提法案 拟废中共最惠国待遇     >-009fcc?logoWidth=1" title="美参议员提法案 拟废中共最惠国待遇  " alt="美参议员提法案 拟废中共最惠国待遇  "></a></p>
 <p><a href="https://github.com/jnscsn3572/ntdtv/blob/master/gb/2020/09/14/a102940524.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前后表现判若两人 拜登被川普质疑靠服药赢得初>-009fcc?logoWidth=1" title="前后表现判若两人 拜登被川普质疑靠服药赢得初选  " alt="前后表现判若两人 拜登被川普质疑靠服药赢得初选  "></a></p>
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://jnscsn3572.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?gjmlo">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?xiank">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?jsuwb">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?phdye">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?tbslz">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?vwzct">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?syrgc">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?vxnda">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,10 +486,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/jnscsn3572/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jnscsn3572/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jnscsn3572/www/master/index.html?b">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jnscsn3572/www/blob/master/README.md?d#1<br>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jnscsn3572/www/blob/master/README.md?b%231" title="分享本平台"></img>
-<br><a href="https://git.io/azzzz">https://git.io/azzzz</a>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/uuuup" title="分享本平台"></img>
-<br><a href="https://is.gd/uuuup">https://is.gd/uuuup</a>
+<p><strong><a href="https://github.com/jnscsn3572/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jnscsn3572/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jnscsn3572/www/master/index.html?o">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jnscsn3572/www/blob/master/README.md?b#1<br>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jnscsn3572/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<br><a href="https://git.io/peeee">https://git.io/peeee</a>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/yyyy3" title="分享本平台"></img>
+<br><a href="https://is.gd/yyyy3">https://is.gd/yyyy3</a>
 </div>
