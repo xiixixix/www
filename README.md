@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/sbcwca310/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/sbcwca310/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/f8888">git.io/f8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a5a">x.co/a5a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/j5555">git.io/j5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/4445">x.co/4445</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/2020/09/15/a102941108.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战狼得罪国民党 央视女主持“求和”越描越黑 >-009fcc?logoWidth=1" title="战狼得罪国民党 央视女主持“求和”越描越黑  " alt="战狼得罪国民党 央视女主持“求和”越描越黑  "></a></p>
 <p><a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/2020/09/15/a102941077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国狠夫害孕妻细节曝光 推下悬崖前抱吻送三字>-009fcc?logoWidth=1" title="中国狠夫害孕妻细节曝光 推下悬崖前抱吻送三字  " alt="中国狠夫害孕妻细节曝光 推下悬崖前抱吻送三字  "></a></p>
 <p><a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/2020/09/15/a102941033.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平好友失望？美驻华大使闪辞内幕不一般  >-009fcc?logoWidth=1" title="习近平好友失望？美驻华大使闪辞内幕不一般  " alt="习近平好友失望？美驻华大使闪辞内幕不一般  "></a></p>
+<p><a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/2020/09/15/a102941388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普和第一夫人参加“亚伯拉罕协议”签署仪式（>-009fcc?logoWidth=1" title="川普和第一夫人参加“亚伯拉罕协议”签署仪式（中文同声翻译）  " alt="川普和第一夫人参加“亚伯拉罕协议”签署仪式（中文同声翻译）  "></a></p>
 <p><a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/2020/09/15/a102941335.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/耶鲁大学最新研究：中共病毒可“劫持”脑细胞并>-009fcc?logoWidth=1" title="耶鲁大学最新研究：中共病毒可“劫持”脑细胞并自我复制  " alt="耶鲁大学最新研究：中共病毒可“劫持”脑细胞并自我复制  "></a></p>
+<p><a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/2020/09/15/a102941293.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙公安专项行动 煽动举报法轮功      >-009fcc?logoWidth=1" title="内蒙公安专项行动 煽动举报法轮功  " alt="内蒙公安专项行动 煽动举报法轮功  "></a></p>
 <p><a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/2020/09/15/a102941251.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国又爆新疫情 兰州逾3000人集体染布鲁氏>-009fcc?logoWidth=1" title="中国又爆新疫情 兰州逾3000人集体染布鲁氏菌  " alt="中国又爆新疫情 兰州逾3000人集体染布鲁氏菌  "></a></p>
 <p><a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/2020/09/02/a102931621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情表彰大会刚过 云南瑞丽急封城      >-009fcc?logoWidth=1" title="疫情表彰大会刚过 云南瑞丽急封城  " alt="疫情表彰大会刚过 云南瑞丽急封城  "></a></p>
-<p><a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/2020/09/15/a102941244.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/耿潇男委任律师探视行动 失败告终      >-009fcc?logoWidth=1" title="耿潇男委任律师探视行动 失败告终  " alt="耿潇男委任律师探视行动 失败告终  "></a></p>
-<p><a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/2020/09/15/a102941231.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专访：南方街头运动活动家杨崇谈三退潮    >-009fcc?logoWidth=1" title="专访：南方街头运动活动家杨崇谈三退潮  " alt="专访：南方街头运动活动家杨崇谈三退潮  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/15/n12403992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共高层急寻出路恐引发欧中贸易战   >-009fcc?logoWidth=1" title="钟原：中共高层急寻出路恐引发欧中贸易战  " alt="钟原：中共高层急寻出路恐引发欧中贸易战  "></a></p>
 <p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/15/n12404089.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/驻华大使离任 分析：美国对中共接触政策已死 >-009fcc?logoWidth=1" title="驻华大使离任 分析：美国对中共接触政策已死  " alt="驻华大使离任 分析：美国对中共接触政策已死  "></a></p>
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://sbcwca310.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?mobbb">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ugeos">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?qfnje">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?hkkss">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?pmzrh">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?zmbtk">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?gzotl">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?gpsev">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,10 +486,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/sbcwca310/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/sbcwca310/www/master/index.html?a">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/sbcwca310/www/blob/master/README.md?i#1<br>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/sbcwca310/www/blob/master/README.md?o%231" title="分享本平台"></img>
-<br><a href="https://git.io/f8888">https://git.io/f8888</a>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/tmmmm" title="分享本平台"></img>
-<br><a href="https://is.gd/tmmmm">https://is.gd/tmmmm</a>
+<p><strong><a href="https://github.com/sbcwca310/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/sbcwca310/www/master/index.html?i">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/sbcwca310/www/blob/master/README.md?s#1<br>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/sbcwca310/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<br><a href="https://git.io/j5555">https://git.io/j5555</a>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/ppppq" title="分享本平台"></img>
+<br><a href="https://is.gd/ppppq">https://is.gd/ppppq</a>
 </div>
