@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xmykra3800/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xmykra3800/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ummmm">git.io/ummmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a7a">x.co/a7a</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/t5555">git.io/t5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppe">x.co/ppe</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -23,7 +23,7 @@
 <p><a href="https://github.com/xmykra3800/ntdtv/blob/master/gb/2020/09/15/a102941077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国狠夫害孕妻细节曝光 推下悬崖前抱吻送三字>-009fcc?logoWidth=1" title="中国狠夫害孕妻细节曝光 推下悬崖前抱吻送三字  " alt="中国狠夫害孕妻细节曝光 推下悬崖前抱吻送三字  "></a></p>
 <p><a href="https://github.com/xmykra3800/ntdtv/blob/master/gb/2020/09/15/a102941032.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦尼能短暂下床走动 俄地方选举反对派在西伯>-009fcc?logoWidth=1" title="纳瓦尼能短暂下床走动 俄地方选举反对派在西伯利亚有斩获  " alt="纳瓦尼能短暂下床走动 俄地方选举反对派在西伯利亚有斩获  "></a></p>
 <p><a href="https://github.com/xmykra3800/ntdtv/blob/master/gb/2020/09/15/a102940994.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洛城两警遭致命枪击 示威者阻抢救高呼“去死”>-009fcc?logoWidth=1" title="洛城两警遭致命枪击 示威者阻抢救高呼“去死”  " alt="洛城两警遭致命枪击 示威者阻抢救高呼“去死”  "></a></p>
-<p><a href="https://github.com/xmykra3800/ntdtv/blob/master/gb/2020/09/15/a102940968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共部队怕被捉 印度官员：在边境热点铺设光纤>-009fcc?logoWidth=1" title="中共部队怕被捉 印度官员：在边境热点铺设光纤网路  " alt="中共部队怕被捉 印度官员：在边境热点铺设光纤网路  "></a></p>
+<p><a href="https://github.com/xmykra3800/ntdtv/blob/master/gb/2020/09/15/a102940968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前印度情报官：中共部队在边境热点设光纤网路 >-009fcc?logoWidth=1" title="前印度情报官：中共部队在边境热点设光纤网路  " alt="前印度情报官：中共部队在边境热点设光纤网路  "></a></p>
 <p><a href="https://github.com/xmykra3800/ntdtv/blob/master/gb/2020/09/15/a102940939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中欧蜜月期结束？ 欧盟步步紧逼习近平　   >-009fcc?logoWidth=1" title="中欧蜜月期结束？ 欧盟步步紧逼习近平　  " alt="中欧蜜月期结束？ 欧盟步步紧逼习近平　  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xmykra3800/djy/blob/master/gb/20/9/15/n12403992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共高层急寻出路恐引发欧中贸易战   >-009fcc?logoWidth=1" title="钟原：中共高层急寻出路恐引发欧中贸易战  " alt="钟原：中共高层急寻出路恐引发欧中贸易战  "></a></p>
@@ -46,6 +46,7 @@
 <p><a href="https://github.com/xmykra3800/ntdtv/blob/master/gb/2020/09/14/a102940738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为鸿蒙被揭抄袭安卓 疑部分源代码曝光   >-009fcc?logoWidth=1" title="华为鸿蒙被揭抄袭安卓 疑部分源代码曝光  " alt="华为鸿蒙被揭抄袭安卓 疑部分源代码曝光  "></a></p>
 <p><a href="https://github.com/xmykra3800/djy/blob/master/gb/20/9/14/n12403190.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/花落谁家？一文看懂美中对抗下TikTok竞购>-009fcc?logoWidth=1" title="花落谁家？一文看懂美中对抗下TikTok竞购案  " alt="花落谁家？一文看懂美中对抗下TikTok竞购案  "></a></p>
 <p><a href="https://github.com/xmykra3800/djy/blob/master/gb/20/9/14/n12403649.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平变脸示弱 欧中峰会有成果？      >-009fcc?logoWidth=1" title="习近平变脸示弱 欧中峰会有成果？  " alt="习近平变脸示弱 欧中峰会有成果？  "></a></p>
+<p><a href="https://github.com/xmykra3800/ntdtv/blob/master/gb/2020/09/15/a102940968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共部队怕被捉 印度官员：在边境热点铺设光纤>-009fcc?logoWidth=1" title="中共部队怕被捉 印度官员：在边境热点铺设光纤网路  " alt="中共部队怕被捉 印度官员：在边境热点铺设光纤网路  "></a></p>
 <p><a href="https://github.com/xmykra3800/ntdtv/blob/master/gb/2020/09/15/a102941017.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共虚张声势 夺东沙岛可能性小       >-009fcc?logoWidth=1" title="中共虚张声势 夺东沙岛可能性小  " alt="中共虚张声势 夺东沙岛可能性小  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -258,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://xmykra3800.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?kjqht">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?glfjx">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?zjasq">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?xgwqs">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -304,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?vwqqs">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?kdsom">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?rpbgc">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?epqax">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -484,10 +485,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/xmykra3800/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xmykra3800/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xmykra3800/www/master/index.html?w">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xmykra3800/www/blob/master/README.md?u#1<br>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xmykra3800/www/blob/master/README.md?p%231" title="分享本平台"></img>
-<br><a href="https://git.io/ummmm">https://git.io/ummmm</a>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/rrhrr" title="分享本平台"></img>
-<br><a href="https://is.gd/rrhrr">https://is.gd/rrhrr</a>
+<p><strong><a href="https://github.com/xmykra3800/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xmykra3800/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xmykra3800/www/master/index.html?b">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xmykra3800/www/blob/master/README.md?j#1<br>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/xmykra3800/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<br><a href="https://git.io/t5555">https://git.io/t5555</a>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/piiii" title="分享本平台"></img>
+<br><a href="https://is.gd/piiii">https://is.gd/piiii</a>
 </div>
