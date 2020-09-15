@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/sbcwca310/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/sbcwca310/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cgggg">git.io/cgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp5">x.co/pp5</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/5qqqq">git.io/5qqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3366">x.co/3366</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -23,8 +23,8 @@
 <p><a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/2020/09/15/a102941251.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国又爆新疫情 兰州逾3000人集体染布病 >-009fcc?logoWidth=1" title="中国又爆新疫情 兰州逾3000人集体染布病  " alt="中国又爆新疫情 兰州逾3000人集体染布病  "></a></p>
 <p><a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/2020/09/02/a102931621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情表彰大会刚过 云南瑞丽急封城      >-009fcc?logoWidth=1" title="疫情表彰大会刚过 云南瑞丽急封城  " alt="疫情表彰大会刚过 云南瑞丽急封城  "></a></p>
 <p><a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/2020/09/15/a102941231.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专访：南方街头运动活动家杨崇谈三退潮    >-009fcc?logoWidth=1" title="专访：南方街头运动活动家杨崇谈三退潮  " alt="专访：南方街头运动活动家杨崇谈三退潮  "></a></p>
-<p><a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/2020/09/15/a102941210.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/云南瑞丽爆发疫情关闭边境 全城居家隔离   >-009fcc?logoWidth=1" title="云南瑞丽爆发疫情关闭边境 全城居家隔离  " alt="云南瑞丽爆发疫情关闭边境 全城居家隔离  "></a></p>
 <p><a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/2020/09/15/a102941204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阎丽梦论文吁：查武汉P4实验室与美卫生院金流>-009fcc?logoWidth=1" title="阎丽梦论文吁：查武汉P4实验室与美卫生院金流  " alt="阎丽梦论文吁：查武汉P4实验室与美卫生院金流  "></a></p>
+<p><a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/2020/09/15/a102941168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本也要脱钩？逾1700家日企申请撤离中国 >-009fcc?logoWidth=1" title="日本也要脱钩？逾1700家日企申请撤离中国  " alt="日本也要脱钩？逾1700家日企申请撤离中国  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/15/n12403992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共高层急寻出路恐引发欧中贸易战   >-009fcc?logoWidth=1" title="钟原：中共高层急寻出路恐引发欧中贸易战  " alt="钟原：中共高层急寻出路恐引发欧中贸易战  "></a></p>
 <p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/15/n12404089.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/驻华大使离任 分析：美国对中共接触政策已死 >-009fcc?logoWidth=1" title="驻华大使离任 分析：美国对中共接触政策已死  " alt="驻华大使离任 分析：美国对中共接触政策已死  "></a></p>
@@ -42,12 +42,12 @@
 <p><a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/2020/09/15/a102941040.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美驻华大使突然撤走 江派有人悬？      >-009fcc?logoWidth=1" title="美驻华大使突然撤走 江派有人悬？  " alt="美驻华大使突然撤走 江派有人悬？  "></a></p>
 <p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/14/n12403539.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧中在峰会上交锋 欧盟步步紧逼习近平    >-009fcc?logoWidth=1" title="欧中在峰会上交锋 欧盟步步紧逼习近平  " alt="欧中在峰会上交锋 欧盟步步紧逼习近平  "></a></p>
 <p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/14/n12403344.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德法猛批中共 TikTok前途未卜     >-009fcc?logoWidth=1" title="德法猛批中共 TikTok前途未卜  " alt="德法猛批中共 TikTok前途未卜  "></a></p>
+<p><a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/2020/09/15/a102941153.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/眼袋90是脾虚引起！中医消除眼袋的食物茶饮 >-009fcc?logoWidth=1" title="眼袋90是脾虚引起！中医消除眼袋的食物茶饮  " alt="眼袋90是脾虚引起！中医消除眼袋的食物茶饮  "></a></p>
 <p><a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/2020/09/14/a102940194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/敏感时刻央视女主播换人 内幕不寻常     >-009fcc?logoWidth=1" title="敏感时刻央视女主播换人 内幕不寻常  " alt="敏感时刻央视女主播换人 内幕不寻常  "></a></p>
-<p><a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/2020/09/15/a102940897.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:美驻华大使闪辞 川普突击十月惊奇？习近>-009fcc?logoWidth=1" title="文昭:美驻华大使闪辞 川普突击十月惊奇？习近平“基盘”之谜  " alt="文昭:美驻华大使闪辞 川普突击十月惊奇？习近平“基盘”之谜  "></a></p>
 <p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/14/n12403576.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共与印度交锋 中共“不战已败”  >-009fcc?logoWidth=1" title="王友群：中共与印度交锋 中共“不战已败”  " alt="王友群：中共与印度交锋 中共“不战已败”  "></a></p>
 <p><a href="https://github.com/sbcwca310/djy/blob/master/gb/20/9/14/n12403045.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余茂春又遭逐出“族谱” 中共被讽黔驴技穷  >-009fcc?logoWidth=1" title="余茂春又遭逐出“族谱” 中共被讽黔驴技穷  " alt="余茂春又遭逐出“族谱” 中共被讽黔驴技穷  "></a></p>
+<p><a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/2020/09/15/a102940897.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:美驻华大使闪辞 川普突击十月惊奇？习近>-009fcc?logoWidth=1" title="文昭:美驻华大使闪辞 川普突击十月惊奇？习近平“基盘”之谜  " alt="文昭:美驻华大使闪辞 川普突击十月惊奇？习近平“基盘”之谜  "></a></p>
 <p><a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/2020/09/15/a102940999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡春华急赴东北粮仓喊话 粮食危机再引关注  >-009fcc?logoWidth=1" title="胡春华急赴东北粮仓喊话 粮食危机再引关注  " alt="胡春华急赴东北粮仓喊话 粮食危机再引关注  "></a></p>
-<p><a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/2020/09/14/a102940762.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦团队发论文 吁追查武汉病毒所资金来源 >-009fcc?logoWidth=1" title="闫丽梦团队发论文 吁追查武汉病毒所资金来源  " alt="闫丽梦团队发论文 吁追查武汉病毒所资金来源  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://sbcwca310.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?mvyku">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?jwbzn">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?kxqyg">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?bxnxq">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?rhyhx">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?iuiev">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?umivl">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?vfrmx">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,10 +485,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/sbcwca310/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/sbcwca310/www/master/index.html?g">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/sbcwca310/www/blob/master/README.md?s#1<br>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/sbcwca310/www/blob/master/README.md?t%231" title="分享本平台"></img>
-<br><a href="https://git.io/cgggg">https://git.io/cgggg</a>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/mmmmp" title="分享本平台"></img>
-<br><a href="https://is.gd/mmmmp">https://is.gd/mmmmp</a>
+<p><strong><a href="https://github.com/sbcwca310/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/sbcwca310/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/sbcwca310/www/master/index.html?b">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/sbcwca310/www/blob/master/README.md?c#1<br>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/sbcwca310/www/blob/master/README.md?v%231" title="分享本平台"></img>
+<br><a href="https://git.io/5qqqq">https://git.io/5qqqq</a>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/yyyy2" title="分享本平台"></img>
+<br><a href="https://is.gd/yyyy2">https://is.gd/yyyy2</a>
 </div>
