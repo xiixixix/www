@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bvcufi319/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bvcufi319/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/55555555">git.io/55555555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/daa">x.co/daa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/55555555">git.io/55555555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a4a">x.co/a4a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,9 +20,9 @@
 <p><a href="https://github.com/bvcufi319/ntdtv/blob/master/gb/2020/09/16/a102941807.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/公开武汉实验室人造新冠病毒 闫丽梦推特账户遭>-009fcc?logoWidth=1" title="公开武汉实验室人造新冠病毒 闫丽梦推特账户遭冻结  " alt="公开武汉实验室人造新冠病毒 闫丽梦推特账户遭冻结  "></a></p>
 <p><a href="https://github.com/bvcufi319/ntdtv/blob/master/gb/2020/09/16/a102941768.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中欧峰会踢铁板 习近平恐埋下又一祸根    >-009fcc?logoWidth=1" title="中欧峰会踢铁板 习近平恐埋下又一祸根  " alt="中欧峰会踢铁板 习近平恐埋下又一祸根  "></a></p>
 <p><a href="https://github.com/bvcufi319/ntdtv/blob/master/gb/2020/09/16/a102941748.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视“求和”女主播 丈夫性侵入狱 公公诈骗被>-009fcc?logoWidth=1" title="央视“求和”女主播 丈夫性侵入狱 公公诈骗被囚  " alt="央视“求和”女主播 丈夫性侵入狱 公公诈骗被囚  "></a></p>
-<p><a href="https://github.com/bvcufi319/ntdtv/blob/master/gb/2020/09/16/a102942169.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆女商贩挥刀自卫砍伤城管 民众送锦旗表彰 >-009fcc?logoWidth=1" title="重庆女商贩挥刀自卫砍伤城管 民众送锦旗表彰  " alt="重庆女商贩挥刀自卫砍伤城管 民众送锦旗表彰  "></a></p>
 <p><a href="https://github.com/bvcufi319/ntdtv/blob/master/gb/2020/09/02/a102931621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英媒：换掉习近平 北京政权面临两种选择   >-009fcc?logoWidth=1" title="英媒：换掉习近平 北京政权面临两种选择  " alt="英媒：换掉习近平 北京政权面临两种选择  "></a></p>
 <p><a href="https://github.com/bvcufi319/ntdtv/blob/master/gb/2020/09/11/a102938454.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/科学不解之谜：堕胎妇女的神秘厄运      >-009fcc?logoWidth=1" title="科学不解之谜：堕胎妇女的神秘厄运  " alt="科学不解之谜：堕胎妇女的神秘厄运  "></a></p>
+<p><a href="https://github.com/bvcufi319/ntdtv/blob/master/gb/2020/09/16/a102941995.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港商人团结寻出路 不让“香港制造”成绝响  >-009fcc?logoWidth=1" title="港商人团结寻出路 不让“香港制造”成绝响  " alt="港商人团结寻出路 不让“香港制造”成绝响  "></a></p>
 <p><a href="https://github.com/bvcufi319/ntdtv/blob/master/gb/2020/09/16/a102941924.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印更激烈冲突曝光 印媒：双方鸣枪百发子弹 >-009fcc?logoWidth=1" title="中印更激烈冲突曝光 印媒：双方鸣枪百发子弹  " alt="中印更激烈冲突曝光 印媒：双方鸣枪百发子弹  "></a></p>
 <p><a href="https://github.com/bvcufi319/ntdtv/blob/master/gb/2020/09/16/a102941885.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京村官家中抄出31公斤金条 720余万元现>-009fcc?logoWidth=1" title="北京村官家中抄出31公斤金条 720余万元现金  " alt="北京村官家中抄出31公斤金条 720余万元现金  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://bvcufi319.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?pjrkg">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?iujxn">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?awbcg">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?vjjri">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?qaqzw">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ufhaz">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?eqjyi">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?xyouo">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,10 +485,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/bvcufi319/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bvcufi319/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bvcufi319/www/master/index.html?c">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bvcufi319/www/blob/master/README.md?f#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/bvcufi319/www/blob/master/README.md?w%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/bvcufi319/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bvcufi319/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bvcufi319/www/master/index.html?g">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bvcufi319/www/blob/master/README.md?q#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/bvcufi319/www/blob/master/README.md?o%231" title="分享本平台"></img>
 <br><a href="https://git.io/55555555">https://git.io/55555555</a>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/pnnnn" title="分享本平台"></img>
-<br><a href="https://is.gd/pnnnn">https://is.gd/pnnnn</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/xqqqq" title="分享本平台"></img>
+<br><a href="https://is.gd/xqqqq">https://is.gd/xqqqq</a>
 </div>
