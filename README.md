@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jevcue3934/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jevcue3934/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/puuuu">git.io/puuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ypp">x.co/ypp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qxxxx">git.io/qxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2226">x.co/2226</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/jevcue3934/ntdtv/blob/master/gb/2020/09/16/a102941677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英媒：换掉习近平 北京政权面临两种选择   >-009fcc?logoWidth=1" title="英媒：换掉习近平 北京政权面临两种选择  " alt="英媒：换掉习近平 北京政权面临两种选择  "></a></p>
+<p><a href="https://github.com/jevcue3934/ntdtv/blob/master/gb/2020/09/16/a102941694.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦重磅报告解析:3大关键证据指向病毒人造>-009fcc?logoWidth=1" title="闫丽梦重磅报告解析:3大关键证据指向病毒人造  " alt="闫丽梦重磅报告解析:3大关键证据指向病毒人造  "></a></p>
 <p><a href="https://github.com/jevcue3934/ntdtv/blob/master/gb/2020/09/15/a102941595.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆留美学生签证断崖下跌 北上广7月只批4人 >-009fcc?logoWidth=1" title="陆留美学生签证断崖下跌 北上广7月只批4人  " alt="陆留美学生签证断崖下跌 北上广7月只批4人  "></a></p>
 <p><a href="https://github.com/jevcue3934/ntdtv/blob/master/gb/2020/09/15/a102941522.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧盟高官呛声习近平:中共应对全球疫情负责  >-009fcc?logoWidth=1" title="欧盟高官呛声习近平:中共应对全球疫情负责  " alt="欧盟高官呛声习近平:中共应对全球疫情负责  "></a></p>
 <p><a href="https://github.com/jevcue3934/ntdtv/blob/master/gb/2020/09/15/a102941519.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美驻华大使离任 北京竟不知情        >-009fcc?logoWidth=1" title="美驻华大使离任 北京竟不知情  " alt="美驻华大使离任 北京竟不知情  "></a></p>
 <p><a href="https://github.com/jevcue3934/ntdtv/blob/master/gb/2020/09/15/a102941495.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/军事专家：共军模拟攻台“6胜6平48败”  >-009fcc?logoWidth=1" title="军事专家：共军模拟攻台“6胜6平48败”  " alt="军事专家：共军模拟攻台“6胜6平48败”  "></a></p>
-<p><a href="https://github.com/jevcue3934/ntdtv/blob/master/gb/2020/09/15/a102941327.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“为生命而战” 全美90万警察声明支持川普 >-009fcc?logoWidth=1" title="“为生命而战” 全美90万警察声明支持川普  " alt="“为生命而战” 全美90万警察声明支持川普  "></a></p>
-<p><a href="https://github.com/jevcue3934/ntdtv/blob/master/gb/2020/09/15/a102940956.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共政权灭亡的十大征兆 全齐了！      >-009fcc?logoWidth=1" title="中共政权灭亡的十大征兆 全齐了！  " alt="中共政权灭亡的十大征兆 全齐了！  "></a></p>
+<p><a href="https://github.com/jevcue3934/ntdtv/blob/master/gb/2020/09/16/a102941701.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国猴子抢食遭喝斥 叫来猴群围殴男子致重伤 >-009fcc?logoWidth=1" title="中国猴子抢食遭喝斥 叫来猴群围殴男子致重伤  " alt="中国猴子抢食遭喝斥 叫来猴群围殴男子致重伤  "></a></p>
 <p><a href="https://github.com/jevcue3934/ntdtv/blob/master/gb/2020/09/16/a102941684.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共涉骇客入侵美机构 美司法部预告逮捕行动 >-009fcc?logoWidth=1" title="中共涉骇客入侵美机构 美司法部预告逮捕行动  " alt="中共涉骇客入侵美机构 美司法部预告逮捕行动  "></a></p>
 <p><a href="https://github.com/jevcue3934/ntdtv/blob/master/gb/2020/09/16/a102941647.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/宾州保守派司法获胜 法官裁决中共病毒限制令违>-009fcc?logoWidth=1" title="宾州保守派司法获胜 法官裁决中共病毒限制令违宪  " alt="宾州保守派司法获胜 法官裁决中共病毒限制令违宪  "></a></p>
 <p><a href="https://github.com/jevcue3934/ntdtv/blob/master/gb/2020/09/15/a102941529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政经升温 传美台将同时发布美国务院次卿访台消>-009fcc?logoWidth=1" title="政经升温 传美台将同时发布美国务院次卿访台消息  " alt="政经升温 传美台将同时发布美国务院次卿访台消息  "></a></p>
 <p><a href="https://github.com/jevcue3934/ntdtv/blob/master/gb/2020/09/15/a102941592.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/侵占毁坏柬埔寨土地 美制裁中共国有公司   >-009fcc?logoWidth=1" title="侵占毁坏柬埔寨土地 美制裁中共国有公司  " alt="侵占毁坏柬埔寨土地 美制裁中共国有公司  "></a></p>
-<p><a href="https://github.com/jevcue3934/ntdtv/blob/master/gb/2020/09/15/a102941552.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员提案：撤销中共永久最惠国待遇     >-009fcc?logoWidth=1" title="美议员提案：撤销中共永久最惠国待遇  " alt="美议员提案：撤销中共永久最惠国待遇  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jevcue3934/djy/blob/master/gb/20/9/15/n12406198.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲与中共关系恶化 专家揭内幕       >-009fcc?logoWidth=1" title="澳洲与中共关系恶化 专家揭内幕  " alt="澳洲与中共关系恶化 专家揭内幕  "></a></p>
 <p><a href="https://github.com/jevcue3934/djy/blob/master/gb/20/9/15/n12406262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世贸裁决亲北京 川普和莱特希泽强硬回击   >-009fcc?logoWidth=1" title="世贸裁决亲北京 川普和莱特希泽强硬回击  " alt="世贸裁决亲北京 川普和莱特希泽强硬回击  "></a></p>
@@ -39,17 +39,17 @@
 <p><a href="https://github.com/jevcue3934/djy/blob/master/gb/20/9/15/n12404021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/监控240万名人 中国内循环能打通？    >-009fcc?logoWidth=1" title="监控240万名人 中国内循环能打通？  " alt="监控240万名人 中国内循环能打通？  "></a></p>
 <p><a href="https://github.com/jevcue3934/djy/blob/master/gb/20/9/15/n12404057.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/芯片断供首日无B方案 业界：华为没路了   >-009fcc?logoWidth=1" title="芯片断供首日无B方案 业界：华为没路了  " alt="芯片断供首日无B方案 业界：华为没路了  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/jevcue3934/ntdtv/blob/master/gb/2020/09/15/a102941251.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国又爆新疫情 兰州逾3000人集体染布鲁氏>-009fcc?logoWidth=1" title="中国又爆新疫情 兰州逾3000人集体染布鲁氏菌  " alt="中国又爆新疫情 兰州逾3000人集体染布鲁氏菌  "></a></p>
 <p><a href="https://github.com/jevcue3934/ntdtv/blob/master/gb/2020/09/15/a102940962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共政权灭亡的十大征兆 全齐了！      >-009fcc?logoWidth=1" title="中共政权灭亡的十大征兆 全齐了！  " alt="中共政权灭亡的十大征兆 全齐了！  "></a></p>
 <p><a href="https://github.com/jevcue3934/ntdtv/blob/master/gb/2020/09/15/a102941389.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员吁驳回甲骨文合作协议 TikTok交易>-009fcc?logoWidth=1" title="美议员吁驳回甲骨文合作协议 TikTok交易两头受压  " alt="美议员吁驳回甲骨文合作协议 TikTok交易两头受压  "></a></p>
-<p><a href="https://github.com/jevcue3934/ntdtv/blob/master/gb/2020/09/15/a102941077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国狠夫害孕妻细节曝光 推下悬崖前抱吻送三字>-009fcc?logoWidth=1" title="中国狠夫害孕妻细节曝光 推下悬崖前抱吻送三字  " alt="中国狠夫害孕妻细节曝光 推下悬崖前抱吻送三字  "></a></p>
 <p><a href="https://github.com/jevcue3934/djy/blob/master/gb/20/9/15/n12405690.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆女商贩遭城管狂殴挥刀自卫 民众送锦旗  >-009fcc?logoWidth=1" title="重庆女商贩遭城管狂殴挥刀自卫 民众送锦旗  " alt="重庆女商贩遭城管狂殴挥刀自卫 民众送锦旗  "></a></p>
 <p><a href="https://github.com/jevcue3934/djy/blob/master/gb/20/9/15/n12405657.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/心中仍有NBA梦想 林书豪不回北京首钢   >-009fcc?logoWidth=1" title="心中仍有NBA梦想 林书豪不回北京首钢  " alt="心中仍有NBA梦想 林书豪不回北京首钢  "></a></p>
+<p><a href="https://github.com/jevcue3934/ntdtv/blob/master/gb/2020/09/15/a102941077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国狠夫害孕妻细节曝光 推下悬崖前抱吻送三字>-009fcc?logoWidth=1" title="中国狠夫害孕妻细节曝光 推下悬崖前抱吻送三字  " alt="中国狠夫害孕妻细节曝光 推下悬崖前抱吻送三字  "></a></p>
 <p><a href="https://github.com/jevcue3934/ntdtv/blob/master/gb/2020/09/15/a102941033.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平好友失望？美驻华大使闪辞内幕不一般  >-009fcc?logoWidth=1" title="习近平好友失望？美驻华大使闪辞内幕不一般  " alt="习近平好友失望？美驻华大使闪辞内幕不一般  "></a></p>
-<p><a href="https://github.com/jevcue3934/ntdtv/blob/master/gb/2020/09/15/a102941383.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习国师称中国5年后成高收入国家 5年前也这么>-009fcc?logoWidth=1" title="习国师称中国5年后成高收入国家 5年前也这么说过  " alt="习国师称中国5年后成高收入国家 5年前也这么说过  "></a></p>
-<p><a href="https://github.com/jevcue3934/djy/blob/master/gb/20/9/15/n12405496.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/24民主人士出庭 港人高呼“悼念六四无罪” >-009fcc?logoWidth=1" title="24民主人士出庭 港人高呼“悼念六四无罪”  " alt="24民主人士出庭 港人高呼“悼念六四无罪”  "></a></p>
+<p><a href="https://github.com/jevcue3934/djy/blob/master/gb/20/9/15/n12406312.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：很快决定是否批准TikTok交易   >-009fcc?logoWidth=1" title="川普：很快决定是否批准TikTok交易  " alt="川普：很快决定是否批准TikTok交易  "></a></p>
 <p><a href="https://github.com/jevcue3934/djy/blob/master/gb/20/9/15/n12404502.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/兰州逾3000人感染布鲁氏菌病 官方瞒报  >-009fcc?logoWidth=1" title="兰州逾3000人感染布鲁氏菌病 官方瞒报  " alt="兰州逾3000人感染布鲁氏菌病 官方瞒报  "></a></p>
+<p><a href="https://github.com/jevcue3934/ntdtv/blob/master/gb/2020/09/15/a102941383.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习国师称中国5年后成高收入国家 5年前也这么>-009fcc?logoWidth=1" title="习国师称中国5年后成高收入国家 5年前也这么说过  " alt="习国师称中国5年后成高收入国家 5年前也这么说过  "></a></p>
 <p><a href="https://github.com/jevcue3934/ntdtv/blob/master/gb/2020/09/15/a102941153.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/眼袋90是脾虚引起！中医消除眼袋的食物茶饮 >-009fcc?logoWidth=1" title="眼袋90是脾虚引起！中医消除眼袋的食物茶饮  " alt="眼袋90是脾虚引起！中医消除眼袋的食物茶饮  "></a></p>
-<p><a href="https://github.com/jevcue3934/ntdtv/blob/master/gb/2020/09/15/a102941168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本也要脱钩？逾1700家日企申请撤离中国 >-009fcc?logoWidth=1" title="日本也要脱钩？逾1700家日企申请撤离中国  " alt="日本也要脱钩？逾1700家日企申请撤离中国  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -261,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://jevcue3934.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?scapy">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ofreo">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?mskao">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?cvtnq">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?exrtg">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?barbm">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ousrh">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ywnlw">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,10 +487,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/jevcue3934/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jevcue3934/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jevcue3934/www/master/index.html?l">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jevcue3934/www/blob/master/README.md?r#1<br>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jevcue3934/www/blob/master/README.md?r%231" title="分享本平台"></img>
-<br><a href="https://git.io/puuuu">https://git.io/puuuu</a>
-<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/zzzz8" title="分享本平台"></img>
-<br><a href="https://is.gd/zzzz8">https://is.gd/zzzz8</a>
+<p><strong><a href="https://github.com/jevcue3934/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jevcue3934/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jevcue3934/www/master/index.html?y">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jevcue3934/www/blob/master/README.md?i#1<br>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://github.com/jevcue3934/www/blob/master/README.md?g%231" title="分享本平台"></img>
+<br><a href="https://git.io/qxxxx">https://git.io/qxxxx</a>
+<br><img src="http://d1p1.ip.zn2.us/v.php?action=qrcode&url=https://is.gd/ppppi" title="分享本平台"></img>
+<br><a href="https://is.gd/ppppi">https://is.gd/ppppi</a>
 </div>
