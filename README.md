@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bhvnrr360/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bhvnrr360/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/u9999">git.io/u9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/qaa">x.co/qaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/7tttt">git.io/7tttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j33">x.co/j33</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/bhvnrr360/ntdtv/blob/master/gb/2020/09/17/a102942739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大教授公开信：吁习近平辞职 以应对内外危机>-009fcc?logoWidth=1" title="人大教授公开信：吁习近平辞职 以应对内外危机  " alt="人大教授公开信：吁习近平辞职 以应对内外危机  "></a></p>
 <p><a href="https://github.com/bhvnrr360/ntdtv/blob/master/gb/2020/09/17/a102942697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平连续两大动作 疑与江泽民撕破脸    >-009fcc?logoWidth=1" title="习近平连续两大动作 疑与江泽民撕破脸  " alt="习近平连续两大动作 疑与江泽民撕破脸  "></a></p>
 <p><a href="https://github.com/bhvnrr360/ntdtv/blob/master/gb/2020/09/17/a102942729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“军管”亚洲野心曝光 美防长亮出未来舰队>-009fcc?logoWidth=1" title="中共“军管”亚洲野心曝光 美防长亮出未来舰队  " alt="中共“军管”亚洲野心曝光 美防长亮出未来舰队  "></a></p>
+<p><a href="https://github.com/bhvnrr360/ntdtv/blob/master/gb/2020/09/17/a102943225.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国将禁微信交易 司法部澄清不惩罚用户   >-009fcc?logoWidth=1" title="美国将禁微信交易 司法部澄清不惩罚用户  " alt="美国将禁微信交易 司法部澄清不惩罚用户  "></a></p>
+<p><a href="https://github.com/bhvnrr360/ntdtv/blob/master/gb/2020/09/17/a102943218.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/共军播印度歌曲打心理战 印军一头雾水    >-009fcc?logoWidth=1" title="共军播印度歌曲打心理战 印军一头雾水  " alt="共军播印度歌曲打心理战 印军一头雾水  "></a></p>
+<p><a href="https://github.com/bhvnrr360/ntdtv/blob/master/gb/2020/09/17/a102943221.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉人权争议 “花木兰”香港上映再受冷遇   >-009fcc?logoWidth=1" title="涉人权争议 “花木兰”香港上映再受冷遇  " alt="涉人权争议 “花木兰”香港上映再受冷遇  "></a></p>
 <p><a href="https://github.com/bhvnrr360/ntdtv/blob/master/gb/2020/09/17/a102943176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普选战起诉新州 请阻提前计票和过期选票  >-009fcc?logoWidth=1" title="川普选战起诉新州 请阻提前计票和过期选票  " alt="川普选战起诉新州 请阻提前计票和过期选票  "></a></p>
-<p><a href="https://github.com/bhvnrr360/ntdtv/blob/master/gb/2020/09/17/a102943173.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多国学者联合报告 倡组科技联盟“铁幕”抗中共>-009fcc?logoWidth=1" title="多国学者联合报告 倡组科技联盟“铁幕”抗中共  " alt="多国学者联合报告 倡组科技联盟“铁幕”抗中共  "></a></p>
-<p><a href="https://github.com/bhvnrr360/ntdtv/blob/master/gb/2020/09/17/a102943155.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山西平遥刮共产风 古城被收归政府或欲上市  >-009fcc?logoWidth=1" title="山西平遥刮共产风 古城被收归政府或欲上市  " alt="山西平遥刮共产风 古城被收归政府或欲上市  "></a></p>
-<p><a href="https://github.com/bhvnrr360/ntdtv/blob/master/gb/2020/09/17/a102943124.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加州山火或烧毁全美最大大麻种植地      >-009fcc?logoWidth=1" title="加州山火或烧毁全美最大大麻种植地  " alt="加州山火或烧毁全美最大大麻种植地  "></a></p>
-<p><a href="https://github.com/bhvnrr360/ntdtv/blob/master/gb/2020/09/17/a102943090.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普不喜甲骨文合作TikTok 蓬佩奥等也反>-009fcc?logoWidth=1" title="川普不喜甲骨文合作TikTok 蓬佩奥等也反对  " alt="川普不喜甲骨文合作TikTok 蓬佩奥等也反对  "></a></p>
+<p><a href="https://github.com/bhvnrr360/ntdtv/blob/master/gb/2020/09/17/a102943199.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：全世界对中共威胁已觉醒       >-009fcc?logoWidth=1" title="蓬佩奥：全世界对中共威胁已觉醒  " alt="蓬佩奥：全世界对中共威胁已觉醒  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bhvnrr360/djy/blob/master/gb/20/9/16/n12408991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大教授公开吁习近平辞职 结束一党专政   >-009fcc?logoWidth=1" title="人大教授公开吁习近平辞职 结束一党专政  " alt="人大教授公开吁习近平辞职 结束一党专政  "></a></p>
 <p><a href="https://github.com/bhvnrr360/djy/blob/master/gb/20/9/17/n12411507.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普谈与习近平交恶原因 暗示被骗了     >-009fcc?logoWidth=1" title="川普谈与习近平交恶原因 暗示被骗了  " alt="川普谈与习近平交恶原因 暗示被骗了  "></a></p>
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://bhvnrr360.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?fgjvz">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?bossv">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?sqeob">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?rdnyb">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?itxzh">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?hqhhb">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ntgbb">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?rvbqt">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,10 +485,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/bhvnrr360/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bhvnrr360/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bhvnrr360/www/master/index.html?c">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bhvnrr360/www/blob/master/README.md?i#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/bhvnrr360/www/blob/master/README.md?o%231" title="分享本平台"></img>
-<br><a href="https://git.io/u9999">https://git.io/u9999</a>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/yyyyq" title="分享本平台"></img>
-<br><a href="https://is.gd/yyyyq">https://is.gd/yyyyq</a>
+<p><strong><a href="https://github.com/bhvnrr360/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bhvnrr360/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bhvnrr360/www/master/index.html?u">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bhvnrr360/www/blob/master/README.md?j#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/bhvnrr360/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<br><a href="https://git.io/7tttt">https://git.io/7tttt</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/nyyyy" title="分享本平台"></img>
+<br><a href="https://is.gd/nyyyy">https://is.gd/nyyyy</a>
 </div>
