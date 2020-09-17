@@ -10,45 +10,46 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cvjuew306/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cvjuew306/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qpppp">git.io/qpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3888">x.co/3888</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/k8888">git.io/k8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2aa">x.co/2aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/cvjuew306/ntdtv/blob/master/gb/2020/09/17/a102942697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平连续两大动作 疑与江泽民撕破脸    >-009fcc?logoWidth=1" title="习近平连续两大动作 疑与江泽民撕破脸  " alt="习近平连续两大动作 疑与江泽民撕破脸  "></a></p>
 <p><a href="https://github.com/cvjuew306/ntdtv/blob/master/gb/2020/09/17/a102942729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“军管”亚洲野心曝光 美防长亮出未来舰队>-009fcc?logoWidth=1" title="中共“军管”亚洲野心曝光 美防长亮出未来舰队  " alt="中共“军管”亚洲野心曝光 美防长亮出未来舰队  "></a></p>
 <p><a href="https://github.com/cvjuew306/ntdtv/blob/master/gb/2020/09/17/a102942676.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国国务次卿今率团访台 三大看点引关注   >-009fcc?logoWidth=1" title="美国国务次卿今率团访台 三大看点引关注  " alt="美国国务次卿今率团访台 三大看点引关注  "></a></p>
 <p><a href="https://github.com/cvjuew306/ntdtv/blob/master/gb/2020/09/17/a102942634.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境冲突 印防长首爆中共“重大伤亡”  >-009fcc?logoWidth=1" title="中印边境冲突 印防长首爆中共“重大伤亡”  " alt="中印边境冲突 印防长首爆中共“重大伤亡”  "></a></p>
 <p><a href="https://github.com/cvjuew306/ntdtv/blob/master/gb/2020/09/17/a102942629.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“教师爷”话音刚落 欧盟主席宣布大动作>-009fcc?logoWidth=1" title="习近平“教师爷”话音刚落 欧盟主席宣布大动作  " alt="习近平“教师爷”话音刚落 欧盟主席宣布大动作  "></a></p>
 <p><a href="https://github.com/cvjuew306/ntdtv/blob/master/gb/2020/09/17/a102942602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情表彰刚过 云南速建方舱 肉价飙涨100元>-009fcc?logoWidth=1" title="疫情表彰刚过 云南速建方舱 肉价飙涨100元(视频)  " alt="疫情表彰刚过 云南速建方舱 肉价飙涨100元(视频)  "></a></p>
-<p><a href="https://github.com/cvjuew306/ntdtv/blob/master/gb/2020/09/16/a102942451.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重回计划经济？中办发文要加强对民企统战   >-009fcc?logoWidth=1" title="重回计划经济？中办发文要加强对民企统战  " alt="重回计划经济？中办发文要加强对民企统战  "></a></p>
 <p><a href="https://github.com/cvjuew306/ntdtv/blob/master/gb/2020/09/17/a102942636.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普终结克林顿的巴尔干战争？        >-009fcc?logoWidth=1" title="川普终结克林顿的巴尔干战争？  " alt="川普终结克林顿的巴尔干战争？  "></a></p>
-<p><a href="https://github.com/cvjuew306/ntdtv/blob/master/gb/2020/09/17/a102942697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平连续两大动作 疑与江泽民撕破脸    >-009fcc?logoWidth=1" title="习近平连续两大动作 疑与江泽民撕破脸  " alt="习近平连续两大动作 疑与江泽民撕破脸  "></a></p>
-<p><a href="https://github.com/cvjuew306/ntdtv/blob/master/gb/2020/09/17/a102942691.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/路透社新证据：华为对星通控制 扩展至巴西  >-009fcc?logoWidth=1" title="路透社新证据：华为对星通控制 扩展至巴西  " alt="路透社新证据：华为对星通控制 扩展至巴西  "></a></p>
+<p><a href="https://github.com/cvjuew306/ntdtv/blob/master/gb/2020/09/17/a102942691.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/路透社新证据：华为对星通控制扩展至巴西   >-009fcc?logoWidth=1" title="路透社新证据：华为对星通控制扩展至巴西  " alt="路透社新证据：华为对星通控制扩展至巴西  "></a></p>
 <p><a href="https://github.com/cvjuew306/ntdtv/blob/master/gb/2020/09/17/a102942677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为禁令生效 英媒：不是死刑，也是死缓   >-009fcc?logoWidth=1" title="华为禁令生效 英媒：不是死刑，也是死缓  " alt="华为禁令生效 英媒：不是死刑，也是死缓  "></a></p>
 <p><a href="https://github.com/cvjuew306/ntdtv/blob/master/gb/2020/09/17/a102942622.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“川普胜利”战绩卓越 已接触200万弗吉尼亚>-009fcc?logoWidth=1" title="“川普胜利”战绩卓越 已接触200万弗吉尼亚选民  " alt="“川普胜利”战绩卓越 已接触200万弗吉尼亚选民  "></a></p>
+<p><a href="https://github.com/cvjuew306/ntdtv/blob/master/gb/2020/09/02/a102931621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英媒：换掉习近平 北京政权面临两种选择   >-009fcc?logoWidth=1" title="英媒：换掉习近平 北京政权面临两种选择  " alt="英媒：换掉习近平 北京政权面临两种选择  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/cvjuew306/djy/blob/master/gb/20/9/16/n12408991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大教授公开吁习近平辞职 结束一党专政   >-009fcc?logoWidth=1" title="人大教授公开吁习近平辞职 结束一党专政  " alt="人大教授公开吁习近平辞职 结束一党专政  "></a></p>
 <p><a href="https://github.com/cvjuew306/djy/blob/master/gb/20/9/16/n12408312.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回击习“教师爷”之说 欧盟要制裁人权犯   >-009fcc?logoWidth=1" title="回击习“教师爷”之说 欧盟要制裁人权犯  " alt="回击习“教师爷”之说 欧盟要制裁人权犯  "></a></p>
-<p><a href="https://github.com/cvjuew306/djy/blob/master/gb/20/9/16/n12408106.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共用债务陷阱掌控美国“后院”       >-009fcc?logoWidth=1" title="中共用债务陷阱掌控美国“后院”  " alt="中共用债务陷阱掌控美国“后院”  "></a></p>
-<p><a href="https://github.com/cvjuew306/djy/blob/master/gb/20/9/16/n12409020.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共加强统战 逼民企做“政治上的明白人”  >-009fcc?logoWidth=1" title="中共加强统战 逼民企做“政治上的明白人”  " alt="中共加强统战 逼民企做“政治上的明白人”  "></a></p>
-<p><a href="https://github.com/cvjuew306/djy/blob/master/gb/20/9/17/n12409432.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共4常委出巡 还是不去东北灾区   >-009fcc?logoWidth=1" title="钟原：中共4常委出巡 还是不去东北灾区  " alt="钟原：中共4常委出巡 还是不去东北灾区  "></a></p>
-<p><a href="https://github.com/cvjuew306/djy/blob/master/gb/20/9/16/n12408779.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒骂蓬佩奥“肥猪”港议员“脑残” 遭轰  >-009fcc?logoWidth=1" title="党媒骂蓬佩奥“肥猪”港议员“脑残” 遭轰  " alt="党媒骂蓬佩奥“肥猪”港议员“脑残” 遭轰  "></a></p>
-<p><a href="https://github.com/cvjuew306/djy/blob/master/gb/20/9/16/n12409118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国9起论文造假案曝光 涉多家知名高校医院 >-009fcc?logoWidth=1" title="中国9起论文造假案曝光 涉多家知名高校医院  " alt="中国9起论文造假案曝光 涉多家知名高校医院  "></a></p>
-<p><a href="https://github.com/cvjuew306/djy/blob/master/gb/20/9/15/n12405734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何强行火化他们的遗体（12）     >-009fcc?logoWidth=1" title="中共为何强行火化他们的遗体（12）  " alt="中共为何强行火化他们的遗体（12）  "></a></p>
-<p><a href="https://github.com/cvjuew306/djy/blob/master/gb/20/9/16/n12408984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞丽突封城 肉价涨至100元        >-009fcc?logoWidth=1" title="瑞丽突封城 肉价涨至100元  " alt="瑞丽突封城 肉价涨至100元  "></a></p>
-<p><a href="https://github.com/cvjuew306/djy/blob/master/gb/20/9/17/n12409786.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/教授发重磅猛文：习近平辞职         >-009fcc?logoWidth=1" title="教授发重磅猛文：习近平辞职  " alt="教授发重磅猛文：习近平辞职  "></a></p>
 <p><a href="https://github.com/cvjuew306/djy/blob/master/gb/20/9/16/n12409137.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/祖屋收归国有 山西平遥刮共产风       >-009fcc?logoWidth=1" title="祖屋收归国有 山西平遥刮共产风  " alt="祖屋收归国有 山西平遥刮共产风  "></a></p>
-<p><a href="https://github.com/cvjuew306/djy/blob/master/gb/20/9/16/n12406438.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共控制疫情舆论手段曝光          >-009fcc?logoWidth=1" title="中共控制疫情舆论手段曝光  " alt="中共控制疫情舆论手段曝光  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/cvjuew306/djy/blob/master/gb/20/9/16/n12408256.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境部署重兵 共军启动二级战备     >-009fcc?logoWidth=1" title="中印边境部署重兵 共军启动二级战备  " alt="中印边境部署重兵 共军启动二级战备  "></a></p>
-<p><a href="https://github.com/cvjuew306/ntdtv/blob/master/gb/2020/09/16/a102942363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦开推特账号2天被封 FOX采访视频也遭>-009fcc?logoWidth=1" title="闫丽梦开推特账号2天被封 FOX采访视频也遭禁  " alt="闫丽梦开推特账号2天被封 FOX采访视频也遭禁  "></a></p>
-<p><a href="https://github.com/cvjuew306/djy/blob/master/gb/20/9/16/n12408697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山东荷泽现一例“复阳”病例 封村封路    >-009fcc?logoWidth=1" title="山东荷泽现一例“复阳”病例 封村封路  " alt="山东荷泽现一例“复阳”病例 封村封路  "></a></p>
-<p><a href="https://github.com/cvjuew306/djy/blob/master/gb/20/9/16/n12408647.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：读《转法轮》何罪之有？       >-009fcc?logoWidth=1" title="王友群：读《转法轮》何罪之有？  " alt="王友群：读《转法轮》何罪之有？  "></a></p>
-<p><a href="https://github.com/cvjuew306/ntdtv/blob/master/gb/2020/09/16/a102942175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美以联合军事新计划 “无人机杀手”颠覆作战方>-009fcc?logoWidth=1" title="美以联合军事新计划 “无人机杀手”颠覆作战方式  " alt="美以联合军事新计划 “无人机杀手”颠覆作战方式  "></a></p>
-<p><a href="https://github.com/cvjuew306/ntdtv/blob/master/gb/2020/09/16/a102942161.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谁是老板？贺锦丽拜登脱口而出“贺锦丽政府” >-009fcc?logoWidth=1" title="谁是老板？贺锦丽拜登脱口而出“贺锦丽政府”  " alt="谁是老板？贺锦丽拜登脱口而出“贺锦丽政府”  "></a></p>
-<p><a href="https://github.com/cvjuew306/djy/blob/master/gb/20/9/17/n12409483.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：川普推动中东和平 中共党媒很失落   >-009fcc?logoWidth=1" title="杨威：川普推动中东和平 中共党媒很失落  " alt="杨威：川普推动中东和平 中共党媒很失落  "></a></p>
 <p><a href="https://github.com/cvjuew306/djy/blob/master/gb/20/9/16/n12409135.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美起诉中共5黑客 神秘的成都肆零肆曝光   >-009fcc?logoWidth=1" title="美起诉中共5黑客 神秘的成都肆零肆曝光  " alt="美起诉中共5黑客 神秘的成都肆零肆曝光  "></a></p>
-<p><a href="https://github.com/cvjuew306/ntdtv/blob/master/gb/2020/09/16/a102942176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共火箭飞越台湾 释放什么信号？      >-009fcc?logoWidth=1" title="中共火箭飞越台湾 释放什么信号？  " alt="中共火箭飞越台湾 释放什么信号？  "></a></p>
-<p><a href="https://github.com/cvjuew306/ntdtv/blob/master/gb/2020/09/16/a102941840.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/古今六大预言 2020年前后的大交集(上) >-009fcc?logoWidth=1" title="古今六大预言 2020年前后的大交集(上)  " alt="古今六大预言 2020年前后的大交集(上)  "></a></p>
+<p><a href="https://github.com/cvjuew306/djy/blob/master/gb/20/9/16/n12408106.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共用债务陷阱掌控美国“后院”       >-009fcc?logoWidth=1" title="中共用债务陷阱掌控美国“后院”  " alt="中共用债务陷阱掌控美国“后院”  "></a></p>
+<p><a href="https://github.com/cvjuew306/djy/blob/master/gb/20/9/16/n12408779.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/党媒骂蓬佩奥“肥猪”港议员“脑残” 遭轰  >-009fcc?logoWidth=1" title="党媒骂蓬佩奥“肥猪”港议员“脑残” 遭轰  " alt="党媒骂蓬佩奥“肥猪”港议员“脑残” 遭轰  "></a></p>
+<p><a href="https://github.com/cvjuew306/djy/blob/master/gb/20/9/16/n12409020.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共加强统战 逼民企做“政治上的明白人”  >-009fcc?logoWidth=1" title="中共加强统战 逼民企做“政治上的明白人”  " alt="中共加强统战 逼民企做“政治上的明白人”  "></a></p>
+<p><a href="https://github.com/cvjuew306/djy/blob/master/gb/20/9/15/n12405734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何强行火化他们的遗体（12）     >-009fcc?logoWidth=1" title="中共为何强行火化他们的遗体（12）  " alt="中共为何强行火化他们的遗体（12）  "></a></p>
+<p><a href="https://github.com/cvjuew306/djy/blob/master/gb/20/9/17/n12409432.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共4常委出巡 还是不去东北灾区   >-009fcc?logoWidth=1" title="钟原：中共4常委出巡 还是不去东北灾区  " alt="钟原：中共4常委出巡 还是不去东北灾区  "></a></p>
+<p><a href="https://github.com/cvjuew306/djy/blob/master/gb/20/9/17/n12409786.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/教授发重磅猛文：习近平辞职         >-009fcc?logoWidth=1" title="教授发重磅猛文：习近平辞职  " alt="教授发重磅猛文：习近平辞职  "></a></p>
+<p><a href="https://github.com/cvjuew306/djy/blob/master/gb/20/9/16/n12408647.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：读《转法轮》何罪之有？       >-009fcc?logoWidth=1" title="王友群：读《转法轮》何罪之有？  " alt="王友群：读《转法轮》何罪之有？  "></a></p>
+<p><a href="https://github.com/cvjuew306/djy/blob/master/gb/20/9/16/n12409118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国9起论文造假案曝光 涉多家知名高校医院 >-009fcc?logoWidth=1" title="中国9起论文造假案曝光 涉多家知名高校医院  " alt="中国9起论文造假案曝光 涉多家知名高校医院  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/cvjuew306/djy/blob/master/gb/20/9/16/n12408984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞丽突封城 肉价涨至100元        >-009fcc?logoWidth=1" title="瑞丽突封城 肉价涨至100元  " alt="瑞丽突封城 肉价涨至100元  "></a></p>
+<p><a href="https://github.com/cvjuew306/ntdtv/blob/master/gb/2020/09/16/a102942386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟一次售台7种武器 路透惊呼:相当罕见  >-009fcc?logoWidth=1" title="美拟一次售台7种武器 路透惊呼:相当罕见  " alt="美拟一次售台7种武器 路透惊呼:相当罕见  "></a></p>
+<p><a href="https://github.com/cvjuew306/djy/blob/master/gb/20/9/16/n12406438.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共控制疫情舆论手段曝光          >-009fcc?logoWidth=1" title="中共控制疫情舆论手段曝光  " alt="中共控制疫情舆论手段曝光  "></a></p>
+<p><a href="https://github.com/cvjuew306/ntdtv/blob/master/gb/2020/09/17/a102942716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平加速彻底失控，根本停不下来！     >-009fcc?logoWidth=1" title="习近平加速彻底失控，根本停不下来！  " alt="习近平加速彻底失控，根本停不下来！  "></a></p>
+<p><a href="https://github.com/cvjuew306/ntdtv/blob/master/gb/2020/09/17/a102942708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/秦鹏快评：习近平为防中共垮台 想让民企替共产>-009fcc?logoWidth=1" title="秦鹏快评：习近平为防中共垮台 想让民企替共产党陪绑！  " alt="秦鹏快评：习近平为防中共垮台 想让民企替共产党陪绑！  "></a></p>
+<p><a href="https://github.com/cvjuew306/djy/blob/master/gb/20/9/16/n12408256.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境部署重兵 共军启动二级战备     >-009fcc?logoWidth=1" title="中印边境部署重兵 共军启动二级战备  " alt="中印边境部署重兵 共军启动二级战备  "></a></p>
+<p><a href="https://github.com/cvjuew306/djy/blob/master/gb/20/9/16/n12408697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山东荷泽现一例“复阳”病例 封村封路    >-009fcc?logoWidth=1" title="山东荷泽现一例“复阳”病例 封村封路  " alt="山东荷泽现一例“复阳”病例 封村封路  "></a></p>
+<p><a href="https://github.com/cvjuew306/ntdtv/blob/master/gb/2020/09/16/a102942451.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重回计划经济？中办发文要加强对民企统战   >-009fcc?logoWidth=1" title="重回计划经济？中办发文要加强对民企统战  " alt="重回计划经济？中办发文要加强对民企统战  "></a></p>
+<p><a href="https://github.com/cvjuew306/ntdtv/blob/master/gb/2020/09/16/a102942363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦开推特账号2天被封 FOX采访视频也遭>-009fcc?logoWidth=1" title="闫丽梦开推特账号2天被封 FOX采访视频也遭禁  " alt="闫丽梦开推特账号2天被封 FOX采访视频也遭禁  "></a></p>
+<p><a href="https://github.com/cvjuew306/djy/blob/master/gb/20/9/17/n12409483.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：川普推动中东和平 中共党媒很失落   >-009fcc?logoWidth=1" title="杨威：川普推动中东和平 中共党媒很失落  " alt="杨威：川普推动中东和平 中共党媒很失落  "></a></p>
+<p><a href="https://github.com/cvjuew306/ntdtv/blob/master/gb/2020/09/16/a102942175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美以联合军事新计划 “无人机杀手”颠覆作战方>-009fcc?logoWidth=1" title="美以联合军事新计划 “无人机杀手”颠覆作战方式  " alt="美以联合军事新计划 “无人机杀手”颠覆作战方式  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -260,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://cvjuew306.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?wmfco">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?rdpmd">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?skxfx">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?gwowe">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?xibko">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ypvzl">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?cgxyz">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ihwwt">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,10 +487,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/cvjuew306/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cvjuew306/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cvjuew306/www/master/index.html?k">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cvjuew306/www/blob/master/README.md?d#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/cvjuew306/www/blob/master/README.md?r%231" title="分享本平台"></img>
-<br><a href="https://git.io/qpppp">https://git.io/qpppp</a>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ppppk" title="分享本平台"></img>
-<br><a href="https://is.gd/ppppk">https://is.gd/ppppk</a>
+<p><strong><a href="https://github.com/cvjuew306/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cvjuew306/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cvjuew306/www/master/index.html?b">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cvjuew306/www/blob/master/README.md?q#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/cvjuew306/www/blob/master/README.md?s%231" title="分享本平台"></img>
+<br><a href="https://git.io/k8888">https://git.io/k8888</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/uujuu" title="分享本平台"></img>
+<br><a href="https://is.gd/uujuu">https://is.gd/uujuu</a>
 </div>
