@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dhfknp3246/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dhfknp3246/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/spppp">git.io/spppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p4p">x.co/p4p</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/xnnnn">git.io/xnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a3a">x.co/a3a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -32,7 +32,7 @@
 <p><a href="https://github.com/dhfknp3246/djy/blob/master/gb/20/9/16/n12408312.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回击习“教师爷”之说 欧盟要制裁人权犯   >-009fcc?logoWidth=1" title="回击习“教师爷”之说 欧盟要制裁人权犯  " alt="回击习“教师爷”之说 欧盟要制裁人权犯  "></a></p>
 <p><a href="https://github.com/dhfknp3246/djy/blob/master/gb/20/9/16/n12407507.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：大变局进行时 退出中共刻不容缓    >-009fcc?logoWidth=1" title="田云：大变局进行时 退出中共刻不容缓  " alt="田云：大变局进行时 退出中共刻不容缓  "></a></p>
 <p><a href="https://github.com/dhfknp3246/djy/blob/master/gb/20/9/16/n12406438.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共控制疫情舆论手段曝光          >-009fcc?logoWidth=1" title="中共控制疫情舆论手段曝光  " alt="中共控制疫情舆论手段曝光  "></a></p>
-<p><a href="https://github.com/dhfknp3246/djy/blob/master/gb/20/9/16/n12409020.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共加强民企统战 逼其做“政治上的明白人” >-009fcc?logoWidth=1" title="中共加强民企统战 逼其做“政治上的明白人”  " alt="中共加强民企统战 逼其做“政治上的明白人”  "></a></p>
+<p><a href="https://github.com/dhfknp3246/djy/blob/master/gb/20/9/16/n12409020.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共加强统战 逼民企做“政治上的明白人”  >-009fcc?logoWidth=1" title="中共加强统战 逼民企做“政治上的明白人”  " alt="中共加强统战 逼民企做“政治上的明白人”  "></a></p>
 <p><a href="https://github.com/dhfknp3246/djy/blob/master/gb/20/9/15/n12405734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何强行火化他们的遗体（12）     >-009fcc?logoWidth=1" title="中共为何强行火化他们的遗体（12）  " alt="中共为何强行火化他们的遗体（12）  "></a></p>
 <p><a href="https://github.com/dhfknp3246/djy/blob/master/gb/20/9/16/n12408310.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共黑客全球作案 百公司受害 美起诉7人  >-009fcc?logoWidth=1" title="中共黑客全球作案 百公司受害 美起诉7人  " alt="中共黑客全球作案 百公司受害 美起诉7人  "></a></p>
 <p><a href="https://github.com/dhfknp3246/djy/blob/master/gb/20/9/16/n12408984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞丽突封城 肉价涨至100元        >-009fcc?logoWidth=1" title="瑞丽突封城 肉价涨至100元  " alt="瑞丽突封城 肉价涨至100元  "></a></p>
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://dhfknp3246.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?qnmjd">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?hsskt">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?vxytr">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?inwxs">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?tkhdg">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?xweft">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?gmlkl">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?davct">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,10 +486,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/dhfknp3246/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dhfknp3246/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dhfknp3246/www/master/index.html?q">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dhfknp3246/www/blob/master/README.md?i#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/dhfknp3246/www/blob/master/README.md?o%231" title="分享本平台"></img>
-<br><a href="https://git.io/spppp">https://git.io/spppp</a>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/tttta" title="分享本平台"></img>
-<br><a href="https://is.gd/tttta">https://is.gd/tttta</a>
+<p><strong><a href="https://github.com/dhfknp3246/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dhfknp3246/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dhfknp3246/www/master/index.html?j">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dhfknp3246/www/blob/master/README.md?w#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/dhfknp3246/www/blob/master/README.md?j%231" title="分享本平台"></img>
+<br><a href="https://git.io/xnnnn">https://git.io/xnnnn</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/zzzze" title="分享本平台"></img>
+<br><a href="https://is.gd/zzzze">https://is.gd/zzzze</a>
 </div>
