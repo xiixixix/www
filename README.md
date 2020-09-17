@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dhfknp3246/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dhfknp3246/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qbbbb">git.io/qbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppr">x.co/ppr</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bbbbb">git.io/bbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j55">x.co/j55</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/dhfknp3246/ntdtv/blob/master/gb/2020/09/17/a102942634.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境冲突 印防长首爆中共“重大伤亡”  >-009fcc?logoWidth=1" title="中印边境冲突 印防长首爆中共“重大伤亡”  " alt="中印边境冲突 印防长首爆中共“重大伤亡”  "></a></p>
+<p><a href="https://github.com/dhfknp3246/ntdtv/blob/master/gb/2020/09/17/a102942629.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“教师爷”话音刚落 欧盟主席宣布大动作>-009fcc?logoWidth=1" title="习近平“教师爷”话音刚落 欧盟主席宣布大动作  " alt="习近平“教师爷”话音刚落 欧盟主席宣布大动作  "></a></p>
 <p><a href="https://github.com/dhfknp3246/ntdtv/blob/master/gb/2020/09/17/a102942602.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情表彰刚过 云南速建方舱 肉价飙涨100元>-009fcc?logoWidth=1" title="疫情表彰刚过 云南速建方舱 肉价飙涨100元(视频)  " alt="疫情表彰刚过 云南速建方舱 肉价飙涨100元(视频)  "></a></p>
 <p><a href="https://github.com/dhfknp3246/ntdtv/blob/master/gb/2020/09/16/a102942451.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重回计划经济？中办发文要加强对民企统战   >-009fcc?logoWidth=1" title="重回计划经济？中办发文要加强对民企统战  " alt="重回计划经济？中办发文要加强对民企统战  "></a></p>
 <p><a href="https://github.com/dhfknp3246/ntdtv/blob/master/gb/2020/09/16/a102942386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美拟一次售台7种武器 路透惊呼:相当罕见  >-009fcc?logoWidth=1" title="美拟一次售台7种武器 路透惊呼:相当罕见  " alt="美拟一次售台7种武器 路透惊呼:相当罕见  "></a></p>
 <p><a href="https://github.com/dhfknp3246/ntdtv/blob/master/gb/2020/09/16/a102942363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦开推特账号2天被封 FOX采访视频也遭>-009fcc?logoWidth=1" title="闫丽梦开推特账号2天被封 FOX采访视频也遭禁  " alt="闫丽梦开推特账号2天被封 FOX采访视频也遭禁  "></a></p>
-<p><a href="https://github.com/dhfknp3246/ntdtv/blob/master/gb/2020/09/16/a102942161.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谁是老板？贺锦丽拜登脱口而出“贺锦丽政府” >-009fcc?logoWidth=1" title="谁是老板？贺锦丽拜登脱口而出“贺锦丽政府”  " alt="谁是老板？贺锦丽拜登脱口而出“贺锦丽政府”  "></a></p>
-<p><a href="https://github.com/dhfknp3246/ntdtv/blob/master/gb/2020/09/16/a102941989.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/换掉习近平？北京面临两种选择        >-009fcc?logoWidth=1" title="换掉习近平？北京面临两种选择  " alt="换掉习近平？北京面临两种选择  "></a></p>
 <p><a href="https://github.com/dhfknp3246/ntdtv/blob/master/gb/2020/09/17/a102942622.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“川普胜利”战绩卓越 已接触200万弗吉尼亚>-009fcc?logoWidth=1" title="“川普胜利”战绩卓越 已接触200万弗吉尼亚选民  " alt="“川普胜利”战绩卓越 已接触200万弗吉尼亚选民  "></a></p>
 <p><a href="https://github.com/dhfknp3246/ntdtv/blob/master/gb/2020/09/02/a102931621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英媒：换掉习近平 北京政权面临两种选择   >-009fcc?logoWidth=1" title="英媒：换掉习近平 北京政权面临两种选择  " alt="英媒：换掉习近平 北京政权面临两种选择  "></a></p>
 <p><a href="https://github.com/dhfknp3246/ntdtv/blob/master/gb/2020/09/16/a102942533.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约起火房屋发现炸弹材料 FBI介入调查  >-009fcc?logoWidth=1" title="纽约起火房屋发现炸弹材料 FBI介入调查  " alt="纽约起火房屋发现炸弹材料 FBI介入调查  "></a></p>
@@ -39,16 +39,18 @@
 <p><a href="https://github.com/dhfknp3246/djy/blob/master/gb/20/9/16/n12407791.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国司法部宣布起诉和逮捕中共黑客      >-009fcc?logoWidth=1" title="美国司法部宣布起诉和逮捕中共黑客  " alt="美国司法部宣布起诉和逮捕中共黑客  "></a></p>
 <p><a href="https://github.com/dhfknp3246/djy/blob/master/gb/20/9/16/n12408697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山东荷泽现一例“复阳”病例 封村封路    >-009fcc?logoWidth=1" title="山东荷泽现一例“复阳”病例 封村封路  " alt="山东荷泽现一例“复阳”病例 封村封路  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/dhfknp3246/ntdtv/blob/master/gb/2020/09/16/a102941748.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视“求和”女主播 丈夫性侵入狱 公公诈骗被>-009fcc?logoWidth=1" title="央视“求和”女主播 丈夫性侵入狱 公公诈骗被囚  " alt="央视“求和”女主播 丈夫性侵入狱 公公诈骗被囚  "></a></p>
+<p><a href="https://github.com/dhfknp3246/ntdtv/blob/master/gb/2020/09/16/a102942161.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谁是老板？贺锦丽拜登脱口而出“贺锦丽政府” >-009fcc?logoWidth=1" title="谁是老板？贺锦丽拜登脱口而出“贺锦丽政府”  " alt="谁是老板？贺锦丽拜登脱口而出“贺锦丽政府”  "></a></p>
 <p><a href="https://github.com/dhfknp3246/ntdtv/blob/master/gb/2020/09/16/a102942176.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共火箭飞越台湾 释放什么信号？      >-009fcc?logoWidth=1" title="中共火箭飞越台湾 释放什么信号？  " alt="中共火箭飞越台湾 释放什么信号？  "></a></p>
 <p><a href="https://github.com/dhfknp3246/ntdtv/blob/master/gb/2020/09/17/a102942564.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:民企统战“重要指示”来了/战狼大内宣搅>-009fcc?logoWidth=1" title="文昭:民企统战“重要指示”来了/战狼大内宣搅黄大事  " alt="文昭:民企统战“重要指示”来了/战狼大内宣搅黄大事  "></a></p>
-<p><a href="https://github.com/dhfknp3246/ntdtv/blob/master/gb/2020/09/16/a102941921.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“灭蒙”风波未平 又对朝鲜族下手    >-009fcc?logoWidth=1" title="中共“灭蒙”风波未平 又对朝鲜族下手  " alt="中共“灭蒙”风波未平 又对朝鲜族下手  "></a></p>
 <p><a href="https://github.com/dhfknp3246/djy/blob/master/gb/20/9/16/n12409118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国9起论文造假案曝光 涉多家知名医院高校 >-009fcc?logoWidth=1" title="中国9起论文造假案曝光 涉多家知名医院高校  " alt="中国9起论文造假案曝光 涉多家知名医院高校  "></a></p>
 <p><a href="https://github.com/dhfknp3246/djy/blob/master/gb/20/9/16/n12408256.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境部署重兵 共军启动二级战备     >-009fcc?logoWidth=1" title="中印边境部署重兵 共军启动二级战备  " alt="中印边境部署重兵 共军启动二级战备  "></a></p>
+<p><a href="https://github.com/dhfknp3246/ntdtv/blob/master/gb/2020/09/16/a102941921.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“灭蒙”风波未平 又对朝鲜族下手    >-009fcc?logoWidth=1" title="中共“灭蒙”风波未平 又对朝鲜族下手  " alt="中共“灭蒙”风波未平 又对朝鲜族下手  "></a></p>
 <p><a href="https://github.com/dhfknp3246/ntdtv/blob/master/gb/2020/09/16/a102941924.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印更激烈冲突曝光 印媒：双方鸣枪百发子弹 >-009fcc?logoWidth=1" title="中印更激烈冲突曝光 印媒：双方鸣枪百发子弹  " alt="中印更激烈冲突曝光 印媒：双方鸣枪百发子弹  "></a></p>
-<p><a href="https://github.com/dhfknp3246/ntdtv/blob/master/gb/2020/09/16/a102941840.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/古今六大预言 2020年前后的大交集(上) >-009fcc?logoWidth=1" title="古今六大预言 2020年前后的大交集(上)  " alt="古今六大预言 2020年前后的大交集(上)  "></a></p>
 <p><a href="https://github.com/dhfknp3246/djy/blob/master/gb/20/9/16/n12406488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：中共政权是美中关系双赢的最大障碍   >-009fcc?logoWidth=1" title="杨威：中共政权是美中关系双赢的最大障碍  " alt="杨威：中共政权是美中关系双赢的最大障碍  "></a></p>
 <p><a href="https://github.com/dhfknp3246/djy/blob/master/gb/20/9/16/n12406530.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共罕见公开针对民营企业统战文件   >-009fcc?logoWidth=1" title="钟原：中共罕见公开针对民营企业统战文件  " alt="钟原：中共罕见公开针对民营企业统战文件  "></a></p>
-<p><a href="https://github.com/dhfknp3246/ntdtv/blob/master/gb/2020/09/16/a102941818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瞒不住了？陆媒曝光又一起病毒泄漏事件    >-009fcc?logoWidth=1" title="瞒不住了？陆媒曝光又一起病毒泄漏事件  " alt="瞒不住了？陆媒曝光又一起病毒泄漏事件  "></a></p>
+<p><a href="https://github.com/dhfknp3246/ntdtv/blob/master/gb/2020/09/16/a102941840.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/古今六大预言 2020年前后的大交集(上) >-009fcc?logoWidth=1" title="古今六大预言 2020年前后的大交集(上)  " alt="古今六大预言 2020年前后的大交集(上)  "></a></p>
+<p><a href="https://github.com/dhfknp3246/ntdtv/blob/master/gb/2020/09/17/a102942584.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美计划对台军售7武器/蓬佩奥炮轰习近平 “民>-009fcc?logoWidth=1" title="美计划对台军售7武器/蓬佩奥炮轰习近平 “民族复兴”老底被揭  " alt="美计划对台军售7武器/蓬佩奥炮轰习近平 “民族复兴”老底被揭  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -260,9 +262,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://dhfknp3246.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?xdmkk">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?dnrho">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?syzbb">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?fqxqy">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +308,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?khcfd">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?buuhl">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ofsto">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?xighr">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,10 +488,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/dhfknp3246/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dhfknp3246/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dhfknp3246/www/master/index.html?i">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dhfknp3246/www/blob/master/README.md?k#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/dhfknp3246/www/blob/master/README.md?h%231" title="分享本平台"></img>
-<br><a href="https://git.io/qbbbb">https://git.io/qbbbb</a>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/rnnnn" title="分享本平台"></img>
-<br><a href="https://is.gd/rnnnn">https://is.gd/rnnnn</a>
+<p><strong><a href="https://github.com/dhfknp3246/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dhfknp3246/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dhfknp3246/www/master/index.html?e">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dhfknp3246/www/blob/master/README.md?j#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/dhfknp3246/www/blob/master/README.md?d%231" title="分享本平台"></img>
+<br><a href="https://git.io/bbbbb">https://git.io/bbbbb</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/rrarr" title="分享本平台"></img>
+<br><a href="https://is.gd/rrarr">https://is.gd/rrarr</a>
 </div>
