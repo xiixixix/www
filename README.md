@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bhvnrr360/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bhvnrr360/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yuuuu">git.io/yuuuu</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppb">x.co/ppb</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ekkkk">git.io/ekkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a3a">x.co/a3a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/bhvnrr360/ntdtv/blob/master/gb/2020/09/17/a102942739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大教授公开信：吁习近平辞职 以应对内外危机>-009fcc?logoWidth=1" title="人大教授公开信：吁习近平辞职 以应对内外危机  " alt="人大教授公开信：吁习近平辞职 以应对内外危机  "></a></p>
 <p><a href="https://github.com/bhvnrr360/ntdtv/blob/master/gb/2020/09/17/a102942697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平连续两大动作 疑与江泽民撕破脸    >-009fcc?logoWidth=1" title="习近平连续两大动作 疑与江泽民撕破脸  " alt="习近平连续两大动作 疑与江泽民撕破脸  "></a></p>
 <p><a href="https://github.com/bhvnrr360/ntdtv/blob/master/gb/2020/09/17/a102942729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“军管”亚洲野心曝光 美防长亮出未来舰队>-009fcc?logoWidth=1" title="中共“军管”亚洲野心曝光 美防长亮出未来舰队  " alt="中共“军管”亚洲野心曝光 美防长亮出未来舰队  "></a></p>
+<p><a href="https://github.com/bhvnrr360/ntdtv/blob/master/gb/2020/09/17/a102942899.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭罚200个深蹲 江西女学生血尿肝肾功能受损>-009fcc?logoWidth=1" title="遭罚200个深蹲 江西女学生血尿肝肾功能受损  " alt="遭罚200个深蹲 江西女学生血尿肝肾功能受损  "></a></p>
 <p><a href="https://github.com/bhvnrr360/ntdtv/blob/master/gb/2020/09/02/a102931621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情表彰刚过 云南速建方舱 肉价飙涨100元>-009fcc?logoWidth=1" title="疫情表彰刚过 云南速建方舱 肉价飙涨100元  " alt="疫情表彰刚过 云南速建方舱 肉价飙涨100元  "></a></p>
 <p><a href="https://github.com/bhvnrr360/ntdtv/blob/master/gb/2020/09/17/a102942808.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天文奇观！一颗行星绕死星运行 诡异画面曝光 >-009fcc?logoWidth=1" title="天文奇观！一颗行星绕死星运行 诡异画面曝光  " alt="天文奇观！一颗行星绕死星运行 诡异画面曝光  "></a></p>
 <p><a href="https://github.com/bhvnrr360/ntdtv/blob/master/gb/2020/09/17/a102942675.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/密谋购军用充气船至中国 美华裔海军上尉之妻认>-009fcc?logoWidth=1" title="密谋购军用充气船至中国 美华裔海军上尉之妻认罪  " alt="密谋购军用充气船至中国 美华裔海军上尉之妻认罪  "></a></p>
 <p><a href="https://github.com/bhvnrr360/ntdtv/blob/master/gb/2020/09/17/a102942811.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/让利比亚进行大选 总理愿下台终结战乱    >-009fcc?logoWidth=1" title="让利比亚进行大选 总理愿下台终结战乱  " alt="让利比亚进行大选 总理愿下台终结战乱  "></a></p>
-<p><a href="https://github.com/bhvnrr360/ntdtv/blob/master/gb/2020/09/17/a102942803.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/UFO不好惹！美战机追逐 险引发战争(视频)>-009fcc?logoWidth=1" title="UFO不好惹！美战机追逐 险引发战争(视频)  " alt="UFO不好惹！美战机追逐 险引发战争(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bhvnrr360/djy/blob/master/gb/20/9/16/n12408991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大教授公开吁习近平辞职 结束一党专政   >-009fcc?logoWidth=1" title="人大教授公开吁习近平辞职 结束一党专政  " alt="人大教授公开吁习近平辞职 结束一党专政  "></a></p>
 <p><a href="https://github.com/bhvnrr360/djy/blob/master/gb/20/9/16/n12408312.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/回击习“教师爷”之说 欧盟要制裁人权犯   >-009fcc?logoWidth=1" title="回击习“教师爷”之说 欧盟要制裁人权犯  " alt="回击习“教师爷”之说 欧盟要制裁人权犯  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/bhvnrr360/djy/blob/master/gb/20/9/17/n12409786.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/教授发重磅猛文：习近平辞职         >-009fcc?logoWidth=1" title="教授发重磅猛文：习近平辞职  " alt="教授发重磅猛文：习近平辞职  "></a></p>
 <p><a href="https://github.com/bhvnrr360/djy/blob/master/gb/20/9/16/n12408984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞丽突封城 肉价涨至100元        >-009fcc?logoWidth=1" title="瑞丽突封城 肉价涨至100元  " alt="瑞丽突封城 肉价涨至100元  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/bhvnrr360/ntdtv/blob/master/gb/2020/09/17/a102942803.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/UFO不好惹！美战机追逐 险引发战争(视频)>-009fcc?logoWidth=1" title="UFO不好惹！美战机追逐 险引发战争(视频)  " alt="UFO不好惹！美战机追逐 险引发战争(视频)  "></a></p>
 <p><a href="https://github.com/bhvnrr360/djy/blob/master/gb/20/9/16/n12408256.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境部署重兵 共军启动二级战备     >-009fcc?logoWidth=1" title="中印边境部署重兵 共军启动二级战备  " alt="中印边境部署重兵 共军启动二级战备  "></a></p>
 <p><a href="https://github.com/bhvnrr360/djy/blob/master/gb/20/9/16/n12408697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山东荷泽现一例“复阳”病例 封村封路    >-009fcc?logoWidth=1" title="山东荷泽现一例“复阳”病例 封村封路  " alt="山东荷泽现一例“复阳”病例 封村封路  "></a></p>
 <p><a href="https://github.com/bhvnrr360/ntdtv/blob/master/gb/2020/09/16/a102941677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英媒：换掉习近平？北京政权面临两种选择   >-009fcc?logoWidth=1" title="英媒：换掉习近平？北京政权面临两种选择  " alt="英媒：换掉习近平？北京政权面临两种选择  "></a></p>
@@ -257,9 +258,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://bhvnrr360.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?knzgs">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?isoaj">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?lgvvo">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?smnbl">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -303,8 +304,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?fmaqc">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?xyvki">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?tvpta">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?zgodg">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -483,10 +484,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/bhvnrr360/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bhvnrr360/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bhvnrr360/www/master/index.html?r">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bhvnrr360/www/blob/master/README.md?a#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/bhvnrr360/www/blob/master/README.md?j%231" title="分享本平台"></img>
-<br><a href="https://git.io/yuuuu">https://git.io/yuuuu</a>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/nncnn" title="分享本平台"></img>
-<br><a href="https://is.gd/nncnn">https://is.gd/nncnn</a>
+<p><strong><a href="https://github.com/bhvnrr360/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bhvnrr360/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bhvnrr360/www/master/index.html?n">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bhvnrr360/www/blob/master/README.md?s#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/bhvnrr360/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<br><a href="https://git.io/ekkkk">https://git.io/ekkkk</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/nnhnn" title="分享本平台"></img>
+<br><a href="https://is.gd/nnhnn">https://is.gd/nnhnn</a>
 </div>
