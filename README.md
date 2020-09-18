@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mnotnz391/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mnotnz391/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rrrrr">git.io/rrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppk">x.co/ppk</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rrrrrrr">git.io/rrrrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j55">x.co/j55</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,15 @@
 <p><a href="https://github.com/mnotnz391/djy/blob/master/gb/20/9/18/n12412505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军人叛逃欧洲 与美国合作        >-009fcc?logoWidth=1" title="中共军人叛逃欧洲 与美国合作  " alt="中共军人叛逃欧洲 与美国合作  "></a></p>
 <p><a href="https://github.com/mnotnz391/djy/blob/master/gb/20/9/18/n12412303.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉抗疫护士及丈夫看慰问演出意外身亡    >-009fcc?logoWidth=1" title="武汉抗疫护士及丈夫看慰问演出意外身亡  " alt="武汉抗疫护士及丈夫看慰问演出意外身亡  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/mnotnz391/ntdtv/blob/master/gb/2020/09/17/a102942968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/这下炸锅了！他们要干什么？中共骇人数据库曝光>-009fcc?logoWidth=1" title="这下炸锅了！他们要干什么？中共骇人数据库曝光  " alt="这下炸锅了！他们要干什么？中共骇人数据库曝光  "></a></p>
-<p><a href="https://github.com/mnotnz391/ntdtv/blob/master/gb/2020/09/17/a102942960.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020刘伯温预言落空！背后原因是什么？  >-009fcc?logoWidth=1" title="2020刘伯温预言落空！背后原因是什么？  " alt="2020刘伯温预言落空！背后原因是什么？  "></a></p>
+<p><a href="https://github.com/mnotnz391/ntdtv/blob/master/gb/2020/09/18/a102943445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普公开讲述与习近平交恶过程：被习骗了   >-009fcc?logoWidth=1" title="川普公开讲述与习近平交恶过程：被习骗了  " alt="川普公开讲述与习近平交恶过程：被习骗了  "></a></p>
+<p><a href="https://github.com/mnotnz391/ntdtv/blob/master/gb/2020/09/17/a102943309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“毁灭地球”后又现狂文 称中国人应为中共陪葬>-009fcc?logoWidth=1" title="“毁灭地球”后又现狂文 称中国人应为中共陪葬  " alt="“毁灭地球”后又现狂文 称中国人应为中共陪葬  "></a></p>
 <p><a href="https://github.com/mnotnz391/djy/blob/master/gb/20/9/18/n12412397.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内斗 民企遭殃 北京自断生路      >-009fcc?logoWidth=1" title="中共内斗 民企遭殃 北京自断生路  " alt="中共内斗 民企遭殃 北京自断生路  "></a></p>
 <p><a href="https://github.com/mnotnz391/djy/blob/master/gb/20/9/18/n12413533.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美宣布微信和TikTok禁令细则 周日生效 >-009fcc?logoWidth=1" title="美宣布微信和TikTok禁令细则 周日生效  " alt="美宣布微信和TikTok禁令细则 周日生效  "></a></p>
-<p><a href="https://github.com/mnotnz391/ntdtv/blob/master/gb/2020/09/17/a102943152.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/改善近视、老花 一张A4纸 挽救恶视力   >-009fcc?logoWidth=1" title="改善近视、老花 一张A4纸 挽救恶视力  " alt="改善近视、老花 一张A4纸 挽救恶视力  "></a></p>
-<p><a href="https://github.com/mnotnz391/ntdtv/blob/master/gb/2020/09/17/a102943024.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳警搜查悉尼中领馆领事 中共发言人“石化”9>-009fcc?logoWidth=1" title="澳警搜查悉尼中领馆领事 中共发言人“石化”90秒  " alt="澳警搜查悉尼中领馆领事 中共发言人“石化”90秒  "></a></p>
+<p><a href="https://github.com/mnotnz391/ntdtv/blob/master/gb/2020/09/17/a102942968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/这下炸锅了！他们要干什么？中共骇人数据库曝光>-009fcc?logoWidth=1" title="这下炸锅了！他们要干什么？中共骇人数据库曝光  " alt="这下炸锅了！他们要干什么？中共骇人数据库曝光  "></a></p>
 <p><a href="https://github.com/mnotnz391/djy/blob/master/gb/20/9/18/n12413124.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华邮北京社长离京 40年来首无驻华记者   >-009fcc?logoWidth=1" title="华邮北京社长离京 40年来首无驻华记者  " alt="华邮北京社长离京 40年来首无驻华记者  "></a></p>
 <p><a href="https://github.com/mnotnz391/djy/blob/master/gb/20/9/16/n12407645.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/接两通电话 大陆外科主任医生选择退党    >-009fcc?logoWidth=1" title="接两通电话 大陆外科主任医生选择退党  " alt="接两通电话 大陆外科主任医生选择退党  "></a></p>
-<p><a href="https://github.com/mnotnz391/ntdtv/blob/master/gb/2020/09/18/a102943587.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下驾车安全出游 不可不知的9件事    >-009fcc?logoWidth=1" title="疫情下驾车安全出游 不可不知的9件事  " alt="疫情下驾车安全出游 不可不知的9件事  "></a></p>
-<p><a href="https://github.com/mnotnz391/ntdtv/blob/master/gb/2020/09/17/a102942697.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平连续两大动作 疑与江泽民撕破脸    >-009fcc?logoWidth=1" title="习近平连续两大动作 疑与江泽民撕破脸  " alt="习近平连续两大动作 疑与江泽民撕破脸  "></a></p>
+<p><a href="https://github.com/mnotnz391/ntdtv/blob/master/gb/2020/09/17/a102942960.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020刘伯温预言落空！背后原因是什么？  >-009fcc?logoWidth=1" title="2020刘伯温预言落空！背后原因是什么？  " alt="2020刘伯温预言落空！背后原因是什么？  "></a></p>
+<p><a href="https://github.com/mnotnz391/ntdtv/blob/master/gb/2020/09/17/a102943152.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/改善近视、老花 一张A4纸 挽救恶视力   >-009fcc?logoWidth=1" title="改善近视、老花 一张A4纸 挽救恶视力  " alt="改善近视、老花 一张A4纸 挽救恶视力  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -260,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://mnotnz391.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?shlnv">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?mwqwe">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?qktsg">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?zhopp">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?eqlws">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?wgckr">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?zfgeu">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?epthd">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,10 +485,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/mnotnz391/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mnotnz391/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mnotnz391/www/master/index.html?m">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mnotnz391/www/blob/master/README.md?u#1<br>
+<p><strong><a href="https://github.com/mnotnz391/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mnotnz391/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mnotnz391/www/master/index.html?g">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mnotnz391/www/blob/master/README.md?v#1<br>
 <br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/mnotnz391/www/blob/master/README.md?e%231" title="分享本平台"></img>
-<br><a href="https://git.io/rrrrr">https://git.io/rrrrr</a>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ztttt" title="分享本平台"></img>
-<br><a href="https://is.gd/ztttt">https://is.gd/ztttt</a>
+<br><a href="https://git.io/rrrrrrr">https://git.io/rrrrrrr</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/stttt" title="分享本平台"></img>
+<br><a href="https://is.gd/stttt">https://is.gd/stttt</a>
 </div>
