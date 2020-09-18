@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/fmydwl375/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fmydwl375/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/zhhhh">git.io/zhhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pkp">x.co/pkp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/666666">git.io/666666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p8p">x.co/p8p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,19 +26,20 @@
 <p><a href="https://github.com/fmydwl375/ntdtv/blob/master/gb/2020/09/18/a102943448.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民调：非裔选民多数担心警力短缺 支持立法惩暴>-009fcc?logoWidth=1" title="民调：非裔选民多数担心警力短缺 支持立法惩暴  " alt="民调：非裔选民多数担心警力短缺 支持立法惩暴  "></a></p>
 <p><a href="https://github.com/fmydwl375/ntdtv/blob/master/gb/2020/09/18/a102943416.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美助卿直指中共 “目无法纪的恶霸”     >-009fcc?logoWidth=1" title="美助卿直指中共 “目无法纪的恶霸”  " alt="美助卿直指中共 “目无法纪的恶霸”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/fmydwl375/djy/blob/master/gb/20/9/17/n12410677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第二名出逃者将中共生物武器信息告知美国   >-009fcc?logoWidth=1" title="第二名出逃者将中共生物武器信息告知美国  " alt="第二名出逃者将中共生物武器信息告知美国  "></a></p>
 <p><a href="https://github.com/fmydwl375/djy/blob/master/gb/20/9/17/n12411507.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普谈与习近平交恶原因 暗示被骗了     >-009fcc?logoWidth=1" title="川普谈与习近平交恶原因 暗示被骗了  " alt="川普谈与习近平交恶原因 暗示被骗了  "></a></p>
-<p><a href="https://github.com/fmydwl375/djy/blob/master/gb/20/9/15/n12405724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乌海市疫情大数据 监控超百万人       >-009fcc?logoWidth=1" title="乌海市疫情大数据 监控超百万人  " alt="乌海市疫情大数据 监控超百万人  "></a></p>
-<p><a href="https://github.com/fmydwl375/djy/blob/master/gb/20/9/17/n12411382.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美第一女婿如何化解中东恩怨         >-009fcc?logoWidth=1" title="美第一女婿如何化解中东恩怨  " alt="美第一女婿如何化解中东恩怨  "></a></p>
+<p><a href="https://github.com/fmydwl375/djy/blob/master/gb/20/9/17/n12410677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第二名出逃者将中共生物武器信息告知美国   >-009fcc?logoWidth=1" title="第二名出逃者将中共生物武器信息告知美国  " alt="第二名出逃者将中共生物武器信息告知美国  "></a></p>
+<p><a href="https://github.com/fmydwl375/djy/blob/master/gb/20/9/18/n12412250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：中共内斗刀光剑影摊牌在即？     >-009fcc?logoWidth=1" title="李正宽：中共内斗刀光剑影摊牌在即？  " alt="李正宽：中共内斗刀光剑影摊牌在即？  "></a></p>
 <p><a href="https://github.com/fmydwl375/djy/blob/master/gb/20/9/17/n12411575.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美次卿访台 专家分析美中台关系走向     >-009fcc?logoWidth=1" title="美次卿访台 专家分析美中台关系走向  " alt="美次卿访台 专家分析美中台关系走向  "></a></p>
-<p><a href="https://github.com/fmydwl375/djy/blob/master/gb/20/9/17/n12411544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平小组治国模式 渐趋低调转入地下    >-009fcc?logoWidth=1" title="习近平小组治国模式 渐趋低调转入地下  " alt="习近平小组治国模式 渐趋低调转入地下  "></a></p>
-<p><a href="https://github.com/fmydwl375/djy/blob/master/gb/20/9/16/n12408991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大教授公开吁习近平辞职 结束一党专政   >-009fcc?logoWidth=1" title="人大教授公开吁习近平辞职 结束一党专政  " alt="人大教授公开吁习近平辞职 结束一党专政  "></a></p>
-<p><a href="https://github.com/fmydwl375/djy/blob/master/gb/20/9/16/n12408647.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：读《转法轮》何罪之有？       >-009fcc?logoWidth=1" title="王友群：读《转法轮》何罪之有？  " alt="王友群：读《转法轮》何罪之有？  "></a></p>
 <p><a href="https://github.com/fmydwl375/djy/blob/master/gb/20/9/17/n12411716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/危机四伏 学者：逼退习解体中共       >-009fcc?logoWidth=1" title="危机四伏 学者：逼退习解体中共  " alt="危机四伏 学者：逼退习解体中共  "></a></p>
-<p><a href="https://github.com/fmydwl375/djy/blob/master/gb/20/9/17/n12411168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/偷听敌台罪？广州村官接受外媒采访被停职   >-009fcc?logoWidth=1" title="偷听敌台罪？广州村官接受外媒采访被停职  " alt="偷听敌台罪？广州村官接受外媒采访被停职  "></a></p>
+<p><a href="https://github.com/fmydwl375/djy/blob/master/gb/20/9/15/n12405724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乌海市疫情大数据 监控超百万人       >-009fcc?logoWidth=1" title="乌海市疫情大数据 监控超百万人  " alt="乌海市疫情大数据 监控超百万人  "></a></p>
+<p><a href="https://github.com/fmydwl375/djy/blob/master/gb/20/9/17/n12411544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平小组治国模式 渐趋低调转入地下    >-009fcc?logoWidth=1" title="习近平小组治国模式 渐趋低调转入地下  " alt="习近平小组治国模式 渐趋低调转入地下  "></a></p>
+<p><a href="https://github.com/fmydwl375/djy/blob/master/gb/20/9/16/n12408647.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：读《转法轮》何罪之有？       >-009fcc?logoWidth=1" title="王友群：读《转法轮》何罪之有？  " alt="王友群：读《转法轮》何罪之有？  "></a></p>
 <p><a href="https://github.com/fmydwl375/djy/blob/master/gb/20/9/17/n12412019.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共狱警收入何以高出普通公务员数倍     >-009fcc?logoWidth=1" title="中共狱警收入何以高出普通公务员数倍  " alt="中共狱警收入何以高出普通公务员数倍  "></a></p>
+<p><a href="https://github.com/fmydwl375/djy/blob/master/gb/20/9/18/n12412505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军人叛逃欧洲 与美国合作        >-009fcc?logoWidth=1" title="中共军人叛逃欧洲 与美国合作  " alt="中共军人叛逃欧洲 与美国合作  "></a></p>
 <p><a href="https://github.com/fmydwl375/djy/blob/master/gb/20/9/18/n12412303.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉抗疫护士及丈夫看慰问演出意外身亡    >-009fcc?logoWidth=1" title="武汉抗疫护士及丈夫看慰问演出意外身亡  " alt="武汉抗疫护士及丈夫看慰问演出意外身亡  "></a></p>
+<p><a href="https://github.com/fmydwl375/djy/blob/master/gb/20/9/17/n12411960.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人权活动家吴玉华：“三退”大潮摧毁中共   >-009fcc?logoWidth=1" title="人权活动家吴玉华：“三退”大潮摧毁中共  " alt="人权活动家吴玉华：“三退”大潮摧毁中共  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/fmydwl375/djy/blob/master/gb/20/9/17/n12411168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/偷听敌台罪？广州村官接受外媒采访被停职   >-009fcc?logoWidth=1" title="偷听敌台罪？广州村官接受外媒采访被停职  " alt="偷听敌台罪？广州村官接受外媒采访被停职  "></a></p>
 <p><a href="https://github.com/fmydwl375/ntdtv/blob/master/gb/2020/09/17/a102942634.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境冲突 印防长首爆中共“重大伤亡”  >-009fcc?logoWidth=1" title="中印边境冲突 印防长首爆中共“重大伤亡”  " alt="中印边境冲突 印防长首爆中共“重大伤亡”  "></a></p>
 <p><a href="https://github.com/fmydwl375/ntdtv/blob/master/gb/2020/09/17/a102943152.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/改善近视、老花 一张A4纸 挽救恶视力   >-009fcc?logoWidth=1" title="改善近视、老花 一张A4纸 挽救恶视力  " alt="改善近视、老花 一张A4纸 挽救恶视力  "></a></p>
 <p><a href="https://github.com/fmydwl375/djy/blob/master/gb/20/9/17/n12411146.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/失业严重 中共搞“职业培训” 民众直指无用 >-009fcc?logoWidth=1" title="失业严重 中共搞“职业培训” 民众直指无用  " alt="失业严重 中共搞“职业培训” 民众直指无用  "></a></p>
@@ -260,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://fmydwl375.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?wobmf">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?uneuo">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?gdqma">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?soxjq">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?zmwow">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?klbhl">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?yejfe">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?roywz">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,10 +487,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/fmydwl375/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fmydwl375/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fmydwl375/www/master/index.html?v">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fmydwl375/www/blob/master/README.md?x#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/fmydwl375/www/blob/master/README.md?w%231" title="分享本平台"></img>
-<br><a href="https://git.io/zhhhh">https://git.io/zhhhh</a>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/yyyyu" title="分享本平台"></img>
-<br><a href="https://is.gd/yyyyu">https://is.gd/yyyyu</a>
+<p><strong><a href="https://github.com/fmydwl375/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fmydwl375/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fmydwl375/www/master/index.html?t">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fmydwl375/www/blob/master/README.md?c#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/fmydwl375/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<br><a href="https://git.io/666666">https://git.io/666666</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/tnnnn" title="分享本平台"></img>
+<br><a href="https://is.gd/tnnnn">https://is.gd/tnnnn</a>
 </div>
