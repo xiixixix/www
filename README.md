@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jhizar366/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jhizar366/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uyyyy">git.io/uyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/raa">x.co/raa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ffffff">git.io/ffffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aaq">x.co/aaq</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -34,8 +34,8 @@
 <p><a href="https://github.com/jhizar366/djy/blob/master/gb/20/9/17/n12411544.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平小组治国模式 渐趋低调转入地下    >-009fcc?logoWidth=1" title="习近平小组治国模式 渐趋低调转入地下  " alt="习近平小组治国模式 渐趋低调转入地下  "></a></p>
 <p><a href="https://github.com/jhizar366/djy/blob/master/gb/20/9/17/n12410677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第二名出逃者将中共生物武器信息告知美国   >-009fcc?logoWidth=1" title="第二名出逃者将中共生物武器信息告知美国  " alt="第二名出逃者将中共生物武器信息告知美国  "></a></p>
 <p><a href="https://github.com/jhizar366/djy/blob/master/gb/20/9/16/n12408647.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：读《转法轮》何罪之有？       >-009fcc?logoWidth=1" title="王友群：读《转法轮》何罪之有？  " alt="王友群：读《转法轮》何罪之有？  "></a></p>
-<p><a href="https://github.com/jhizar366/djy/blob/master/gb/20/9/17/n12411168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/偷听敌台罪？广州村官接受外媒采访被停职   >-009fcc?logoWidth=1" title="偷听敌台罪？广州村官接受外媒采访被停职  " alt="偷听敌台罪？广州村官接受外媒采访被停职  "></a></p>
 <p><a href="https://github.com/jhizar366/djy/blob/master/gb/20/9/17/n12411716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/危机四伏 学者：逼退习解体中共       >-009fcc?logoWidth=1" title="危机四伏 学者：逼退习解体中共  " alt="危机四伏 学者：逼退习解体中共  "></a></p>
+<p><a href="https://github.com/jhizar366/djy/blob/master/gb/20/9/17/n12411168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/偷听敌台罪？广州村官接受外媒采访被停职   >-009fcc?logoWidth=1" title="偷听敌台罪？广州村官接受外媒采访被停职  " alt="偷听敌台罪？广州村官接受外媒采访被停职  "></a></p>
 <p><a href="https://github.com/jhizar366/djy/blob/master/gb/20/9/16/n12407645.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/接两通电话 大陆外科主任医生选择退党    >-009fcc?logoWidth=1" title="接两通电话 大陆外科主任医生选择退党  " alt="接两通电话 大陆外科主任医生选择退党  "></a></p>
 <p><a href="https://github.com/jhizar366/djy/blob/master/gb/20/9/17/n12411693.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/【薇羽看世间】骇人的数据库         >-009fcc?logoWidth=1" title="【薇羽看世间】骇人的数据库  " alt="【薇羽看世间】骇人的数据库  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://jhizar366.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?reihj">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?myjtk">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?lurdz">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?tytaq">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?iaeom">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ojsfi">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?fzdvu">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?zhvfj">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,10 +486,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/jhizar366/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jhizar366/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jhizar366/www/master/index.html?g">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jhizar366/www/blob/master/README.md?g#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/jhizar366/www/blob/master/README.md?a%231" title="分享本平台"></img>
-<br><a href="https://git.io/uyyyy">https://git.io/uyyyy</a>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/yyyyk" title="分享本平台"></img>
-<br><a href="https://is.gd/yyyyk">https://is.gd/yyyyk</a>
+<p><strong><a href="https://github.com/jhizar366/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jhizar366/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jhizar366/www/master/index.html?a">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jhizar366/www/blob/master/README.md?h#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/jhizar366/www/blob/master/README.md?o%231" title="分享本平台"></img>
+<br><a href="https://git.io/ffffff">https://git.io/ffffff</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/nnjnn" title="分享本平台"></img>
+<br><a href="https://is.gd/nnjnn">https://is.gd/nnjnn</a>
 </div>
