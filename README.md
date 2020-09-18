@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jhizar366/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jhizar366/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ffffff">git.io/ffffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aaq">x.co/aaq</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cffff">git.io/cffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/udd">x.co/udd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/jhizar366/ntdtv/blob/master/gb/2020/09/17/a102942866.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习连续两大动作 疑与江泽民撕破脸      >-009fcc?logoWidth=1" title="习连续两大动作 疑与江泽民撕破脸  " alt="习连续两大动作 疑与江泽民撕破脸  "></a></p>
 <p><a href="https://github.com/jhizar366/ntdtv/blob/master/gb/2020/09/17/a102942676.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务次卿访台规格不一般 人权助卿陪同   >-009fcc?logoWidth=1" title="美国务次卿访台规格不一般 人权助卿陪同  " alt="美国务次卿访台规格不一般 人权助卿陪同  "></a></p>
 <p><a href="https://github.com/jhizar366/ntdtv/blob/master/gb/2020/09/17/a102942766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵盛烨成“灭绝国师” 毁灭地球言论震惊世界 >-009fcc?logoWidth=1" title="赵盛烨成“灭绝国师” 毁灭地球言论震惊世界  " alt="赵盛烨成“灭绝国师” 毁灭地球言论震惊世界  "></a></p>
+<p><a href="https://github.com/jhizar366/ntdtv/blob/master/gb/2020/09/18/a102943470.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/直播挨棍 查案被袭 港记者九死一生     >-009fcc?logoWidth=1" title="直播挨棍 查案被袭 港记者九死一生  " alt="直播挨棍 查案被袭 港记者九死一生  "></a></p>
 <p><a href="https://github.com/jhizar366/ntdtv/blob/master/gb/2020/09/18/a102943416.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美助卿直指中共 “目无法纪的恶霸”     >-009fcc?logoWidth=1" title="美助卿直指中共 “目无法纪的恶霸”  " alt="美助卿直指中共 “目无法纪的恶霸”  "></a></p>
 <p><a href="https://github.com/jhizar366/ntdtv/blob/master/gb/2020/09/17/a102942694.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/今年中国房企压力大 每月就有36家破产   >-009fcc?logoWidth=1" title="今年中国房企压力大 每月就有36家破产  " alt="今年中国房企压力大 每月就有36家破产  "></a></p>
 <p><a href="https://github.com/jhizar366/ntdtv/blob/master/gb/2020/09/02/a102931621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情表彰刚过 云南速建方舱 肉价飙涨100元>-009fcc?logoWidth=1" title="疫情表彰刚过 云南速建方舱 肉价飙涨100元  " alt="疫情表彰刚过 云南速建方舱 肉价飙涨100元  "></a></p>
 <p><a href="https://github.com/jhizar366/ntdtv/blob/master/gb/2020/09/17/a102943309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“毁灭地球”后又现狂文 称中国人应为中共陪葬>-009fcc?logoWidth=1" title="“毁灭地球”后又现狂文 称中国人应为中共陪葬  " alt="“毁灭地球”后又现狂文 称中国人应为中共陪葬  "></a></p>
-<p><a href="https://github.com/jhizar366/ntdtv/blob/master/gb/2020/09/17/a102943306.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/密歇根州选票印错候选人 川普:民主党人故意为>-009fcc?logoWidth=1" title="密歇根州选票印错候选人 川普:民主党人故意为之  " alt="密歇根州选票印错候选人 川普:民主党人故意为之  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jhizar366/djy/blob/master/gb/20/9/17/n12411507.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普谈与习近平交恶原因 暗示被骗了     >-009fcc?logoWidth=1" title="川普谈与习近平交恶原因 暗示被骗了  " alt="川普谈与习近平交恶原因 暗示被骗了  "></a></p>
 <p><a href="https://github.com/jhizar366/djy/blob/master/gb/20/9/16/n12408991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人大教授公开吁习近平辞职 结束一党专政   >-009fcc?logoWidth=1" title="人大教授公开吁习近平辞职 结束一党专政  " alt="人大教授公开吁习近平辞职 结束一党专政  "></a></p>
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://jhizar366.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?myjtk">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?xrzyz">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?tytaq">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?zwubc">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?fzdvu">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?zhvfj">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?gximl">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?vglyf">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,10 +486,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/jhizar366/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jhizar366/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jhizar366/www/master/index.html?a">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jhizar366/www/blob/master/README.md?h#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/jhizar366/www/blob/master/README.md?o%231" title="分享本平台"></img>
-<br><a href="https://git.io/ffffff">https://git.io/ffffff</a>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/nnjnn" title="分享本平台"></img>
-<br><a href="https://is.gd/nnjnn">https://is.gd/nnjnn</a>
+<p><strong><a href="https://github.com/jhizar366/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jhizar366/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jhizar366/www/master/index.html?l">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jhizar366/www/blob/master/README.md?o#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/jhizar366/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<br><a href="https://git.io/cffff">https://git.io/cffff</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/tttte" title="分享本平台"></img>
+<br><a href="https://is.gd/tttte">https://is.gd/tttte</a>
 </div>
