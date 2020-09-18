@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mnotnz391/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mnotnz391/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ggggggg">git.io/ggggggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa3">x.co/aa3</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ytttt">git.io/ytttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2226">x.co/2226</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -27,19 +27,22 @@
 <p><a href="https://github.com/mnotnz391/ntdtv/blob/master/gb/2020/09/18/a102943924.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中方无意撤军 印度加强过冬战备       >-009fcc?logoWidth=1" title="中方无意撤军 印度加强过冬战备  " alt="中方无意撤军 印度加强过冬战备  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/mnotnz391/djy/blob/master/gb/20/9/18/n12412250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：中共内斗刀光剑影摊牌在即？     >-009fcc?logoWidth=1" title="李正宽：中共内斗刀光剑影摊牌在即？  " alt="李正宽：中共内斗刀光剑影摊牌在即？  "></a></p>
+<p><a href="https://github.com/mnotnz391/djy/blob/master/gb/20/9/18/n12413837.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美智库最新报告 曝光中共统战部       >-009fcc?logoWidth=1" title="美智库最新报告 曝光中共统战部  " alt="美智库最新报告 曝光中共统战部  "></a></p>
 <p><a href="https://github.com/mnotnz391/djy/blob/master/gb/20/9/15/n12405724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乌海市疫情大数据 监控超百万人       >-009fcc?logoWidth=1" title="乌海市疫情大数据 监控超百万人  " alt="乌海市疫情大数据 监控超百万人  "></a></p>
-<p><a href="https://github.com/mnotnz391/djy/blob/master/gb/20/9/17/n12410677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第二名出逃者将中共生物武器信息告知美国   >-009fcc?logoWidth=1" title="第二名出逃者将中共生物武器信息告知美国  " alt="第二名出逃者将中共生物武器信息告知美国  "></a></p>
-<p><a href="https://github.com/mnotnz391/djy/blob/master/gb/20/9/18/n12412725.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江西青年拒服兵役遭八项重罚 包括罚款2万  >-009fcc?logoWidth=1" title="江西青年拒服兵役遭八项重罚 包括罚款2万  " alt="江西青年拒服兵役遭八项重罚 包括罚款2万  "></a></p>
 <p><a href="https://github.com/mnotnz391/djy/blob/master/gb/20/9/17/n12411575.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美次卿访台 专家分析美中台关系走向     >-009fcc?logoWidth=1" title="美次卿访台 专家分析美中台关系走向  " alt="美次卿访台 专家分析美中台关系走向  "></a></p>
-<p><a href="https://github.com/mnotnz391/djy/blob/master/gb/20/9/17/n12411507.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普谈与习近平交恶原因 暗示被骗了     >-009fcc?logoWidth=1" title="川普谈与习近平交恶原因 暗示被骗了  " alt="川普谈与习近平交恶原因 暗示被骗了  "></a></p>
 <p><a href="https://github.com/mnotnz391/djy/blob/master/gb/20/9/17/n12411716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/危机四伏 学者：逼退习解体中共       >-009fcc?logoWidth=1" title="危机四伏 学者：逼退习解体中共  " alt="危机四伏 学者：逼退习解体中共  "></a></p>
+<p><a href="https://github.com/mnotnz391/djy/blob/master/gb/20/9/18/n12413225.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“全世界发现中共说谎” 习近平老友批中共瞒疫>-009fcc?logoWidth=1" title="“全世界发现中共说谎” 习近平老友批中共瞒疫  " alt="“全世界发现中共说谎” 习近平老友批中共瞒疫  "></a></p>
+<p><a href="https://github.com/mnotnz391/djy/blob/master/gb/20/9/18/n12414132.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中共“国进民退”开倒车 难掩窘境   >-009fcc?logoWidth=1" title="分析：中共“国进民退”开倒车 难掩窘境  " alt="分析：中共“国进民退”开倒车 难掩窘境  "></a></p>
 <p><a href="https://github.com/mnotnz391/djy/blob/master/gb/20/9/16/n12408647.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：读《转法轮》何罪之有？       >-009fcc?logoWidth=1" title="王友群：读《转法轮》何罪之有？  " alt="王友群：读《转法轮》何罪之有？  "></a></p>
+<p><a href="https://github.com/mnotnz391/djy/blob/master/gb/20/9/18/n12413596.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共党员入境美国遭遣返 法律学者：新政首例 >-009fcc?logoWidth=1" title="中共党员入境美国遭遣返 法律学者：新政首例  " alt="中共党员入境美国遭遣返 法律学者：新政首例  "></a></p>
 <p><a href="https://github.com/mnotnz391/djy/blob/master/gb/20/9/17/n12412019.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共狱警收入何以高出普通公务员数倍     >-009fcc?logoWidth=1" title="中共狱警收入何以高出普通公务员数倍  " alt="中共狱警收入何以高出普通公务员数倍  "></a></p>
+<p><a href="https://github.com/mnotnz391/djy/blob/master/gb/20/9/18/n12414201.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京顺义通州交界传巨响 疑化工厂爆炸    >-009fcc?logoWidth=1" title="北京顺义通州交界传巨响 疑化工厂爆炸  " alt="北京顺义通州交界传巨响 疑化工厂爆炸  "></a></p>
+<p><a href="https://github.com/mnotnz391/djy/blob/master/gb/20/9/18/n12414216.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆许多外贸人员爆料 银行卡遭公安冻结   >-009fcc?logoWidth=1" title="大陆许多外贸人员爆料 银行卡遭公安冻结  " alt="大陆许多外贸人员爆料 银行卡遭公安冻结  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/mnotnz391/djy/blob/master/gb/20/9/18/n12412355.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共强割民企韭菜 上海商人跨海三退     >-009fcc?logoWidth=1" title="中共强割民企韭菜 上海商人跨海三退  " alt="中共强割民企韭菜 上海商人跨海三退  "></a></p>
+<p><a href="https://github.com/mnotnz391/ntdtv/blob/master/gb/2020/09/18/a102943445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普公开讲述与习近平交恶过程：被习骗了   >-009fcc?logoWidth=1" title="川普公开讲述与习近平交恶过程：被习骗了  " alt="川普公开讲述与习近平交恶过程：被习骗了  "></a></p>
 <p><a href="https://github.com/mnotnz391/djy/blob/master/gb/20/9/18/n12412505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军人叛逃欧洲 与美国合作        >-009fcc?logoWidth=1" title="中共军人叛逃欧洲 与美国合作  " alt="中共军人叛逃欧洲 与美国合作  "></a></p>
 <p><a href="https://github.com/mnotnz391/djy/blob/master/gb/20/9/18/n12412303.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉抗疫护士及丈夫看慰问演出意外身亡    >-009fcc?logoWidth=1" title="武汉抗疫护士及丈夫看慰问演出意外身亡  " alt="武汉抗疫护士及丈夫看慰问演出意外身亡  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/mnotnz391/ntdtv/blob/master/gb/2020/09/18/a102943445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普公开讲述与习近平交恶过程：被习骗了   >-009fcc?logoWidth=1" title="川普公开讲述与习近平交恶过程：被习骗了  " alt="川普公开讲述与习近平交恶过程：被习骗了  "></a></p>
 <p><a href="https://github.com/mnotnz391/ntdtv/blob/master/gb/2020/09/18/a102943686.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国粮荒迫在眉睫 当局强砍果树逼农民种粮  >-009fcc?logoWidth=1" title="中国粮荒迫在眉睫 当局强砍果树逼农民种粮  " alt="中国粮荒迫在眉睫 当局强砍果树逼农民种粮  "></a></p>
 <p><a href="https://github.com/mnotnz391/ntdtv/blob/master/gb/2020/09/17/a102943309.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“毁灭地球”后又现狂文 称中国人应为中共陪葬>-009fcc?logoWidth=1" title="“毁灭地球”后又现狂文 称中国人应为中共陪葬  " alt="“毁灭地球”后又现狂文 称中国人应为中共陪葬  "></a></p>
 <p><a href="https://github.com/mnotnz391/djy/blob/master/gb/20/9/18/n12412397.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内斗 民企遭殃 北京自断生路      >-009fcc?logoWidth=1" title="中共内斗 民企遭殃 北京自断生路  " alt="中共内斗 民企遭殃 北京自断生路  "></a></p>
@@ -259,9 +262,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://mnotnz391.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?dfite">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?xkymr">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?smawk">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?lnorp">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +308,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?rfozh">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?jdqnd">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?cambp">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?fqffz">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,10 +488,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/mnotnz391/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mnotnz391/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mnotnz391/www/master/index.html?o">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mnotnz391/www/blob/master/README.md?o#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/mnotnz391/www/blob/master/README.md?x%231" title="分享本平台"></img>
-<br><a href="https://git.io/ggggggg">https://git.io/ggggggg</a>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ppkpp" title="分享本平台"></img>
-<br><a href="https://is.gd/ppkpp">https://is.gd/ppkpp</a>
+<p><strong><a href="https://github.com/mnotnz391/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mnotnz391/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mnotnz391/www/master/index.html?p">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mnotnz391/www/blob/master/README.md?v#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/mnotnz391/www/blob/master/README.md?e%231" title="分享本平台"></img>
+<br><a href="https://git.io/ytttt">https://git.io/ytttt</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/znnnn" title="分享本平台"></img>
+<br><a href="https://is.gd/znnnn">https://is.gd/znnnn</a>
 </div>
