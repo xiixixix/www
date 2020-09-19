@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qalxag313/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qalxag313/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/xssss">git.io/xssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3555">x.co/3555</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/n7777">git.io/n7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/hua9">x.co/hua9</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/qalxag313/ntdtv/blob/master/gb/2020/09/19/a102944474.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京深夜连环爆火光冲天 微博诡异全删(视频)>-009fcc?logoWidth=1" title="北京深夜连环爆火光冲天 微博诡异全删(视频)  " alt="北京深夜连环爆火光冲天 微博诡异全删(视频)  "></a></p>
 <p><a href="https://github.com/qalxag313/ntdtv/blob/master/gb/2020/09/19/a102944448.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共前高官：中国天天忽悠 早晚要付出沉重代价>-009fcc?logoWidth=1" title="中共前高官：中国天天忽悠 早晚要付出沉重代价  " alt="中共前高官：中国天天忽悠 早晚要付出沉重代价  "></a></p>
 <p><a href="https://github.com/qalxag313/ntdtv/blob/master/gb/2020/09/19/a102944449.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大法官金斯伯格去世 微信被禁        >-009fcc?logoWidth=1" title="大法官金斯伯格去世 微信被禁  " alt="大法官金斯伯格去世 微信被禁  "></a></p>
+<p><a href="https://github.com/qalxag313/ntdtv/blob/master/gb/2020/09/19/a102944844.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长春交警购36万哈雷摩托 网民批“臀尖上的浪>-009fcc?logoWidth=1" title="长春交警购36万哈雷摩托 网民批“臀尖上的浪费”  " alt="长春交警购36万哈雷摩托 网民批“臀尖上的浪费”  "></a></p>
+<p><a href="https://github.com/qalxag313/ntdtv/blob/master/gb/2020/09/19/a102944873.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/搞笑诺贝尔奖公布 中国5“外包杀手”获管理学>-009fcc?logoWidth=1" title="搞笑诺贝尔奖公布 中国5“外包杀手”获管理学奖  " alt="搞笑诺贝尔奖公布 中国5“外包杀手”获管理学奖  "></a></p>
 <p><a href="https://github.com/qalxag313/ntdtv/blob/master/gb/2020/09/19/a102944855.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/联手抗共？美欧最快月内举行首次中国问题对话 >-009fcc?logoWidth=1" title="联手抗共？美欧最快月内举行首次中国问题对话  " alt="联手抗共？美欧最快月内举行首次中国问题对话  "></a></p>
 <p><a href="https://github.com/qalxag313/ntdtv/blob/master/gb/2020/09/19/a102944800.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/挑衅美军？中共空军首播模拟轰炸关岛基地影片 >-009fcc?logoWidth=1" title="挑衅美军？中共空军首播模拟轰炸关岛基地影片  " alt="挑衅美军？中共空军首播模拟轰炸关岛基地影片  "></a></p>
 <p><a href="https://github.com/qalxag313/ntdtv/blob/master/gb/2020/09/19/a102944803.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/下达TikTok禁令后 川普称收购协议将有多>-009fcc?logoWidth=1" title="下达TikTok禁令后 川普称收购协议将有多种选项  " alt="下达TikTok禁令后 川普称收购协议将有多种选项  "></a></p>
-<p><a href="https://github.com/qalxag313/ntdtv/blob/master/gb/2020/09/19/a102944764.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台美联手追查中国黑客 FBI代表首度现身台记>-009fcc?logoWidth=1" title="台美联手追查中国黑客 FBI代表首度现身台记者会  " alt="台美联手追查中国黑客 FBI代表首度现身台记者会  "></a></p>
-<p><a href="https://github.com/qalxag313/ntdtv/blob/master/gb/2020/09/19/a102944589.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/Zoom涉支持恐怖主义 美法律组织吁行司法调>-009fcc?logoWidth=1" title="Zoom涉支持恐怖主义 美法律组织吁行司法调查  " alt="Zoom涉支持恐怖主义 美法律组织吁行司法调查  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qalxag313/djy/blob/master/gb/20/9/18/n12414308.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美吁关系对等 崔天凯威胁踩红线       >-009fcc?logoWidth=1" title="美吁关系对等 崔天凯威胁踩红线  " alt="美吁关系对等 崔天凯威胁踩红线  "></a></p>
 <p><a href="https://github.com/qalxag313/djy/blob/master/gb/20/6/4/n12162113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加夫尼：瘟疫让中共原形毕露         >-009fcc?logoWidth=1" title="加夫尼：瘟疫让中共原形毕露  " alt="加夫尼：瘟疫让中共原形毕露  "></a></p>
@@ -262,9 +262,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://qalxag313.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ctcub">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?outgh">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?jbqyo">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?vfcfe">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -308,8 +308,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?dwolc">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?fpaor">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?qubfg">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?qrvvq">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -488,10 +488,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/qalxag313/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qalxag313/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qalxag313/www/master/index.html?x">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qalxag313/www/blob/master/README.md?t#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/qalxag313/www/blob/master/README.md?o%231" title="分享本平台"></img>
-<br><a href="https://git.io/xssss">https://git.io/xssss</a>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/yqqqq" title="分享本平台"></img>
-<br><a href="https://is.gd/yqqqq">https://is.gd/yqqqq</a>
+<p><strong><a href="https://github.com/qalxag313/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qalxag313/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qalxag313/www/master/index.html?y">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qalxag313/www/blob/master/README.md?f#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/qalxag313/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<br><a href="https://git.io/n7777">https://git.io/n7777</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/tiiii" title="分享本平台"></img>
+<br><a href="https://is.gd/tiiii">https://is.gd/tiiii</a>
 </div>
