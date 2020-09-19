@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/hgcpqr3249/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hgcpqr3249/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gmmmm">git.io/gmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j44">x.co/j44</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/itttt">git.io/itttt</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p8p">x.co/p8p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/hgcpqr3249/ntdtv/blob/master/gb/2020/09/19/a102944242.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国大量外贸人员银行卡被公安冻结内情曝光  >-009fcc?logoWidth=1" title="中国大量外贸人员银行卡被公安冻结内情曝光  " alt="中国大量外贸人员银行卡被公安冻结内情曝光  "></a></p>
+<p><a href="https://github.com/hgcpqr3249/ntdtv/blob/master/gb/2020/09/18/a102943691.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微信与TikTok禁令生效 对用户有何影响 >-009fcc?logoWidth=1" title="微信与TikTok禁令生效 对用户有何影响  " alt="微信与TikTok禁令生效 对用户有何影响  "></a></p>
 <p><a href="https://github.com/hgcpqr3249/ntdtv/blob/master/gb/2020/09/19/a102944214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:微信被美“斩立决”/蔡英文“有决心踏出>-009fcc?logoWidth=1" title="文昭:微信被美“斩立决”/蔡英文“有决心踏出关键一步”美台建交在即？  " alt="文昭:微信被美“斩立决”/蔡英文“有决心踏出关键一步”美台建交在即？  "></a></p>
 <p><a href="https://github.com/hgcpqr3249/ntdtv/blob/master/gb/2020/09/18/a102944105.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文宴请美国务次卿：台湾有决心迈出关键一步>-009fcc?logoWidth=1" title="蔡英文宴请美国务次卿：台湾有决心迈出关键一步  " alt="蔡英文宴请美国务次卿：台湾有决心迈出关键一步  "></a></p>
 <p><a href="https://github.com/hgcpqr3249/ntdtv/blob/master/gb/2020/09/18/a102943530.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“沉默大多数”发声 全美多地现挺川普大游行 >-009fcc?logoWidth=1" title="“沉默大多数”发声 全美多地现挺川普大游行  " alt="“沉默大多数”发声 全美多地现挺川普大游行  "></a></p>
 <p><a href="https://github.com/hgcpqr3249/ntdtv/blob/master/gb/2020/09/18/a102944018.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共提“5个不变”并非妥协 内蒙已拘捕5千人>-009fcc?logoWidth=1" title="中共提“5个不变”并非妥协 内蒙已拘捕5千人  " alt="中共提“5个不变”并非妥协 内蒙已拘捕5千人  "></a></p>
-<p><a href="https://github.com/hgcpqr3249/ntdtv/blob/master/gb/2020/09/18/a102943968.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/史上首次 日本新首相传话盼与蔡英文通电话  >-009fcc?logoWidth=1" title="史上首次 日本新首相传话盼与蔡英文通电话  " alt="史上首次 日本新首相传话盼与蔡英文通电话  "></a></p>
-<p><a href="https://github.com/hgcpqr3249/ntdtv/blob/master/gb/2020/09/18/a102943786.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中方拒交控制权 美正式宣布TikTok与微信>-009fcc?logoWidth=1" title="中方拒交控制权 美正式宣布TikTok与微信禁令  " alt="中方拒交控制权 美正式宣布TikTok与微信禁令  "></a></p>
 <p><a href="https://github.com/hgcpqr3249/ntdtv/blob/master/gb/2020/09/02/a102931621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中军方人士逃亡欧洲 向美透中共生化武器信息 >-009fcc?logoWidth=1" title="中军方人士逃亡欧洲 向美透中共生化武器信息  " alt="中军方人士逃亡欧洲 向美透中共生化武器信息  "></a></p>
 <p><a href="https://github.com/hgcpqr3249/ntdtv/blob/master/gb/2020/09/19/a102944177.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美最高法院大法官去世 金斯伯格终年87岁  >-009fcc?logoWidth=1" title="美最高法院大法官去世 金斯伯格终年87岁  " alt="美最高法院大法官去世 金斯伯格终年87岁  "></a></p>
 <p><a href="https://github.com/hgcpqr3249/ntdtv/blob/master/gb/2020/09/18/a102944102.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/警方纵放杀父凶手 云南童辍学追凶17年   >-009fcc?logoWidth=1" title="警方纵放杀父凶手 云南童辍学追凶17年  " alt="警方纵放杀父凶手 云南童辍学追凶17年  "></a></p>
@@ -39,18 +39,18 @@
 <p><a href="https://github.com/hgcpqr3249/djy/blob/master/gb/20/9/19/n12414858.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平老友批评中共             >-009fcc?logoWidth=1" title="习近平老友批评中共  " alt="习近平老友批评中共  "></a></p>
 <p><a href="https://github.com/hgcpqr3249/djy/blob/master/gb/20/9/18/n12414201.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京顺义通州交界发生爆炸 伤亡不明     >-009fcc?logoWidth=1" title="北京顺义通州交界发生爆炸 伤亡不明  " alt="北京顺义通州交界发生爆炸 伤亡不明  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/hgcpqr3249/ntdtv/blob/master/gb/2020/09/18/a102943764.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福克斯主播警告:左派富豪正与布尔什维克结成邪>-009fcc?logoWidth=1" title="福克斯主播警告:左派富豪正与布尔什维克结成邪恶联盟  " alt="福克斯主播警告:左派富豪正与布尔什维克结成邪恶联盟  "></a></p>
-<p><a href="https://github.com/hgcpqr3249/djy/blob/master/gb/20/9/18/n12414019.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被偷拍或偷听？iPhone新功能会提醒   >-009fcc?logoWidth=1" title="被偷拍或偷听？iPhone新功能会提醒  " alt="被偷拍或偷听？iPhone新功能会提醒  "></a></p>
+<p><a href="https://github.com/hgcpqr3249/ntdtv/blob/master/gb/2020/09/18/a102943786.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中方拒交控制权 美正式宣布TikTok与微信>-009fcc?logoWidth=1" title="中方拒交控制权 美正式宣布TikTok与微信禁令  " alt="中方拒交控制权 美正式宣布TikTok与微信禁令  "></a></p>
+<p><a href="https://github.com/hgcpqr3249/ntdtv/blob/master/gb/2020/09/18/a102943927.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山西壶关官网自曝储粮不足难保粮安 被报导后删>-009fcc?logoWidth=1" title="山西壶关官网自曝储粮不足难保粮安 被报导后删文  " alt="山西壶关官网自曝储粮不足难保粮安 被报导后删文  "></a></p>
 <p><a href="https://github.com/hgcpqr3249/ntdtv/blob/master/gb/2020/09/18/a102943484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平拿“半条被子”说事 网络炸锅     >-009fcc?logoWidth=1" title="习近平拿“半条被子”说事 网络炸锅  " alt="习近平拿“半条被子”说事 网络炸锅  "></a></p>
+<p><a href="https://github.com/hgcpqr3249/ntdtv/blob/master/gb/2020/09/18/a102943847.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会提交共同决议案 吁台美正式恢复邦交  >-009fcc?logoWidth=1" title="美国会提交共同决议案 吁台美正式恢复邦交  " alt="美国会提交共同决议案 吁台美正式恢复邦交  "></a></p>
+<p><a href="https://github.com/hgcpqr3249/djy/blob/master/gb/20/9/18/n12414545.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共下达粮食储备指标 山西贫困县仅达标一半 >-009fcc?logoWidth=1" title="中共下达粮食储备指标 山西贫困县仅达标一半  " alt="中共下达粮食储备指标 山西贫困县仅达标一半  "></a></p>
+<p><a href="https://github.com/hgcpqr3249/djy/blob/master/gb/20/9/18/n12414132.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中共“国进民退”开倒车 难掩窘境   >-009fcc?logoWidth=1" title="分析：中共“国进民退”开倒车 难掩窘境  " alt="分析：中共“国进民退”开倒车 难掩窘境  "></a></p>
 <p><a href="https://github.com/hgcpqr3249/ntdtv/blob/master/gb/2020/09/18/a102943523.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平治下统战部重掌民营企业 绝非公私合营抢>-009fcc?logoWidth=1" title="习近平治下统战部重掌民营企业 绝非公私合营抢钱那么简单  " alt="习近平治下统战部重掌民营企业 绝非公私合营抢钱那么简单  "></a></p>
-<p><a href="https://github.com/hgcpqr3249/djy/blob/master/gb/20/9/18/n12413726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫苗在先？疫情在先？            >-009fcc?logoWidth=1" title="疫苗在先？疫情在先？  " alt="疫苗在先？疫情在先？  "></a></p>
-<p><a href="https://github.com/hgcpqr3249/djy/blob/master/gb/20/9/18/n12414074.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多次卷入学术造假丑闻 武大教授李红良被免职 >-009fcc?logoWidth=1" title="多次卷入学术造假丑闻 武大教授李红良被免职  " alt="多次卷入学术造假丑闻 武大教授李红良被免职  "></a></p>
-<p><a href="https://github.com/hgcpqr3249/ntdtv/blob/master/gb/2020/09/18/a102943616.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平小组治国停摆？转入“地下”有玄机   >-009fcc?logoWidth=1" title="习近平小组治国停摆？转入“地下”有玄机  " alt="习近平小组治国停摆？转入“地下”有玄机  "></a></p>
-<p><a href="https://github.com/hgcpqr3249/ntdtv/blob/master/gb/2020/09/18/a102943563.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境神秘藏人部队曝光 5千米高山如走平地>-009fcc?logoWidth=1" title="中印边境神秘藏人部队曝光 5千米高山如走平地  " alt="中印边境神秘藏人部队曝光 5千米高山如走平地  "></a></p>
-<p><a href="https://github.com/hgcpqr3249/djy/blob/master/gb/20/9/18/n12414366.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习考察湖南强调“红色基因” 学者指效仿毛泽东>-009fcc?logoWidth=1" title="习考察湖南强调“红色基因” 学者指效仿毛泽东  " alt="习考察湖南强调“红色基因” 学者指效仿毛泽东  "></a></p>
-<p><a href="https://github.com/hgcpqr3249/djy/blob/master/gb/20/9/18/n12412397.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内斗 民企遭殃 北京自断生路      >-009fcc?logoWidth=1" title="中共内斗 民企遭殃 北京自断生路  " alt="中共内斗 民企遭殃 北京自断生路  "></a></p>
 <p><a href="https://github.com/hgcpqr3249/ntdtv/blob/master/gb/2020/09/18/a102943557.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平权力受挫？罕见低姿态“受教育”    >-009fcc?logoWidth=1" title="习近平权力受挫？罕见低姿态“受教育”  " alt="习近平权力受挫？罕见低姿态“受教育”  "></a></p>
-<p><a href="https://github.com/hgcpqr3249/ntdtv/blob/master/gb/2020/09/18/a102943664.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/来美党员亲属被当场遣返/2020刘伯温预言落>-009fcc?logoWidth=1" title="来美党员亲属被当场遣返/2020刘伯温预言落空？  " alt="来美党员亲属被当场遣返/2020刘伯温预言落空？  "></a></p>
+<p><a href="https://github.com/hgcpqr3249/djy/blob/master/gb/20/9/18/n12414019.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被偷拍或偷听？iPhone新功能会提醒   >-009fcc?logoWidth=1" title="被偷拍或偷听？iPhone新功能会提醒  " alt="被偷拍或偷听？iPhone新功能会提醒  "></a></p>
+<p><a href="https://github.com/hgcpqr3249/djy/blob/master/gb/20/9/18/n12414074.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多次卷入学术造假丑闻 武大教授李红良被免职 >-009fcc?logoWidth=1" title="多次卷入学术造假丑闻 武大教授李红良被免职  " alt="多次卷入学术造假丑闻 武大教授李红良被免职  "></a></p>
+<p><a href="https://github.com/hgcpqr3249/ntdtv/blob/master/gb/2020/09/18/a102943764.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福克斯主播警告:左派富豪正与布尔什维克结成邪>-009fcc?logoWidth=1" title="福克斯主播警告:左派富豪正与布尔什维克结成邪恶联盟  " alt="福克斯主播警告:左派富豪正与布尔什维克结成邪恶联盟  "></a></p>
+<p><a href="https://github.com/hgcpqr3249/ntdtv/blob/master/gb/2020/09/18/a102943616.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平小组治国停摆？转入“地下”有玄机   >-009fcc?logoWidth=1" title="习近平小组治国停摆？转入“地下”有玄机  " alt="习近平小组治国停摆？转入“地下”有玄机  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -262,9 +262,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://hgcpqr3249.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?cccfk">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?wkktb">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?aurvj">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?jspqq">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -308,8 +308,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?gqitm">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?cjxxq">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?namct">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?yvmuk">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -488,10 +488,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/hgcpqr3249/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hgcpqr3249/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/hgcpqr3249/www/master/index.html?v">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hgcpqr3249/www/blob/master/README.md?m#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/hgcpqr3249/www/blob/master/README.md?n%231" title="分享本平台"></img>
-<br><a href="https://git.io/gmmmm">https://git.io/gmmmm</a>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/nninn" title="分享本平台"></img>
-<br><a href="https://is.gd/nninn">https://is.gd/nninn</a>
+<p><strong><a href="https://github.com/hgcpqr3249/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hgcpqr3249/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/hgcpqr3249/www/master/index.html?l">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hgcpqr3249/www/blob/master/README.md?y#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/hgcpqr3249/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<br><a href="https://git.io/itttt">https://git.io/itttt</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/qqqqr" title="分享本平台"></img>
+<br><a href="https://is.gd/qqqqr">https://is.gd/qqqqr</a>
 </div>
