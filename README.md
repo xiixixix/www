@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qalxag313/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qalxag313/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/3nnnn">git.io/3nnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j22">x.co/j22</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/6eeee">git.io/6eeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3336">x.co/3336</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -30,18 +30,18 @@
 <p><a href="https://github.com/qalxag313/djy/blob/master/gb/20/6/4/n12162113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加夫尼：瘟疫让中共原形毕露         >-009fcc?logoWidth=1" title="加夫尼：瘟疫让中共原形毕露  " alt="加夫尼：瘟疫让中共原形毕露  "></a></p>
 <p><a href="https://github.com/qalxag313/djy/blob/master/gb/20/9/19/n12415272.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张慧东：中科院的“军令状”为何会成大众笑柄 >-009fcc?logoWidth=1" title="张慧东：中科院的“军令状”为何会成大众笑柄  " alt="张慧东：中科院的“军令状”为何会成大众笑柄  "></a></p>
 <p><a href="https://github.com/qalxag313/djy/blob/master/gb/20/9/19/n12415812.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为中共传印军方情报 环球时报撰稿记者被捕  >-009fcc?logoWidth=1" title="为中共传印军方情报 环球时报撰稿记者被捕  " alt="为中共传印军方情报 环球时报撰稿记者被捕  "></a></p>
-<p><a href="https://github.com/qalxag313/djy/blob/master/gb/20/9/19/n12415959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：李克强再高调支持民企 党媒又噤声   >-009fcc?logoWidth=1" title="钟原：李克强再高调支持民企 党媒又噤声  " alt="钟原：李克强再高调支持民企 党媒又噤声  "></a></p>
-<p><a href="https://github.com/qalxag313/djy/blob/master/gb/20/9/19/n12415919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI局长：中共对美发“人才大战”窃取研究 >-009fcc?logoWidth=1" title="FBI局长：中共对美发“人才大战”窃取研究  " alt="FBI局长：中共对美发“人才大战”窃取研究  "></a></p>
 <p><a href="https://github.com/qalxag313/djy/blob/master/gb/20/9/19/n12415164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共党员来美被遣返 退党中心：尽快退党   >-009fcc?logoWidth=1" title="中共党员来美被遣返 退党中心：尽快退党  " alt="中共党员来美被遣返 退党中心：尽快退党  "></a></p>
+<p><a href="https://github.com/qalxag313/djy/blob/master/gb/20/9/19/n12415919.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI局长：中共对美发“人才大战”窃取研究 >-009fcc?logoWidth=1" title="FBI局长：中共对美发“人才大战”窃取研究  " alt="FBI局长：中共对美发“人才大战”窃取研究  "></a></p>
+<p><a href="https://github.com/qalxag313/djy/blob/master/gb/20/9/18/n12413837.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美智库最新报告 曝光中共统战部       >-009fcc?logoWidth=1" title="美智库最新报告 曝光中共统战部  " alt="美智库最新报告 曝光中共统战部  "></a></p>
 <p><a href="https://github.com/qalxag313/djy/blob/master/gb/20/9/17/n12410472.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/镇压内蒙抗议 中共同时迫害法轮功      >-009fcc?logoWidth=1" title="镇压内蒙抗议 中共同时迫害法轮功  " alt="镇压内蒙抗议 中共同时迫害法轮功  "></a></p>
 <p><a href="https://github.com/qalxag313/djy/blob/master/gb/20/9/19/n12415433.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞丽市民：被告知禁足医院附近        >-009fcc?logoWidth=1" title="瑞丽市民：被告知禁足医院附近  " alt="瑞丽市民：被告知禁足医院附近  "></a></p>
-<p><a href="https://github.com/qalxag313/djy/blob/master/gb/20/9/18/n12413837.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美智库最新报告 曝光中共统战部       >-009fcc?logoWidth=1" title="美智库最新报告 曝光中共统战部  " alt="美智库最新报告 曝光中共统战部  "></a></p>
 <p><a href="https://github.com/qalxag313/djy/blob/master/gb/20/9/10/n12393828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/鲜为人知的中共维稳经费用途         >-009fcc?logoWidth=1" title="鲜为人知的中共维稳经费用途  " alt="鲜为人知的中共维稳经费用途  "></a></p>
 <p><a href="https://github.com/qalxag313/djy/blob/master/gb/20/9/19/n12414857.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共24年最激烈挑衅 欲台海开战？     >-009fcc?logoWidth=1" title="中共24年最激烈挑衅 欲台海开战？  " alt="中共24年最激烈挑衅 欲台海开战？  "></a></p>
+<p><a href="https://github.com/qalxag313/djy/blob/master/gb/20/9/18/n12414687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国冷战后装备的主力武器 第五代战机    >-009fcc?logoWidth=1" title="美国冷战后装备的主力武器 第五代战机  " alt="美国冷战后装备的主力武器 第五代战机  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qalxag313/ntdtv/blob/master/gb/2020/09/19/a102944347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家快评禁微信的真正目的！中共台海军事恫吓：>-009fcc?logoWidth=1" title="专家快评禁微信的真正目的！中共台海军事恫吓：会真打吗？  " alt="专家快评禁微信的真正目的！中共台海军事恫吓：会真打吗？  "></a></p>
 <p><a href="https://github.com/qalxag313/ntdtv/blob/master/gb/2020/09/19/a102944345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美台建交前奏？ 蔡英文话中有话       >-009fcc?logoWidth=1" title="美台建交前奏？ 蔡英文话中有话  " alt="美台建交前奏？ 蔡英文话中有话  "></a></p>
-<p><a href="https://github.com/qalxag313/djy/blob/master/gb/20/9/18/n12414687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国冷战后装备的主力武器 第五代战机    >-009fcc?logoWidth=1" title="美国冷战后装备的主力武器 第五代战机  " alt="美国冷战后装备的主力武器 第五代战机  "></a></p>
+<p><a href="https://github.com/qalxag313/djy/blob/master/gb/20/9/19/n12415959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：李克强再高调支持民企 党媒又噤声   >-009fcc?logoWidth=1" title="钟原：李克强再高调支持民企 党媒又噤声  " alt="钟原：李克强再高调支持民企 党媒又噤声  "></a></p>
 <p><a href="https://github.com/qalxag313/djy/blob/master/gb/20/9/18/n12414650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：大银行家被中共“共产”成“穷光蛋” >-009fcc?logoWidth=1" title="王友群：大银行家被中共“共产”成“穷光蛋”  " alt="王友群：大银行家被中共“共产”成“穷光蛋”  "></a></p>
 <p><a href="https://github.com/qalxag313/ntdtv/blob/master/gb/2020/09/19/a102944493.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金剑：美国九步可灭中共           >-009fcc?logoWidth=1" title="金剑：美国九步可灭中共  " alt="金剑：美国九步可灭中共  "></a></p>
 <p><a href="https://github.com/qalxag313/ntdtv/blob/master/gb/2020/09/19/a102944297.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元罕见露面 自称：只有高音(视频)   >-009fcc?logoWidth=1" title="崔永元罕见露面 自称：只有高音(视频)  " alt="崔永元罕见露面 自称：只有高音(视频)  "></a></p>
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://qalxag313.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?bilam">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?lvnen">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?exwae">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?hreyw">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?gaixx">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?aoask">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?orngq">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?rcwuv">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,10 +486,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/qalxag313/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qalxag313/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qalxag313/www/master/index.html?c">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qalxag313/www/blob/master/README.md?d#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/qalxag313/www/blob/master/README.md?q%231" title="分享本平台"></img>
-<br><a href="https://git.io/3nnnn">https://git.io/3nnnn</a>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/n6666" title="分享本平台"></img>
-<br><a href="https://is.gd/n6666">https://is.gd/n6666</a>
+<p><strong><a href="https://github.com/qalxag313/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qalxag313/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qalxag313/www/master/index.html?a">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qalxag313/www/blob/master/README.md?h#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/qalxag313/www/blob/master/README.md?i%231" title="分享本平台"></img>
+<br><a href="https://git.io/6eeee">https://git.io/6eeee</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/yssss" title="分享本平台"></img>
+<br><a href="https://is.gd/yssss">https://is.gd/yssss</a>
 </div>
