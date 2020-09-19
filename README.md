@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/jxbtgq3982/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jxbtgq3982/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tdddd">git.io/tdddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9944">x.co/9944</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/m8888">git.io/m8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/7aa">x.co/7aa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/jxbtgq3982/ntdtv/blob/master/gb/2020/09/19/a102944345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美台建交前奏？ 蔡英文话中有话       >-009fcc?logoWidth=1" title="美台建交前奏？ 蔡英文话中有话  " alt="美台建交前奏？ 蔡英文话中有话  "></a></p>
 <p><a href="https://github.com/jxbtgq3982/ntdtv/blob/master/gb/2020/09/19/a102944318.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为自己壮胆？习赴毛故乡考察强调“红色基因” >-009fcc?logoWidth=1" title="为自己壮胆？习赴毛故乡考察强调“红色基因”  " alt="为自己壮胆？习赴毛故乡考察强调“红色基因”  "></a></p>
 <p><a href="https://github.com/jxbtgq3982/ntdtv/blob/master/gb/2020/09/19/a102944297.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元罕见露面 自称：只有高音(视频)   >-009fcc?logoWidth=1" title="崔永元罕见露面 自称：只有高音(视频)  " alt="崔永元罕见露面 自称：只有高音(视频)  "></a></p>
+<p><a href="https://github.com/jxbtgq3982/ntdtv/blob/master/gb/2020/09/19/a102944448.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共前高官：中国天天忽悠 早晚要付出沉重代价>-009fcc?logoWidth=1" title="中共前高官：中国天天忽悠 早晚要付出沉重代价  " alt="中共前高官：中国天天忽悠 早晚要付出沉重代价  "></a></p>
 <p><a href="https://github.com/jxbtgq3982/ntdtv/blob/master/gb/2020/09/19/a102944396.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾空军罕见强硬 警告中共录音曝光(音频) >-009fcc?logoWidth=1" title="台湾空军罕见强硬 警告中共录音曝光(音频)  " alt="台湾空军罕见强硬 警告中共录音曝光(音频)  "></a></p>
 <p><a href="https://github.com/jxbtgq3982/ntdtv/blob/master/gb/2020/09/19/a102944262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/12港人被送中 港府称无力保护却提供情报  >-009fcc?logoWidth=1" title="12港人被送中 港府称无力保护却提供情报  " alt="12港人被送中 港府称无力保护却提供情报  "></a></p>
 <p><a href="https://github.com/jxbtgq3982/ntdtv/blob/master/gb/2020/09/19/a102944319.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟南山悲情谈疫苗：过去我们想得太乐观了！  >-009fcc?logoWidth=1" title="钟南山悲情谈疫苗：过去我们想得太乐观了！  " alt="钟南山悲情谈疫苗：过去我们想得太乐观了！  "></a></p>
 <p><a href="https://github.com/jxbtgq3982/ntdtv/blob/master/gb/2020/09/19/a102944373.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“徒手”攻顶第一人 俄无腿男勇攀欧洲第一高峰>-009fcc?logoWidth=1" title="“徒手”攻顶第一人 俄无腿男勇攀欧洲第一高峰  " alt="“徒手”攻顶第一人 俄无腿男勇攀欧洲第一高峰  "></a></p>
-<p><a href="https://github.com/jxbtgq3982/ntdtv/blob/master/gb/2020/09/19/a102944356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共狱警收入何以高出普通公务员数倍     >-009fcc?logoWidth=1" title="中共狱警收入何以高出普通公务员数倍  " alt="中共狱警收入何以高出普通公务员数倍  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jxbtgq3982/djy/blob/master/gb/20/9/18/n12414308.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美吁关系对等 崔天凯威胁踩红线       >-009fcc?logoWidth=1" title="美吁关系对等 崔天凯威胁踩红线  " alt="美吁关系对等 崔天凯威胁踩红线  "></a></p>
 <p><a href="https://github.com/jxbtgq3982/djy/blob/master/gb/20/9/18/n12414216.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆许多外贸人员爆料 银行卡遭公安冻结   >-009fcc?logoWidth=1" title="大陆许多外贸人员爆料 银行卡遭公安冻结  " alt="大陆许多外贸人员爆料 银行卡遭公安冻结  "></a></p>
@@ -261,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://jxbtgq3982.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?zxoqt">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?lwpfa">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?hyjus">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?qbdtp">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?bbfwv">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?qaiva">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?sruil">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?vwsvq">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,10 +487,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/jxbtgq3982/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jxbtgq3982/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jxbtgq3982/www/master/index.html?d">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jxbtgq3982/www/blob/master/README.md?t#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/jxbtgq3982/www/blob/master/README.md?i%231" title="分享本平台"></img>
-<br><a href="https://git.io/tdddd">https://git.io/tdddd</a>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/rrarr" title="分享本平台"></img>
-<br><a href="https://is.gd/rrarr">https://is.gd/rrarr</a>
+<p><strong><a href="https://github.com/jxbtgq3982/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jxbtgq3982/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jxbtgq3982/www/master/index.html?p">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jxbtgq3982/www/blob/master/README.md?y#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/jxbtgq3982/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<br><a href="https://git.io/m8888">https://git.io/m8888</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/rrrrs" title="分享本平台"></img>
+<br><a href="https://is.gd/rrrrs">https://is.gd/rrrrs</a>
 </div>
