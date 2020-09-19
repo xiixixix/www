@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qalxag313/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qalxag313/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nxxxx">git.io/nxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aay">x.co/aay</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jffff">git.io/jffff</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/qdd">x.co/qdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -22,9 +22,9 @@
 <p><a href="https://github.com/qalxag313/ntdtv/blob/master/gb/2020/09/19/a102944449.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大法官金斯伯格去世 微信被禁        >-009fcc?logoWidth=1" title="大法官金斯伯格去世 微信被禁  " alt="大法官金斯伯格去世 微信被禁  "></a></p>
 <p><a href="https://github.com/qalxag313/ntdtv/blob/master/gb/2020/09/19/a102944844.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长春交警购36万哈雷摩托 网民批“臀尖上的浪>-009fcc?logoWidth=1" title="长春交警购36万哈雷摩托 网民批“臀尖上的浪费”  " alt="长春交警购36万哈雷摩托 网民批“臀尖上的浪费”  "></a></p>
 <p><a href="https://github.com/qalxag313/ntdtv/blob/master/gb/2020/09/19/a102944873.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/搞笑诺贝尔奖公布 中国5“外包杀手”获管理学>-009fcc?logoWidth=1" title="搞笑诺贝尔奖公布 中国5“外包杀手”获管理学奖  " alt="搞笑诺贝尔奖公布 中国5“外包杀手”获管理学奖  "></a></p>
+<p><a href="https://github.com/qalxag313/ntdtv/blob/master/gb/2020/09/19/a102944864.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港天梯书店开幕 明星阮民安等送祝福     >-009fcc?logoWidth=1" title="港天梯书店开幕 明星阮民安等送祝福  " alt="港天梯书店开幕 明星阮民安等送祝福  "></a></p>
 <p><a href="https://github.com/qalxag313/ntdtv/blob/master/gb/2020/09/19/a102944855.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/联手抗共？美欧最快月内举行首次中国问题对话 >-009fcc?logoWidth=1" title="联手抗共？美欧最快月内举行首次中国问题对话  " alt="联手抗共？美欧最快月内举行首次中国问题对话  "></a></p>
 <p><a href="https://github.com/qalxag313/ntdtv/blob/master/gb/2020/09/19/a102944828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美最高法院大法官金斯伯格离世 川普发声明悼念>-009fcc?logoWidth=1" title="美最高法院大法官金斯伯格离世 川普发声明悼念  " alt="美最高法院大法官金斯伯格离世 川普发声明悼念  "></a></p>
-<p><a href="https://github.com/qalxag313/ntdtv/blob/master/gb/2020/09/19/a102944800.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/挑衅美军？中共空军首播模拟轰炸关岛基地影片 >-009fcc?logoWidth=1" title="挑衅美军？中共空军首播模拟轰炸关岛基地影片  " alt="挑衅美军？中共空军首播模拟轰炸关岛基地影片  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qalxag313/djy/blob/master/gb/20/9/18/n12414308.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美吁关系对等 崔天凯威胁踩红线       >-009fcc?logoWidth=1" title="美吁关系对等 崔天凯威胁踩红线  " alt="美吁关系对等 崔天凯威胁踩红线  "></a></p>
 <p><a href="https://github.com/qalxag313/djy/blob/master/gb/20/6/4/n12162113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加夫尼：瘟疫让中共原形毕露         >-009fcc?logoWidth=1" title="加夫尼：瘟疫让中共原形毕露  " alt="加夫尼：瘟疫让中共原形毕露  "></a></p>
@@ -41,13 +41,13 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qalxag313/ntdtv/blob/master/gb/2020/09/19/a102944347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家快评禁微信的真正目的！中共台海军事恫吓：>-009fcc?logoWidth=1" title="专家快评禁微信的真正目的！中共台海军事恫吓：会真打吗？  " alt="专家快评禁微信的真正目的！中共台海军事恫吓：会真打吗？  "></a></p>
 <p><a href="https://github.com/qalxag313/ntdtv/blob/master/gb/2020/09/19/a102944345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美台建交前奏？ 蔡英文话中有话       >-009fcc?logoWidth=1" title="美台建交前奏？ 蔡英文话中有话  " alt="美台建交前奏？ 蔡英文话中有话  "></a></p>
-<p><a href="https://github.com/qalxag313/djy/blob/master/gb/20/9/18/n12414687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国冷战后装备的主力武器 第五代战机    >-009fcc?logoWidth=1" title="美国冷战后装备的主力武器 第五代战机  " alt="美国冷战后装备的主力武器 第五代战机  "></a></p>
 <p><a href="https://github.com/qalxag313/ntdtv/blob/master/gb/2020/09/19/a102944803.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/下达TikTok禁令后 川普称收购协议将有多>-009fcc?logoWidth=1" title="下达TikTok禁令后 川普称收购协议将有多种选项  " alt="下达TikTok禁令后 川普称收购协议将有多种选项  "></a></p>
-<p><a href="https://github.com/qalxag313/djy/blob/master/gb/20/9/18/n12414650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：大银行家被中共“共产”成“穷光蛋” >-009fcc?logoWidth=1" title="王友群：大银行家被中共“共产”成“穷光蛋”  " alt="王友群：大银行家被中共“共产”成“穷光蛋”  "></a></p>
+<p><a href="https://github.com/qalxag313/djy/blob/master/gb/20/9/18/n12414687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国冷战后装备的主力武器 第五代战机    >-009fcc?logoWidth=1" title="美国冷战后装备的主力武器 第五代战机  " alt="美国冷战后装备的主力武器 第五代战机  "></a></p>
+<p><a href="https://github.com/qalxag313/djy/blob/master/gb/20/9/19/n12416195.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中科创老板竟是黑老大 与落马高官私交深   >-009fcc?logoWidth=1" title="中科创老板竟是黑老大 与落马高官私交深  " alt="中科创老板竟是黑老大 与落马高官私交深  "></a></p>
 <p><a href="https://github.com/qalxag313/ntdtv/blob/master/gb/2020/09/19/a102944493.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金剑：美国九步可灭中共           >-009fcc?logoWidth=1" title="金剑：美国九步可灭中共  " alt="金剑：美国九步可灭中共  "></a></p>
 <p><a href="https://github.com/qalxag313/ntdtv/blob/master/gb/2020/09/19/a102944297.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/崔永元罕见露面 自称：只有高音(视频)   >-009fcc?logoWidth=1" title="崔永元罕见露面 自称：只有高音(视频)  " alt="崔永元罕见露面 自称：只有高音(视频)  "></a></p>
+<p><a href="https://github.com/qalxag313/djy/blob/master/gb/20/9/18/n12414650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：大银行家被中共“共产”成“穷光蛋” >-009fcc?logoWidth=1" title="王友群：大银行家被中共“共产”成“穷光蛋”  " alt="王友群：大银行家被中共“共产”成“穷光蛋”  "></a></p>
 <p><a href="https://github.com/qalxag313/djy/blob/master/gb/20/9/19/n12415378.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆女网红直播时遭前夫淋汽油烧身命危    >-009fcc?logoWidth=1" title="大陆女网红直播时遭前夫淋汽油烧身命危  " alt="大陆女网红直播时遭前夫淋汽油烧身命危  "></a></p>
-<p><a href="https://github.com/qalxag313/djy/blob/master/gb/20/9/19/n12415212.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/逃离中共体制成潮流 下一个是谁？      >-009fcc?logoWidth=1" title="逃离中共体制成潮流 下一个是谁？  " alt="逃离中共体制成潮流 下一个是谁？  "></a></p>
 <p><a href="https://github.com/qalxag313/ntdtv/blob/master/gb/2020/09/19/a102944412.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：台湾前总统李登辉追思礼拜 多国政要出席>-009fcc?logoWidth=1" title="组图：台湾前总统李登辉追思礼拜 多国政要出席  " alt="组图：台湾前总统李登辉追思礼拜 多国政要出席  "></a></p>
 <p><a href="https://github.com/qalxag313/ntdtv/blob/master/gb/2020/09/19/a102944503.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：退党证书需求大增折射全球灭共潮正兴 >-009fcc?logoWidth=1" title="陈思敏：退党证书需求大增折射全球灭共潮正兴  " alt="陈思敏：退党证书需求大增折射全球灭共潮正兴  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -261,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://qalxag313.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?vpjma">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?xwhhz">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?vqccl">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?xtham">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?kptim">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?qvfep">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?rnhyn">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?fweic">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,10 +487,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/qalxag313/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qalxag313/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qalxag313/www/master/index.html?s">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qalxag313/www/blob/master/README.md?p#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/qalxag313/www/blob/master/README.md?i%231" title="分享本平台"></img>
-<br><a href="https://git.io/nxxxx">https://git.io/nxxxx</a>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/nqqqq" title="分享本平台"></img>
-<br><a href="https://is.gd/nqqqq">https://is.gd/nqqqq</a>
+<p><strong><a href="https://github.com/qalxag313/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qalxag313/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qalxag313/www/master/index.html?i">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qalxag313/www/blob/master/README.md?u#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/qalxag313/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<br><a href="https://git.io/jffff">https://git.io/jffff</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/mzzzz" title="分享本平台"></img>
+<br><a href="https://is.gd/mzzzz">https://is.gd/mzzzz</a>
 </div>
