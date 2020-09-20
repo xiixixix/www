@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tekmce3838/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tekmce3838/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/q9999">git.io/q9999</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3334">x.co/3334</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rjjjj">git.io/rjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aad">x.co/aad</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,8 +39,8 @@
 <p><a href="https://github.com/tekmce3838/djy/blob/master/gb/20/9/10/n12393828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/鲜为人知的中共维稳经费用途         >-009fcc?logoWidth=1" title="鲜为人知的中共维稳经费用途  " alt="鲜为人知的中共维稳经费用途  "></a></p>
 <p><a href="https://github.com/tekmce3838/djy/blob/master/gb/20/9/19/n12414857.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共24年最激烈挑衅 欲台海开战？     >-009fcc?logoWidth=1" title="中共24年最激烈挑衅 欲台海开战？  " alt="中共24年最激烈挑衅 欲台海开战？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/2020/09/19/a102944319.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟南山悲情谈疫苗：过去我们想得太乐观了！  >-009fcc?logoWidth=1" title="钟南山悲情谈疫苗：过去我们想得太乐观了！  " alt="钟南山悲情谈疫苗：过去我们想得太乐观了！  "></a></p>
 <p><a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/2020/09/19/a102944396.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾空军罕见强硬 警告中共录音曝光(音频) >-009fcc?logoWidth=1" title="台湾空军罕见强硬 警告中共录音曝光(音频)  " alt="台湾空军罕见强硬 警告中共录音曝光(音频)  "></a></p>
-<p><a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/2020/09/19/a102944448.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共前高官：中国天天忽悠 早晚要付出沉重代价>-009fcc?logoWidth=1" title="中共前高官：中国天天忽悠 早晚要付出沉重代价  " alt="中共前高官：中国天天忽悠 早晚要付出沉重代价  "></a></p>
 <p><a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/2020/09/19/a102944347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家快评禁微信的真正目的！中共台海军事恫吓：>-009fcc?logoWidth=1" title="专家快评禁微信的真正目的！中共台海军事恫吓：会真打吗？  " alt="专家快评禁微信的真正目的！中共台海军事恫吓：会真打吗？  "></a></p>
 <p><a href="https://github.com/tekmce3838/djy/blob/master/gb/20/9/18/n12414687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国冷战后装备的主力武器 第五代战机    >-009fcc?logoWidth=1" title="美国冷战后装备的主力武器 第五代战机  " alt="美国冷战后装备的主力武器 第五代战机  "></a></p>
 <p><a href="https://github.com/tekmce3838/djy/blob/master/gb/20/9/19/n12416195.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中科创老板竟是黑老大 与落马高官私交深   >-009fcc?logoWidth=1" title="中科创老板竟是黑老大 与落马高官私交深  " alt="中科创老板竟是黑老大 与落马高官私交深  "></a></p>
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://tekmce3838.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?xjunc">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?gqxah">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?xxgbh">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?kxocs">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?sxoyi">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?sztht">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?uigsk">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?qpymk">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,10 +486,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/tekmce3838/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tekmce3838/www/master/index.html?h">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tekmce3838/www/blob/master/README.md?i#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/tekmce3838/www/blob/master/README.md?s%231" title="分享本平台"></img>
-<br><a href="https://git.io/q9999">https://git.io/q9999</a>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/nnnnm" title="分享本平台"></img>
-<br><a href="https://is.gd/nnnnm">https://is.gd/nnnnm</a>
+<p><strong><a href="https://github.com/tekmce3838/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tekmce3838/www/master/index.html?k">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tekmce3838/www/blob/master/README.md?v#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/tekmce3838/www/blob/master/README.md?n%231" title="分享本平台"></img>
+<br><a href="https://git.io/rjjjj">https://git.io/rjjjj</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/rmmmm" title="分享本平台"></img>
+<br><a href="https://is.gd/rmmmm">https://is.gd/rmmmm</a>
 </div>
