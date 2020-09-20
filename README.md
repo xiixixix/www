@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/eopxzf350/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/eopxzf350/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bnnnn">git.io/bnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa7">x.co/aa7</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/teeee">git.io/teeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/8pp">x.co/8pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,7 +21,7 @@
 <p><a href="https://github.com/eopxzf350/ntdtv/blob/master/gb/2020/09/20/a102945025.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共37架军机扰台恐吓蔡英文 专家：反助台湾>-009fcc?logoWidth=1" title="中共37架军机扰台恐吓蔡英文 专家：反助台湾议题国际化  " alt="中共37架军机扰台恐吓蔡英文 专家：反助台湾议题国际化  "></a></p>
 <p><a href="https://github.com/eopxzf350/ntdtv/blob/master/gb/2020/09/20/a102944994.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平G20峰会遇尴尬 视频遭微信秒删(视频>-009fcc?logoWidth=1" title="习近平G20峰会遇尴尬 视频遭微信秒删(视频)  " alt="习近平G20峰会遇尴尬 视频遭微信秒删(视频)  "></a></p>
 <p><a href="https://github.com/eopxzf350/ntdtv/blob/master/gb/2020/09/20/a102945183.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/生吃30只螃蟹补身？浙江妇体内检查出近十种寄>-009fcc?logoWidth=1" title="生吃30只螃蟹补身？浙江妇体内检查出近十种寄生虫  " alt="生吃30只螃蟹补身？浙江妇体内检查出近十种寄生虫  "></a></p>
-<p><a href="https://github.com/eopxzf350/ntdtv/blob/master/gb/2020/09/20/a102945173.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国宣布对伊朗重施联合国制裁        >-009fcc?logoWidth=1" title="美国宣布对伊朗重施联合国制裁  " alt="美国宣布对伊朗重施联合国制裁  "></a></p>
+<p><a href="https://github.com/eopxzf350/ntdtv/blob/master/gb/2020/09/20/a102945173.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/对伊朗重施联合国制裁 美国即日生效     >-009fcc?logoWidth=1" title="对伊朗重施联合国制裁 美国即日生效  " alt="对伊朗重施联合国制裁 美国即日生效  "></a></p>
 <p><a href="https://github.com/eopxzf350/ntdtv/blob/master/gb/2020/09/20/a102945157.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日新增4000病例 英国祭重罚 拒隔离者最高>-009fcc?logoWidth=1" title="日新增4000病例 英国祭重罚 拒隔离者最高处1万英磅  " alt="日新增4000病例 英国祭重罚 拒隔离者最高处1万英磅  "></a></p>
 <p><a href="https://github.com/eopxzf350/ntdtv/blob/master/gb/2020/09/20/a102945154.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共党员来美被遣返 退党中心：尽快退党   >-009fcc?logoWidth=1" title="中共党员来美被遣返 退党中心：尽快退党  " alt="中共党员来美被遣返 退党中心：尽快退党  "></a></p>
 <p><a href="https://github.com/eopxzf350/ntdtv/blob/master/gb/2020/09/20/a102945151.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/封杀TikTok前夕 美商务部推迟禁令至9/>-009fcc?logoWidth=1" title="封杀TikTok前夕 美商务部推迟禁令至9/27  " alt="封杀TikTok前夕 美商务部推迟禁令至9/27  "></a></p>
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://eopxzf350.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?lpqlv">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?bpmbh">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?uksvu">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?frhmf">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?zodoj">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?gzstp">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?tfjsl">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?oyvvw">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,10 +485,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/eopxzf350/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eopxzf350/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/eopxzf350/www/master/index.html?n">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eopxzf350/www/blob/master/README.md?v#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/eopxzf350/www/blob/master/README.md?y%231" title="分享本平台"></img>
-<br><a href="https://git.io/bnnnn">https://git.io/bnnnn</a>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/zmmmm" title="分享本平台"></img>
-<br><a href="https://is.gd/zmmmm">https://is.gd/zmmmm</a>
+<p><strong><a href="https://github.com/eopxzf350/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eopxzf350/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/eopxzf350/www/master/index.html?y">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eopxzf350/www/blob/master/README.md?r#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/eopxzf350/www/blob/master/README.md?t%231" title="分享本平台"></img>
+<br><a href="https://git.io/teeee">https://git.io/teeee</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/uuuuy" title="分享本平台"></img>
+<br><a href="https://is.gd/uuuuy">https://is.gd/uuuuy</a>
 </div>
