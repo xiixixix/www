@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/eopxzf350/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/eopxzf350/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a3333">git.io/a3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/7pp">x.co/7pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e8888">git.io/e8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/p8p">x.co/p8p</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/eopxzf350/ntdtv/blob/master/gb/2020/09/20/a102944994.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平G20峰会遇尴尬 视频遭微信秒删(视频>-009fcc?logoWidth=1" title="习近平G20峰会遇尴尬 视频遭微信秒删(视频)  " alt="习近平G20峰会遇尴尬 视频遭微信秒删(视频)  "></a></p>
 <p><a href="https://github.com/eopxzf350/ntdtv/blob/master/gb/2020/09/20/a102944990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普批准了甲骨文和TikTok的交易    >-009fcc?logoWidth=1" title="川普批准了甲骨文和TikTok的交易  " alt="川普批准了甲骨文和TikTok的交易  "></a></p>
 <p><a href="https://github.com/eopxzf350/ntdtv/blob/master/gb/2020/09/19/a102944873.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/搞笑诺贝尔奖公布 中国5“外包杀手”获管理学>-009fcc?logoWidth=1" title="搞笑诺贝尔奖公布 中国5“外包杀手”获管理学奖  " alt="搞笑诺贝尔奖公布 中国5“外包杀手”获管理学奖  "></a></p>
+<p><a href="https://github.com/eopxzf350/ntdtv/blob/master/gb/2020/09/20/a102945157.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日新增4000病例 英国祭重罚 拒隔离者最高>-009fcc?logoWidth=1" title="日新增4000病例 英国祭重罚 拒隔离者最高处1万英磅  " alt="日新增4000病例 英国祭重罚 拒隔离者最高处1万英磅  "></a></p>
+<p><a href="https://github.com/eopxzf350/ntdtv/blob/master/gb/2020/09/20/a102945154.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共党员来美被遣返 退党中心：尽快退党   >-009fcc?logoWidth=1" title="中共党员来美被遣返 退党中心：尽快退党  " alt="中共党员来美被遣返 退党中心：尽快退党  "></a></p>
 <p><a href="https://github.com/eopxzf350/ntdtv/blob/master/gb/2020/09/20/a102945151.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/封杀TikTok前夕 美商务部推迟禁令至9/>-009fcc?logoWidth=1" title="封杀TikTok前夕 美商务部推迟禁令至9/27  " alt="封杀TikTok前夕 美商务部推迟禁令至9/27  "></a></p>
 <p><a href="https://github.com/eopxzf350/ntdtv/blob/master/gb/2020/09/20/a102945080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/断交前奏？美驻华大使提前离任 崔天凯每晚失眠>-009fcc?logoWidth=1" title="断交前奏？美驻华大使提前离任 崔天凯每晚失眠  " alt="断交前奏？美驻华大使提前离任 崔天凯每晚失眠  "></a></p>
 <p><a href="https://github.com/eopxzf350/ntdtv/blob/master/gb/2020/09/20/a102945103.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/步内蒙后尘被迫汉语教学 朝鲜族人用脚投票  >-009fcc?logoWidth=1" title="步内蒙后尘被迫汉语教学 朝鲜族人用脚投票  " alt="步内蒙后尘被迫汉语教学 朝鲜族人用脚投票  "></a></p>
-<p><a href="https://github.com/eopxzf350/ntdtv/blob/master/gb/2020/09/20/a102945076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罕见地中海飓风肆虐希腊 数百民众受困已知2死>-009fcc?logoWidth=1" title="罕见地中海飓风肆虐希腊 数百民众受困已知2死1失踪  " alt="罕见地中海飓风肆虐希腊 数百民众受困已知2死1失踪  "></a></p>
-<p><a href="https://github.com/eopxzf350/ntdtv/blob/master/gb/2020/09/20/a102945070.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上传下楼梯照片 纳瓦尼：复原路可见但漫长  >-009fcc?logoWidth=1" title="上传下楼梯照片 纳瓦尼：复原路可见但漫长  " alt="上传下楼梯照片 纳瓦尼：复原路可见但漫长  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/eopxzf350/djy/blob/master/gb/20/9/19/n12415272.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张慧东：中科院的“军令状”为何会成大众笑柄 >-009fcc?logoWidth=1" title="张慧东：中科院的“军令状”为何会成大众笑柄  " alt="张慧东：中科院的“军令状”为何会成大众笑柄  "></a></p>
 <p><a href="https://github.com/eopxzf350/djy/blob/master/gb/20/9/19/n12416159.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余茂春回应中共“族谱”除名：闹剧可休矣   >-009fcc?logoWidth=1" title="余茂春回应中共“族谱”除名：闹剧可休矣  " alt="余茂春回应中共“族谱”除名：闹剧可休矣  "></a></p>
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://eopxzf350.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?dcjji">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?assdk">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?rimzw">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?qmgfl">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?edjqy">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?arrwv">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?cabxr">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ddvhf">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,10 +485,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/eopxzf350/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eopxzf350/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/eopxzf350/www/master/index.html?j">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eopxzf350/www/blob/master/README.md?b#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/eopxzf350/www/blob/master/README.md?e%231" title="分享本平台"></img>
-<br><a href="https://git.io/a3333">https://git.io/a3333</a>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/utttt" title="分享本平台"></img>
-<br><a href="https://is.gd/utttt">https://is.gd/utttt</a>
+<p><strong><a href="https://github.com/eopxzf350/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eopxzf350/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/eopxzf350/www/master/index.html?z">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eopxzf350/www/blob/master/README.md?x#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/eopxzf350/www/blob/master/README.md?x%231" title="分享本平台"></img>
+<br><a href="https://git.io/e8888">https://git.io/e8888</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/zjjjj" title="分享本平台"></img>
+<br><a href="https://is.gd/zjjjj">https://is.gd/zjjjj</a>
 </div>
