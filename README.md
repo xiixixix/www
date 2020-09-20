@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/tekmce3838/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tekmce3838/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c3333">git.io/c3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/7pp">x.co/7pp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ppppp">git.io/ppppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2229">x.co/2229</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/2020/09/20/a102945077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/毛泽东44周年忌日 吉林出现惊人一幕(视频)>-009fcc?logoWidth=1" title="毛泽东44周年忌日 吉林出现惊人一幕(视频)  " alt="毛泽东44周年忌日 吉林出现惊人一幕(视频)  "></a></p>
 <p><a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/2020/09/20/a102945045.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平的半条被子和村官的31公斤金条    >-009fcc?logoWidth=1" title="习近平的半条被子和村官的31公斤金条  " alt="习近平的半条被子和村官的31公斤金条  "></a></p>
 <p><a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/2020/09/20/a102945025.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共37架军机侵台 专家：反助台湾议题国际化>-009fcc?logoWidth=1" title="中共37架军机侵台 专家：反助台湾议题国际化  " alt="中共37架军机侵台 专家：反助台湾议题国际化  "></a></p>
 <p><a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/2020/09/20/a102944994.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平G20峰会遇尴尬 视频遭微信秒删(视频>-009fcc?logoWidth=1" title="习近平G20峰会遇尴尬 视频遭微信秒删(视频)  " alt="习近平G20峰会遇尴尬 视频遭微信秒删(视频)  "></a></p>
 <p><a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/2020/09/20/a102944990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普批准了甲骨文和TikTok的交易    >-009fcc?logoWidth=1" title="川普批准了甲骨文和TikTok的交易  " alt="川普批准了甲骨文和TikTok的交易  "></a></p>
 <p><a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/2020/09/19/a102944873.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/搞笑诺贝尔奖公布 中国5“外包杀手”获管理学>-009fcc?logoWidth=1" title="搞笑诺贝尔奖公布 中国5“外包杀手”获管理学奖  " alt="搞笑诺贝尔奖公布 中国5“外包杀手”获管理学奖  "></a></p>
-<p><a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/2020/09/19/a102944800.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/挑衅美军？中共空军首播模拟轰炸关岛基地影片 >-009fcc?logoWidth=1" title="挑衅美军？中共空军首播模拟轰炸关岛基地影片  " alt="挑衅美军？中共空军首播模拟轰炸关岛基地影片  "></a></p>
 <p><a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/2020/09/20/a102945076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罕见地中海飓风肆虐希腊 数百民众受困已知2死>-009fcc?logoWidth=1" title="罕见地中海飓风肆虐希腊 数百民众受困已知2死1失踪  " alt="罕见地中海飓风肆虐希腊 数百民众受困已知2死1失踪  "></a></p>
 <p><a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/2020/09/20/a102945070.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上传下楼梯照片 纳瓦尼：复原之路明显漫长  >-009fcc?logoWidth=1" title="上传下楼梯照片 纳瓦尼：复原之路明显漫长  " alt="上传下楼梯照片 纳瓦尼：复原之路明显漫长  "></a></p>
 <p><a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/2020/09/20/a102945063.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：寄往白宫含蓖麻毒素信件遭拦截     >-009fcc?logoWidth=1" title="美媒：寄往白宫含蓖麻毒素信件遭拦截  " alt="美媒：寄往白宫含蓖麻毒素信件遭拦截  "></a></p>
@@ -41,15 +41,16 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/2020/09/20/a102944996.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两个可能出现与中共有关的“十月惊奇”/半条被>-009fcc?logoWidth=1" title="两个可能出现与中共有关的“十月惊奇”/半条被子 VS村官30公斤黄金  " alt="两个可能出现与中共有关的“十月惊奇”/半条被子 VS村官30公斤黄金  "></a></p>
 <p><a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/2020/09/19/a102944448.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共前高官：中国天天忽悠 早晚要付出沉重代价>-009fcc?logoWidth=1" title="中共前高官：中国天天忽悠 早晚要付出沉重代价  " alt="中共前高官：中国天天忽悠 早晚要付出沉重代价  "></a></p>
-<p><a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/2020/09/19/a102944787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微信改名WeCom躲避禁令 美商务部高官:行>-009fcc?logoWidth=1" title="微信改名WeCom躲避禁令 美商务部高官:行不通  " alt="微信改名WeCom躲避禁令 美商务部高官:行不通  "></a></p>
-<p><a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/2020/09/19/a102944855.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/联手抗共？美欧最快月内举行首次中国问题对话 >-009fcc?logoWidth=1" title="联手抗共？美欧最快月内举行首次中国问题对话  " alt="联手抗共？美欧最快月内举行首次中国问题对话  "></a></p>
+<p><a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/2020/09/19/a102944844.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长春交警购36万哈雷摩托 网民批“臀尖上的浪>-009fcc?logoWidth=1" title="长春交警购36万哈雷摩托 网民批“臀尖上的浪费”  " alt="长春交警购36万哈雷摩托 网民批“臀尖上的浪费”  "></a></p>
+<p><a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/2020/09/19/a102944924.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/9月20日美国禁止微信和TikTok 细则这>-009fcc?logoWidth=1" title="9月20日美国禁止微信和TikTok 细则这里看  " alt="9月20日美国禁止微信和TikTok 细则这里看  "></a></p>
 <p><a href="https://github.com/tekmce3838/djy/blob/master/gb/20/9/18/n12413837.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美智库最新报告 曝光中共统战部       >-009fcc?logoWidth=1" title="美智库最新报告 曝光中共统战部  " alt="美智库最新报告 曝光中共统战部  "></a></p>
 <p><a href="https://github.com/tekmce3838/djy/blob/master/gb/20/9/10/n12393828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/鲜为人知的中共维稳经费用途         >-009fcc?logoWidth=1" title="鲜为人知的中共维稳经费用途  " alt="鲜为人知的中共维稳经费用途  "></a></p>
-<p><a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/2020/09/19/a102944319.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟南山悲情谈疫苗：过去我们想得太乐观了！  >-009fcc?logoWidth=1" title="钟南山悲情谈疫苗：过去我们想得太乐观了！  " alt="钟南山悲情谈疫苗：过去我们想得太乐观了！  "></a></p>
+<p><a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/2020/09/19/a102944787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微信改名WeCom躲避禁令 美商务部高官:行>-009fcc?logoWidth=1" title="微信改名WeCom躲避禁令 美商务部高官:行不通  " alt="微信改名WeCom躲避禁令 美商务部高官:行不通  "></a></p>
+<p><a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/2020/09/19/a102944855.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/联手抗共？美欧最快月内举行首次中国问题对话 >-009fcc?logoWidth=1" title="联手抗共？美欧最快月内举行首次中国问题对话  " alt="联手抗共？美欧最快月内举行首次中国问题对话  "></a></p>
 <p><a href="https://github.com/tekmce3838/djy/blob/master/gb/20/9/19/n12414857.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共24年最激烈挑衅 欲台海开战？     >-009fcc?logoWidth=1" title="中共24年最激烈挑衅 欲台海开战？  " alt="中共24年最激烈挑衅 欲台海开战？  "></a></p>
 <p><a href="https://github.com/tekmce3838/djy/blob/master/gb/20/9/18/n12414687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国冷战后装备的主力武器 第五代战机    >-009fcc?logoWidth=1" title="美国冷战后装备的主力武器 第五代战机  " alt="美国冷战后装备的主力武器 第五代战机  "></a></p>
-<p><a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/2020/09/19/a102944396.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾空军罕见强硬 警告中共录音曝光(音频) >-009fcc?logoWidth=1" title="台湾空军罕见强硬 警告中共录音曝光(音频)  " alt="台湾空军罕见强硬 警告中共录音曝光(音频)  "></a></p>
-<p><a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/2020/09/19/a102944488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印开战谁能胜？专家曝印军胜出的关键因素  >-009fcc?logoWidth=1" title="中印开战谁能胜？专家曝印军胜出的关键因素  " alt="中印开战谁能胜？专家曝印军胜出的关键因素  "></a></p>
+<p><a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/2020/09/19/a102944800.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/挑衅美军？中共空军首播模拟轰炸关岛基地影片 >-009fcc?logoWidth=1" title="挑衅美军？中共空军首播模拟轰炸关岛基地影片  " alt="挑衅美军？中共空军首播模拟轰炸关岛基地影片  "></a></p>
+<p><a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/2020/09/19/a102944319.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟南山悲情谈疫苗：过去我们想得太乐观了！  >-009fcc?logoWidth=1" title="钟南山悲情谈疫苗：过去我们想得太乐观了！  " alt="钟南山悲情谈疫苗：过去我们想得太乐观了！  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -261,9 +262,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://tekmce3838.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?rwlfj">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?tvlwc">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ygcrm">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?nhsus">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +308,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?iionz">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?zsvfn">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ufiok">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?jqjkd">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,10 +488,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/tekmce3838/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tekmce3838/www/master/index.html?c">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tekmce3838/www/blob/master/README.md?n#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/tekmce3838/www/blob/master/README.md?s%231" title="分享本平台"></img>
-<br><a href="https://git.io/c3333">https://git.io/c3333</a>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ssjss" title="分享本平台"></img>
-<br><a href="https://is.gd/ssjss">https://is.gd/ssjss</a>
+<p><strong><a href="https://github.com/tekmce3838/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tekmce3838/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tekmce3838/www/master/index.html?s">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tekmce3838/www/blob/master/README.md?z#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/tekmce3838/www/blob/master/README.md?f%231" title="分享本平台"></img>
+<br><a href="https://git.io/ppppp">https://git.io/ppppp</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ssssj" title="分享本平台"></img>
+<br><a href="https://is.gd/ssssj">https://is.gd/ssssj</a>
 </div>
