@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zkouno3802/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zkouno3802/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fssss">git.io/fssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pps">x.co/pps</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/xnnnn">git.io/xnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aae">x.co/aae</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/21/a102945629.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国已死2亿人？拜登再发惊人语       >-009fcc?logoWidth=1" title="美国已死2亿人？拜登再发惊人语  " alt="美国已死2亿人？拜登再发惊人语  "></a></p>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/21/a102945565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/云南全面进入战时状态 疫情疑嫁祸海外    >-009fcc?logoWidth=1" title="云南全面进入战时状态 疫情疑嫁祸海外  " alt="云南全面进入战时状态 疫情疑嫁祸海外  "></a></p>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/21/a102945560.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视“求和”得罪国民党 汪洋喊话又被呛(视频>-009fcc?logoWidth=1" title="央视“求和”得罪国民党 汪洋喊话又被呛(视频)  " alt="央视“求和”得罪国民党 汪洋喊话又被呛(视频)  "></a></p>
+<p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/21/a102945923.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大量冻结外贸账号 管制外汇并借机抢钱  >-009fcc?logoWidth=1" title="中共大量冻结外贸账号 管制外汇并借机抢钱  " alt="中共大量冻结外贸账号 管制外汇并借机抢钱  "></a></p>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/21/a102945941.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抗疫不力捷克卫生部长辞职 全球抗议封锁   >-009fcc?logoWidth=1" title="抗疫不力捷克卫生部长辞职 全球抗议封锁  " alt="抗疫不力捷克卫生部长辞职 全球抗议封锁  "></a></p>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/21/a102945943.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：确保TikTok数据不传给中共   >-009fcc?logoWidth=1" title="蓬佩奥：确保TikTok数据不传给中共  " alt="蓬佩奥：确保TikTok数据不传给中共  "></a></p>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/21/a102945929.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/制裁伊朗 蓬佩奥主持5部门新闻会      >-009fcc?logoWidth=1" title="制裁伊朗 蓬佩奥主持5部门新闻会  " alt="制裁伊朗 蓬佩奥主持5部门新闻会  "></a></p>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/21/a102945911.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/菅义伟川普首通话 将就自由开放印太地区合作 >-009fcc?logoWidth=1" title="菅义伟川普首通话 将就自由开放印太地区合作  " alt="菅义伟川普首通话 将就自由开放印太地区合作  "></a></p>
-<p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/21/a102945850.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/加州法官暂停微信禁令 川普政府或提起上诉  >-009fcc?logoWidth=1" title="加州法官暂停微信禁令 川普政府或提起上诉  " alt="加州法官暂停微信禁令 川普政府或提起上诉  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/21/n12418400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州一小学爆砍人案 2死4伤含幼儿 疑凶亦死>-009fcc?logoWidth=1" title="广州一小学爆砍人案 2死4伤含幼儿 疑凶亦死  " alt="广州一小学爆砍人案 2死4伤含幼儿 疑凶亦死  "></a></p>
 <p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/21/n12418508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：中共破坏大纪元报箱 自曝末路疯狂   >-009fcc?logoWidth=1" title="田云：中共破坏大纪元报箱 自曝末路疯狂  " alt="田云：中共破坏大纪元报箱 自曝末路疯狂  "></a></p>
@@ -261,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://zkouno3802.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?jbkfn">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ghbvt">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ibbmc">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?nhhjg">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?cmgad">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?kexxx">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ssawj">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?suskg">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,10 +487,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/zkouno3802/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zkouno3802/www/master/index.html?m">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zkouno3802/www/blob/master/README.md?n#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/zkouno3802/www/blob/master/README.md?n%231" title="分享本平台"></img>
-<br><a href="https://git.io/fssss">https://git.io/fssss</a>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/m7777" title="分享本平台"></img>
-<br><a href="https://is.gd/m7777">https://is.gd/m7777</a>
+<p><strong><a href="https://github.com/zkouno3802/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zkouno3802/www/master/index.html?d">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zkouno3802/www/blob/master/README.md?x#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/zkouno3802/www/blob/master/README.md?u%231" title="分享本平台"></img>
+<br><a href="https://git.io/xnnnn">https://git.io/xnnnn</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/zqqqq" title="分享本平台"></img>
+<br><a href="https://is.gd/zqqqq">https://is.gd/zqqqq</a>
 </div>
