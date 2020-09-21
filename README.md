@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rxkmvj328/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rxkmvj328/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pjjjj">git.io/pjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp7">x.co/pp7</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyyy">git.io/yyyyyy</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/iaa">x.co/iaa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -40,16 +40,16 @@
 <p><a href="https://github.com/rxkmvj328/djy/blob/master/gb/20/9/20/n12417618.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/信阳监狱如炼狱 访民被打残 落马官员当大爷 >-009fcc?logoWidth=1" title="信阳监狱如炼狱 访民被打残 落马官员当大爷  " alt="信阳监狱如炼狱 访民被打残 落马官员当大爷  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rxkmvj328/ntdtv/blob/master/gb/2020/09/20/a102945045.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平的半条被子和村官的31公斤金条    >-009fcc?logoWidth=1" title="习近平的半条被子和村官的31公斤金条  " alt="习近平的半条被子和村官的31公斤金条  "></a></p>
-<p><a href="https://github.com/rxkmvj328/ntdtv/blob/master/gb/2020/09/20/a102945185.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一代奸相 杀人如麻的周恩来 （中）     >-009fcc?logoWidth=1" title="一代奸相 杀人如麻的周恩来 （中）  " alt="一代奸相 杀人如麻的周恩来 （中）  "></a></p>
+<p><a href="https://github.com/rxkmvj328/ntdtv/blob/master/gb/2020/09/20/a102945238.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西安地铁作秀送温暖 女乘客发文揭穿“最美摆拍>-009fcc?logoWidth=1" title="西安地铁作秀送温暖 女乘客发文揭穿“最美摆拍”  " alt="西安地铁作秀送温暖 女乘客发文揭穿“最美摆拍”  "></a></p>
 <p><a href="https://github.com/rxkmvj328/ntdtv/blob/master/gb/2020/09/20/a102945333.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/译成34种语言 一部童话触动世界人的心灵  >-009fcc?logoWidth=1" title="译成34种语言 一部童话触动世界人的心灵  " alt="译成34种语言 一部童话触动世界人的心灵  "></a></p>
-<p><a href="https://github.com/rxkmvj328/ntdtv/blob/master/gb/2020/09/20/a102944963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文宴请克拉奇 第一道菜小笼包      >-009fcc?logoWidth=1" title="蔡英文宴请克拉奇 第一道菜小笼包  " alt="蔡英文宴请克拉奇 第一道菜小笼包  "></a></p>
+<p><a href="https://github.com/rxkmvj328/ntdtv/blob/master/gb/2020/09/19/a102944654.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/古今六大预言 2020年前后的大交集(下) >-009fcc?logoWidth=1" title="古今六大预言 2020年前后的大交集(下)  " alt="古今六大预言 2020年前后的大交集(下)  "></a></p>
 <p><a href="https://github.com/rxkmvj328/djy/blob/master/gb/20/9/19/n12416159.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余茂春回应中共“族谱”除名：闹剧可休矣   >-009fcc?logoWidth=1" title="余茂春回应中共“族谱”除名：闹剧可休矣  " alt="余茂春回应中共“族谱”除名：闹剧可休矣  "></a></p>
 <p><a href="https://github.com/rxkmvj328/djy/blob/master/gb/20/9/20/n12417511.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共又“辟谣”银行挤兑事件 自曝金融危机  >-009fcc?logoWidth=1" title="中共又“辟谣”银行挤兑事件 自曝金融危机  " alt="中共又“辟谣”银行挤兑事件 自曝金融危机  "></a></p>
+<p><a href="https://github.com/rxkmvj328/ntdtv/blob/master/gb/2020/09/20/a102945185.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一代奸相 杀人如麻的周恩来 （中）     >-009fcc?logoWidth=1" title="一代奸相 杀人如麻的周恩来 （中）  " alt="一代奸相 杀人如麻的周恩来 （中）  "></a></p>
 <p><a href="https://github.com/rxkmvj328/ntdtv/blob/master/gb/2020/09/20/a102945115.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被迫降级 崔天凯夜未眠           >-009fcc?logoWidth=1" title="被迫降级 崔天凯夜未眠  " alt="被迫降级 崔天凯夜未眠  "></a></p>
-<p><a href="https://github.com/rxkmvj328/ntdtv/blob/master/gb/2020/09/19/a102944654.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/古今六大预言 2020年前后的大交集(下) >-009fcc?logoWidth=1" title="古今六大预言 2020年前后的大交集(下)  " alt="古今六大预言 2020年前后的大交集(下)  "></a></p>
 <p><a href="https://github.com/rxkmvj328/djy/blob/master/gb/20/9/20/n12417372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分不清中共和中国人的雪城大学        >-009fcc?logoWidth=1" title="分不清中共和中国人的雪城大学  " alt="分不清中共和中国人的雪城大学  "></a></p>
 <p><a href="https://github.com/rxkmvj328/djy/blob/master/gb/20/9/20/n12416763.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/译成34种语言 一部童话触动世界人的心灵  >-009fcc?logoWidth=1" title="译成34种语言 一部童话触动世界人的心灵  " alt="译成34种语言 一部童话触动世界人的心灵  "></a></p>
-<p><a href="https://github.com/rxkmvj328/ntdtv/blob/master/gb/2020/09/20/a102945238.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西安地铁作秀送温暖 女乘客发文揭穿“最美摆拍>-009fcc?logoWidth=1" title="西安地铁作秀送温暖 女乘客发文揭穿“最美摆拍”  " alt="西安地铁作秀送温暖 女乘客发文揭穿“最美摆拍”  "></a></p>
+<p><a href="https://github.com/rxkmvj328/ntdtv/blob/master/gb/2020/09/20/a102944963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文宴请克拉奇 第一道菜小笼包      >-009fcc?logoWidth=1" title="蔡英文宴请克拉奇 第一道菜小笼包  " alt="蔡英文宴请克拉奇 第一道菜小笼包  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -261,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://rxkmvj328.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?wohkk">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?veoyu">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?vgdlz">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ookje">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?guksd">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?bridu">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?megmt">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?gonvr">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,10 +487,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/rxkmvj328/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rxkmvj328/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rxkmvj328/www/master/index.html?g">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rxkmvj328/www/blob/master/README.md?o#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/rxkmvj328/www/blob/master/README.md?n%231" title="分享本平台"></img>
-<br><a href="https://git.io/pjjjj">https://git.io/pjjjj</a>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/p7777" title="分享本平台"></img>
-<br><a href="https://is.gd/p7777">https://is.gd/p7777</a>
+<p><strong><a href="https://github.com/rxkmvj328/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rxkmvj328/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rxkmvj328/www/master/index.html?t">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rxkmvj328/www/blob/master/README.md?h#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/rxkmvj328/www/blob/master/README.md?k%231" title="分享本平台"></img>
+<br><a href="https://git.io/yyyyyy">https://git.io/yyyyyy</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/tthtt" title="分享本平台"></img>
+<br><a href="https://is.gd/tthtt">https://is.gd/tthtt</a>
 </div>
