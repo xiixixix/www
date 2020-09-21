@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rwwdnw303/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rwwdnw303/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/p5555">git.io/p5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/8aa">x.co/8aa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/c8888">git.io/c8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3666">x.co/3666</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -24,7 +24,7 @@
 <p><a href="https://github.com/rwwdnw303/ntdtv/blob/master/gb/2020/09/21/a102945666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“轰炸关岛”露馅 盗用好莱坞大片    >-009fcc?logoWidth=1" title="中共“轰炸关岛”露馅 盗用好莱坞大片  " alt="中共“轰炸关岛”露馅 盗用好莱坞大片  "></a></p>
 <p><a href="https://github.com/rwwdnw303/ntdtv/blob/master/gb/2020/09/21/a102945603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惊险！钱塘江潮水发威 十多辆轿车被硬生冲走 >-009fcc?logoWidth=1" title="惊险！钱塘江潮水发威 十多辆轿车被硬生冲走  " alt="惊险！钱塘江潮水发威 十多辆轿车被硬生冲走  "></a></p>
 <p><a href="https://github.com/rwwdnw303/ntdtv/blob/master/gb/2020/09/21/a102945629.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国已死2亿人？拜登再发惊人语       >-009fcc?logoWidth=1" title="美国已死2亿人？拜登再发惊人语  " alt="美国已死2亿人？拜登再发惊人语  "></a></p>
-<p><a href="https://github.com/rwwdnw303/ntdtv/blob/master/gb/2020/09/21/a102945622.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本观光巴士用60辆大巴 打造巨大迷宫   >-009fcc?logoWidth=1" title="日本观光巴士用60辆大巴 打造巨大迷宫  " alt="日本观光巴士用60辆大巴 打造巨大迷宫  "></a></p>
+<p><a href="https://github.com/rwwdnw303/ntdtv/blob/master/gb/2020/09/21/a102945622.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本观光巴士公司用60辆大巴 打造巨大迷宫 >-009fcc?logoWidth=1" title="日本观光巴士公司用60辆大巴 打造巨大迷宫  " alt="日本观光巴士公司用60辆大巴 打造巨大迷宫  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rwwdnw303/djy/blob/master/gb/20/9/21/n12418400.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州番禺小学爆砍人案致7伤 含4学生1幼儿 >-009fcc?logoWidth=1" title="广州番禺小学爆砍人案致7伤 含4学生1幼儿  " alt="广州番禺小学爆砍人案致7伤 含4学生1幼儿  "></a></p>
 <p><a href="https://github.com/rwwdnw303/djy/blob/master/gb/20/9/20/n12417360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：恢复联合国对伊朗所有制裁      >-009fcc?logoWidth=1" title="蓬佩奥：恢复联合国对伊朗所有制裁  " alt="蓬佩奥：恢复联合国对伊朗所有制裁  "></a></p>
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://rwwdnw303.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?tfzsj">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?cgdue">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?seqri">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?afgfe">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ciyvy">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?lscah">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?tupje">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?nomxu">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,10 +486,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/rwwdnw303/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rwwdnw303/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rwwdnw303/www/master/index.html?l">高速版平台</a></strong></p>
+<p><strong><a href="https://github.com/rwwdnw303/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rwwdnw303/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rwwdnw303/www/master/index.html?g">高速版平台</a></strong></p>
 手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rwwdnw303/www/blob/master/README.md?j#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/rwwdnw303/www/blob/master/README.md?x%231" title="分享本平台"></img>
-<br><a href="https://git.io/p5555">https://git.io/p5555</a>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ybbbb" title="分享本平台"></img>
-<br><a href="https://is.gd/ybbbb">https://is.gd/ybbbb</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/rwwdnw303/www/blob/master/README.md?m%231" title="分享本平台"></img>
+<br><a href="https://git.io/c8888">https://git.io/c8888</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/uufuu" title="分享本平台"></img>
+<br><a href="https://is.gd/uufuu">https://is.gd/uufuu</a>
 </div>
