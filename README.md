@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zkouno3802/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zkouno3802/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/6rrrr">git.io/6rrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ipp">x.co/ipp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/aeeee">git.io/aeeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aay">x.co/aay</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,16 @@
 <p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/22/n12422064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/银保监会官员地铁性骚扰女乘客 当场被抓   >-009fcc?logoWidth=1" title="银保监会官员地铁性骚扰女乘客 当场被抓  " alt="银保监会官员地铁性骚扰女乘客 当场被抓  "></a></p>
 <p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/21/n12420151.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不满封校 西安大学生集体呐喊        >-009fcc?logoWidth=1" title="不满封校 西安大学生集体呐喊  " alt="不满封校 西安大学生集体呐喊  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946290.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：习近平对美“踩高跷” 胡春华杠上刘鹤 >-009fcc?logoWidth=1" title="美媒：习近平对美“踩高跷” 胡春华杠上刘鹤  " alt="美媒：习近平对美“踩高跷” 胡春华杠上刘鹤  "></a></p>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北书记应勇提起李文亮等人 当场落泪引热议 >-009fcc?logoWidth=1" title="湖北书记应勇提起李文亮等人 当场落泪引热议  " alt="湖北书记应勇提起李文亮等人 当场落泪引热议  "></a></p>
-<p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946327.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/方方批团中央造谣 祸起殡葬馆“满地无主手机”>-009fcc?logoWidth=1" title="方方批团中央造谣 祸起殡葬馆“满地无主手机”  " alt="方方批团中央造谣 祸起殡葬馆“满地无主手机”  "></a></p>
 <p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/21/n12420531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共打压台湾是自毁之举       >-009fcc?logoWidth=1" title="王友群：中共打压台湾是自毁之举  " alt="王友群：中共打压台湾是自毁之举  "></a></p>
 <p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/21/n12420292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“满地无主手机”争议 方方批团中央造谣   >-009fcc?logoWidth=1" title="“满地无主手机”争议 方方批团中央造谣  " alt="“满地无主手机”争议 方方批团中央造谣  "></a></p>
+<p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946327.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/方方批团中央造谣 祸起殡葬馆“满地无主手机”>-009fcc?logoWidth=1" title="方方批团中央造谣 祸起殡葬馆“满地无主手机”  " alt="方方批团中央造谣 祸起殡葬馆“满地无主手机”  "></a></p>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/比歼20还强？印度飙风战机亮相 释放强烈讯息>-009fcc?logoWidth=1" title="比歼20还强？印度飙风战机亮相 释放强烈讯息  " alt="比歼20还强？印度飙风战机亮相 释放强烈讯息  "></a></p>
-<p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946483.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李登辉“上级”都是共党 蔡英文“关键一步”踩>-009fcc?logoWidth=1" title="李登辉“上级”都是共党 蔡英文“关键一步”踩到谁？  " alt="李登辉“上级”都是共党 蔡英文“关键一步”踩到谁？  "></a></p>
 <p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/22/n12421565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民众顾虑个资泄露 刷脸支付在大陆难流行   >-009fcc?logoWidth=1" title="民众顾虑个资泄露 刷脸支付在大陆难流行  " alt="民众顾虑个资泄露 刷脸支付在大陆难流行  "></a></p>
 <p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/22/n12421431.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强获刑18年中共官媒噤声 引网民议论  >-009fcc?logoWidth=1" title="任志强获刑18年中共官媒噤声 引网民议论  " alt="任志强获刑18年中共官媒噤声 引网民议论  "></a></p>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946344.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平向联合国“诉苦”：不能谁拳头大就听谁 >-009fcc?logoWidth=1" title="习近平向联合国“诉苦”：不能谁拳头大就听谁  " alt="习近平向联合国“诉苦”：不能谁拳头大就听谁  "></a></p>
-<p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946312.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/边境冲突不断紧急征兵？  中共新兵痛哭影片疯>-009fcc?logoWidth=1" title="边境冲突不断紧急征兵？  中共新兵痛哭影片疯传  " alt="边境冲突不断紧急征兵？  中共新兵痛哭影片疯传  "></a></p>
+<p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946483.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李登辉“上级”都是共党 蔡英文“关键一步”踩>-009fcc?logoWidth=1" title="李登辉“上级”都是共党 蔡英文“关键一步”踩到谁？  " alt="李登辉“上级”都是共党 蔡英文“关键一步”踩到谁？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://zkouno3802.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?vevuw">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ejifl">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ekdob">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?bfanu">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?modyz">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ooegv">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?aslxp">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?oqptf">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,11 +486,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/zkouno3802/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zkouno3802/www/master/index.html?x">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zkouno3802/www/blob/master/README.md?w#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/zkouno3802/www/blob/master/README.md?g%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/yyyyk" title="分享本平台"></img>
-<br><a href="https://git.io/6rrrr">https://git.io/6rrrr</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/yyyyk">https://is.gd/yyyyk</a>
+<p><strong><a href="https://github.com/zkouno3802/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zkouno3802/www/master/index.html?i">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zkouno3802/www/blob/master/README.md?h#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/zkouno3802/www/blob/master/README.md?r%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/sscss" title="分享本平台"></img>
+<br><a href="https://git.io/aeeee">https://git.io/aeeee</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/sscss">https://is.gd/sscss</a>
 <br>
 <br>
-<h3><a href="https://zkouno3802.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/yyyyk%22%2C%22https://is.gd/z6666%22%2C%22https://is.gd/m6666%22%2C%22https://is.gd/qqqqj%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://zkouno3802.github.io/vd/qr/qr2/#https://is.gd/yyyyk" target="_blank">二维码的美化和LOGO</a></h3>
+<h3><a href="https://zkouno3802.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/sscss%22%2C%22https://is.gd/xxxx3%22%2C%22https://is.gd/rrfrr%22%2C%22https://is.gd/ttftt%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://zkouno3802.github.io/vd/qr/qr2/#https://is.gd/sscss" target="_blank">二维码的美化和LOGO</a></h3>
 </div>
