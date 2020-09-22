@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zkouno3802/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zkouno3802/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bkkkk">git.io/bkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aaq">x.co/aaq</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bpppp">git.io/bpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2pp">x.co/2pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,7 +21,7 @@
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946290.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：习近平对美“踩高跷” 胡春华杠上刘鹤 >-009fcc?logoWidth=1" title="美媒：习近平对美“踩高跷” 胡春华杠上刘鹤  " alt="美媒：习近平对美“踩高跷” 胡春华杠上刘鹤  "></a></p>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北书记应勇提起李文亮等人 当场落泪引热议 >-009fcc?logoWidth=1" title="湖北书记应勇提起李文亮等人 当场落泪引热议  " alt="湖北书记应勇提起李文亮等人 当场落泪引热议  "></a></p>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/比歼20还强？印度飙风战机亮相 释放强烈讯息>-009fcc?logoWidth=1" title="比歼20还强？印度飙风战机亮相 释放强烈讯息  " alt="比歼20还强？印度飙风战机亮相 释放强烈讯息  "></a></p>
-<p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946358.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/总理与总统才会面 疫情攻进韩国总理府    >-009fcc?logoWidth=1" title="总理与总统才会面 疫情攻进韩国总理府  " alt="总理与总统才会面 疫情攻进韩国总理府  "></a></p>
+<p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946358.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/总理与总统才会面 韩国总理府传官员确诊   >-009fcc?logoWidth=1" title="总理与总统才会面 韩国总理府传官员确诊  " alt="总理与总统才会面 韩国总理府传官员确诊  "></a></p>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946344.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平向联合国“诉苦”：不能谁拳头大就听谁 >-009fcc?logoWidth=1" title="习近平向联合国“诉苦”：不能谁拳头大就听谁  " alt="习近平向联合国“诉苦”：不能谁拳头大就听谁  "></a></p>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946327.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/方方批团中央造谣 祸起殡葬馆“满地无主手机”>-009fcc?logoWidth=1" title="方方批团中央造谣 祸起殡葬馆“满地无主手机”  " alt="方方批团中央造谣 祸起殡葬馆“满地无主手机”  "></a></p>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国驻巴林大使馆警告：美国公民保持低调回避人>-009fcc?logoWidth=1" title="美国驻巴林大使馆警告：美国公民保持低调回避人群  " alt="美国驻巴林大使馆警告：美国公民保持低调回避人群  "></a></p>
@@ -40,15 +40,15 @@
 <p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/22/n12420967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧美联手对抗中共              >-009fcc?logoWidth=1" title="欧美联手对抗中共  " alt="欧美联手对抗中共  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/21/a102946016.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普回应共军模拟炸关岛：继续玩他们会有大麻烦>-009fcc?logoWidth=1" title="川普回应共军模拟炸关岛：继续玩他们会有大麻烦  " alt="川普回应共军模拟炸关岛：继续玩他们会有大麻烦  "></a></p>
-<p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946255.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军“勇敢之盾”军演 发射飞弹画面曝光[影]>-009fcc?logoWidth=1" title="美军“勇敢之盾”军演 发射飞弹画面曝光[影]  " alt="美军“勇敢之盾”军演 发射飞弹画面曝光[影]  "></a></p>
+<p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微信禁令受阻，判决书让中共心惊       >-009fcc?logoWidth=1" title="微信禁令受阻，判决书让中共心惊  " alt="微信禁令受阻，判决书让中共心惊  "></a></p>
 <p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/21/n12420292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“满地无主手机”争议 方方批团中央造谣   >-009fcc?logoWidth=1" title="“满地无主手机”争议 方方批团中央造谣  " alt="“满地无主手机”争议 方方批团中央造谣  "></a></p>
 <p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/21/n12420435.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中拉锯战 TikTok微信命运未卜    >-009fcc?logoWidth=1" title="美中拉锯战 TikTok微信命运未卜  " alt="美中拉锯战 TikTok微信命运未卜  "></a></p>
-<p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微信禁令受阻，判决书让中共心惊       >-009fcc?logoWidth=1" title="微信禁令受阻，判决书让中共心惊  " alt="微信禁令受阻，判决书让中共心惊  "></a></p>
-<p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/21/a102945992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》 攻打台湾？现役军人不得休假退役>-009fcc?logoWidth=1" title="《石涛聚焦》 攻打台湾？现役军人不得休假退役 35-45男人随时按需被征兵  " alt="《石涛聚焦》 攻打台湾？现役军人不得休假退役 35-45男人随时按需被征兵  "></a></p>
+<p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946298.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共灭亡10大征兆已齐《推背图》《金陵塔碑文>-009fcc?logoWidth=1" title="中共灭亡10大征兆已齐《推背图》《金陵塔碑文》等预言全兑现！！  " alt="中共灭亡10大征兆已齐《推背图》《金陵塔碑文》等预言全兑现！！  "></a></p>
+<p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946280.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中秋节“蟹卡”大流行 中共官场惊现送礼不出事>-009fcc?logoWidth=1" title="中秋节“蟹卡”大流行 中共官场惊现送礼不出事渠道  " alt="中秋节“蟹卡”大流行 中共官场惊现送礼不出事渠道  "></a></p>
 <p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/21/n12420003.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥警告教廷：中共要管上帝 将习造成神  >-009fcc?logoWidth=1" title="蓬佩奥警告教廷：中共要管上帝 将习造成神  " alt="蓬佩奥警告教廷：中共要管上帝 将习造成神  "></a></p>
 <p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/21/n12420156.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共再拿中国人说事 绑架14亿人“内循环” >-009fcc?logoWidth=1" title="中共再拿中国人说事 绑架14亿人“内循环”  " alt="中共再拿中国人说事 绑架14亿人“内循环”  "></a></p>
-<p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共死管党员怕分裂 紧盯境外提款      >-009fcc?logoWidth=1" title="中共死管党员怕分裂 紧盯境外提款  " alt="中共死管党员怕分裂 紧盯境外提款  "></a></p>
-<p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946280.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中秋节“蟹卡”大流行 中共官场惊现送礼不出事>-009fcc?logoWidth=1" title="中秋节“蟹卡”大流行 中共官场惊现送礼不出事渠道  " alt="中秋节“蟹卡”大流行 中共官场惊现送礼不出事渠道  "></a></p>
+<p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/21/a102945992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛聚焦》 攻打台湾？现役军人不得休假退役>-009fcc?logoWidth=1" title="《石涛聚焦》 攻打台湾？现役军人不得休假退役 35-45男人随时按需被征兵  " alt="《石涛聚焦》 攻打台湾？现役军人不得休假退役 35-45男人随时按需被征兵  "></a></p>
+<p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946255.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军“勇敢之盾”军演 发射飞弹画面曝光[影]>-009fcc?logoWidth=1" title="美军“勇敢之盾”军演 发射飞弹画面曝光[影]  " alt="美军“勇敢之盾”军演 发射飞弹画面曝光[影]  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://zkouno3802.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?vufwm">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?qzanp">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?tulsd">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?gvlfq">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?thanm">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?tnkej">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?gxusq">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?xuold">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,10 +486,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/zkouno3802/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zkouno3802/www/master/index.html?i">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zkouno3802/www/blob/master/README.md?p#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/zkouno3802/www/blob/master/README.md?g%231" title="分享本平台"></img>
-<br><a href="https://git.io/bkkkk">https://git.io/bkkkk</a>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ztttt" title="分享本平台"></img>
-<br><a href="https://is.gd/ztttt">https://is.gd/ztttt</a>
+<p><strong><a href="https://github.com/zkouno3802/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zkouno3802/www/master/index.html?t">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zkouno3802/www/blob/master/README.md?l#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/zkouno3802/www/blob/master/README.md?z%231" title="分享本平台"></img>
+<br><a href="https://git.io/bpppp">https://git.io/bpppp</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ussss" title="分享本平台"></img>
+<br><a href="https://is.gd/ussss">https://is.gd/ussss</a>
 </div>
