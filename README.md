@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zkouno3802/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zkouno3802/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nqqqq">git.io/nqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pfp">x.co/pfp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fnnnn">git.io/fnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/qdd">x.co/qdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946234.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国国会一份报告出炉 川普怒轰习近平    >-009fcc?logoWidth=1" title="美国国会一份报告出炉 川普怒轰习近平  " alt="美国国会一份报告出炉 川普怒轰习近平  "></a></p>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/21/a102946091.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾改“第一击”为“自卫反击” 不排除先开火>-009fcc?logoWidth=1" title="台湾改“第一击”为“自卫反击” 不排除先开火？  " alt="台湾改“第一击”为“自卫反击” 不排除先开火？  "></a></p>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/21/a102946016.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普回应共军模拟炸关岛：继续玩他们会有大麻烦>-009fcc?logoWidth=1" title="川普回应共军模拟炸关岛：继续玩他们会有大麻烦  " alt="川普回应共军模拟炸关岛：继续玩他们会有大麻烦  "></a></p>
+<p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946344.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平向联合国“诉苦”：不能谁拳头大就听谁 >-009fcc?logoWidth=1" title="习近平向联合国“诉苦”：不能谁拳头大就听谁  " alt="习近平向联合国“诉苦”：不能谁拳头大就听谁  "></a></p>
+<p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946327.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/方方批团中央造谣 祸起殡葬馆“满地无主手机”>-009fcc?logoWidth=1" title="方方批团中央造谣 祸起殡葬馆“满地无主手机”  " alt="方方批团中央造谣 祸起殡葬馆“满地无主手机”  "></a></p>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946317.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国驻巴林大使馆警告：美国公民保持低调回避人>-009fcc?logoWidth=1" title="美国驻巴林大使馆警告：美国公民保持低调回避人群  " alt="美国驻巴林大使馆警告：美国公民保持低调回避人群  "></a></p>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946280.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中秋节“蟹卡”大流行 中共官场惊现送礼不出事>-009fcc?logoWidth=1" title="中秋节“蟹卡”大流行 中共官场惊现送礼不出事渠道  " alt="中秋节“蟹卡”大流行 中共官场惊现送礼不出事渠道  "></a></p>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946255.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军“勇敢之盾”军演 发射飞弹画面曝光[影]>-009fcc?logoWidth=1" title="美军“勇敢之盾”军演 发射飞弹画面曝光[影]  " alt="美军“勇敢之盾”军演 发射飞弹画面曝光[影]  "></a></p>
-<p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/21/a102945965.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/72届艾美奖线上颁奖 《守望者》成最大赢家 >-009fcc?logoWidth=1" title="72届艾美奖线上颁奖 《守望者》成最大赢家  " alt="72届艾美奖线上颁奖 《守望者》成最大赢家  "></a></p>
-<p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/20/a102944962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/云南全面进入战时状态/张文宏：二波疫情是必然>-009fcc?logoWidth=1" title="云南全面进入战时状态/张文宏：二波疫情是必然  " alt="云南全面进入战时状态/张文宏：二波疫情是必然  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/21/n12420552.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴菲特投资的比亚迪股价暴跌 市值损200亿 >-009fcc?logoWidth=1" title="巴菲特投资的比亚迪股价暴跌 市值损200亿  " alt="巴菲特投资的比亚迪股价暴跌 市值损200亿  "></a></p>
 <p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/21/n12420503.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一代奸相周恩来（中）            >-009fcc?logoWidth=1" title="一代奸相周恩来（中）  " alt="一代奸相周恩来（中）  "></a></p>
@@ -261,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://zkouno3802.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?usktn">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?fhgev">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ezrub">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?zpezy">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?bilyo">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?larty">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?lcmbo">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?nogxy">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,10 +487,10 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/zkouno3802/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zkouno3802/www/master/index.html?z">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zkouno3802/www/blob/master/README.md?l#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/zkouno3802/www/blob/master/README.md?f%231" title="分享本平台"></img>
-<br><a href="https://git.io/nqqqq">https://git.io/nqqqq</a>
+<p><strong><a href="https://github.com/zkouno3802/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zkouno3802/www/master/index.html?f">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zkouno3802/www/blob/master/README.md?p#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/zkouno3802/www/blob/master/README.md?r%231" title="分享本平台"></img>
+<br><a href="https://git.io/fnnnn">https://git.io/fnnnn</a>
 <br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/nnnny" title="分享本平台"></img>
 <br><a href="https://is.gd/nnnny">https://is.gd/nnnny</a>
 </div>
