@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zkouno3802/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zkouno3802/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/j3333">git.io/j3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aau">x.co/aau</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/udddd">git.io/udddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2777">x.co/2777</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -24,22 +24,23 @@
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946848.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进180度大转弯 称北京叫停TikTok>-009fcc?logoWidth=1" title="胡锡进180度大转弯 称北京叫停TikTok交易  " alt="胡锡进180度大转弯 称北京叫停TikTok交易  "></a></p>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946793.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美众院共和党公布完整病毒起源报告 再批中共瞒>-009fcc?logoWidth=1" title="美众院共和党公布完整病毒起源报告 再批中共瞒疫  " alt="美众院共和党公布完整病毒起源报告 再批中共瞒疫  "></a></p>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946794.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微信官司律所被曝红色背景 拜登加州助选人涉入>-009fcc?logoWidth=1" title="微信官司律所被曝红色背景 拜登加州助选人涉入  " alt="微信官司律所被曝红色背景 拜登加州助选人涉入  "></a></p>
-<p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/苏州幼儿园外再现随机杀人 至少1死4伤（视频>-009fcc?logoWidth=1" title="苏州幼儿园外再现随机杀人 至少1死4伤（视频）  " alt="苏州幼儿园外再现随机杀人 至少1死4伤（视频）  "></a></p>
+<p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五角大楼报告揭秘：中国私企沦中共军企    >-009fcc?logoWidth=1" title="五角大楼报告揭秘：中国私企沦中共军企  " alt="五角大楼报告揭秘：中国私企沦中共军企  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/22/n12421360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：纽约警官勾结中领馆 带来重大警讯   >-009fcc?logoWidth=1" title="田云：纽约警官勾结中领馆 带来重大警讯  " alt="田云：纽约警官勾结中领馆 带来重大警讯  "></a></p>
+<p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/22/n12422771.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余茂春揭秘：为保香港 川普愿牺牲贸易协议  >-009fcc?logoWidth=1" title="余茂春揭秘：为保香港 川普愿牺牲贸易协议  " alt="余茂春揭秘：为保香港 川普愿牺牲贸易协议  "></a></p>
 <p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/22/n12421898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共内部激烈分化 想报复川普又不敢    >-009fcc?logoWidth=1" title="传中共内部激烈分化 想报复川普又不敢  " alt="传中共内部激烈分化 想报复川普又不敢  "></a></p>
-<p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/21/n12420552.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴菲特投资的比亚迪股价暴跌 市值损200亿 >-009fcc?logoWidth=1" title="巴菲特投资的比亚迪股价暴跌 市值损200亿  " alt="巴菲特投资的比亚迪股价暴跌 市值损200亿  "></a></p>
-<p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/21/n12420340.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：北京若攻击关岛美军 无异于玩火自焚 >-009fcc?logoWidth=1" title="周晓辉：北京若攻击关岛美军 无异于玩火自焚  " alt="周晓辉：北京若攻击关岛美军 无异于玩火自焚  "></a></p>
-<p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/22/n12422908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余茂春：中共在香港的“四大失败”      >-009fcc?logoWidth=1" title="余茂春：中共在香港的“四大失败”  " alt="余茂春：中共在香港的“四大失败”  "></a></p>
+<p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/22/n12421155.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共管控党员怕分裂 紧盯境外提款      >-009fcc?logoWidth=1" title="中共管控党员怕分裂 紧盯境外提款  " alt="中共管控党员怕分裂 紧盯境外提款  "></a></p>
+<p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/22/n12422534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：一提到疫情 我就对习近平很生气    >-009fcc?logoWidth=1" title="川普：一提到疫情 我就对习近平很生气  " alt="川普：一提到疫情 我就对习近平很生气  "></a></p>
 <p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/14/n12403376.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惠州公司调研 泄中共外办的秘密       >-009fcc?logoWidth=1" title="惠州公司调研 泄中共外办的秘密  " alt="惠州公司调研 泄中共外办的秘密  "></a></p>
-<p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/22/n12422845.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一进一退联合国？何谓“一中”        >-009fcc?logoWidth=1" title="一进一退联合国？何谓“一中”  " alt="一进一退联合国？何谓“一中”  "></a></p>
+<p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/21/n12420340.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：北京若攻击关岛美军 无异于玩火自焚 >-009fcc?logoWidth=1" title="周晓辉：北京若攻击关岛美军 无异于玩火自焚  " alt="周晓辉：北京若攻击关岛美军 无异于玩火自焚  "></a></p>
 <p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/21/n12419715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两大原因  或冲击中国未来基本粮食供应   >-009fcc?logoWidth=1" title="两大原因  或冲击中国未来基本粮食供应  " alt="两大原因  或冲击中国未来基本粮食供应  "></a></p>
 <p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/22/n12422799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强遭重判18年 分析：政治迫害     >-009fcc?logoWidth=1" title="任志强遭重判18年 分析：政治迫害  " alt="任志强遭重判18年 分析：政治迫害  "></a></p>
-<p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/22/n12422899.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京警方抓捕地铁色狼 竟是银保监会一处长  >-009fcc?logoWidth=1" title="北京警方抓捕地铁色狼 竟是银保监会一处长  " alt="北京警方抓捕地铁色狼 竟是银保监会一处长  "></a></p>
-<p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/22/n12421142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反抗校方 西安大学生集体呐喊        >-009fcc?logoWidth=1" title="反抗校方 西安大学生集体呐喊  " alt="反抗校方 西安大学生集体呐喊  "></a></p>
-<p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/22/n12421431.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强获刑18年中共官媒噤声 引网民议论  >-009fcc?logoWidth=1" title="任志强获刑18年中共官媒噤声 引网民议论  " alt="任志强获刑18年中共官媒噤声 引网民议论  "></a></p>
+<p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/22/n12422729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/从瘟疫到中东和平 川普联大演讲聚焦五议题  >-009fcc?logoWidth=1" title="从瘟疫到中东和平 川普联大演讲聚焦五议题  " alt="从瘟疫到中东和平 川普联大演讲聚焦五议题  "></a></p>
+<p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/22/n12422908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余茂春：中共在香港的“四大失败”      >-009fcc?logoWidth=1" title="余茂春：中共在香港的“四大失败”  " alt="余茂春：中共在香港的“四大失败”  "></a></p>
+<p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/22/n12422845.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一进一退联合国？何谓“一中”        >-009fcc?logoWidth=1" title="一进一退联合国？何谓“一中”  " alt="一进一退联合国？何谓“一中”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/22/n12421299.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/因言获罪 任志强遭重判18年        >-009fcc?logoWidth=1" title="因言获罪 任志强遭重判18年  " alt="因言获罪 任志强遭重判18年  "></a></p>
+<p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/22/n12421142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反抗校方 西安大学生集体呐喊        >-009fcc?logoWidth=1" title="反抗校方 西安大学生集体呐喊  " alt="反抗校方 西安大学生集体呐喊  "></a></p>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946234.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国国会一份报告出炉 川普怒轰习近平    >-009fcc?logoWidth=1" title="美国国会一份报告出炉 川普怒轰习近平  " alt="美国国会一份报告出炉 川普怒轰习近平  "></a></p>
 <p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/22/n12422064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/银保监会官员地铁性骚扰女乘客 当场被抓   >-009fcc?logoWidth=1" title="银保监会官员地铁性骚扰女乘客 当场被抓  " alt="银保监会官员地铁性骚扰女乘客 当场被抓  "></a></p>
 <p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/21/n12420151.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不满封校 西安大学生集体呐喊        >-009fcc?logoWidth=1" title="不满封校 西安大学生集体呐喊  " alt="不满封校 西安大学生集体呐喊  "></a></p>
@@ -49,6 +50,7 @@
 <p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/21/n12420292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“满地无主手机”争议 方方批团中央造谣   >-009fcc?logoWidth=1" title="“满地无主手机”争议 方方批团中央造谣  " alt="“满地无主手机”争议 方方批团中央造谣  "></a></p>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/诱逼台湾攻击 中共藏什么战略？       >-009fcc?logoWidth=1" title="诱逼台湾攻击 中共藏什么战略？  " alt="诱逼台湾攻击 中共藏什么战略？  "></a></p>
 <p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/22/n12421565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民众顾虑个资泄露 刷脸支付在大陆难流行   >-009fcc?logoWidth=1" title="民众顾虑个资泄露 刷脸支付在大陆难流行  " alt="民众顾虑个资泄露 刷脸支付在大陆难流行  "></a></p>
+<p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/22/n12421431.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强获刑18年中共官媒噤声 引网民议论  >-009fcc?logoWidth=1" title="任志强获刑18年中共官媒噤声 引网民议论  " alt="任志强获刑18年中共官媒噤声 引网民议论  "></a></p>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946290.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：习近平对美“踩高跷” 胡春华杠上刘鹤 >-009fcc?logoWidth=1" title="美媒：习近平对美“踩高跷” 胡春华杠上刘鹤  " alt="美媒：习近平对美“踩高跷” 胡春华杠上刘鹤  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -261,9 +263,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://zkouno3802.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?rvaca">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?blovf">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?fiieg">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?odxpc">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +309,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?gkqgu">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?gfheb">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?kzkox">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?xddos">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,11 +489,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/zkouno3802/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zkouno3802/www/master/index.html?b">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zkouno3802/www/blob/master/README.md?a#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/zkouno3802/www/blob/master/README.md?w%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/zzhzz" title="分享本平台"></img>
-<br><a href="https://git.io/j3333">https://git.io/j3333</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/zzhzz">https://is.gd/zzhzz</a>
+<p><strong><a href="https://github.com/zkouno3802/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zkouno3802/www/master/index.html?a">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zkouno3802/www/blob/master/README.md?u#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/zkouno3802/www/blob/master/README.md?l%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/yyeyy" title="分享本平台"></img>
+<br><a href="https://git.io/udddd">https://git.io/udddd</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/yyeyy">https://is.gd/yyeyy</a>
 <br>
 <br>
-<h3><a href="https://zkouno3802.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/zzhzz%22%2C%22https://is.gd/qqcqq%22%2C%22https://is.gd/ssssb%22%2C%22https://is.gd/pkkkk%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://zkouno3802.github.io/vd/qr/qr2/#https://is.gd/zzhzz" target="_blank">二维码的美化和LOGO</a></h3>
+<h3><a href="https://zkouno3802.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/yyeyy%22%2C%22https://is.gd/nnmnn%22%2C%22https://is.gd/zzzzt%22%2C%22https://is.gd/scccc%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://zkouno3802.github.io/vd/qr/qr2/#https://is.gd/yyeyy" target="_blank">二维码的美化和LOGO</a></h3>
 </div>
