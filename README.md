@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zkouno3802/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zkouno3802/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/6bbbb">git.io/6bbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/fdd">x.co/fdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/feeee">git.io/feeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3999">x.co/3999</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946365.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平威胁“反习集团” 狠判任志强18年  >-009fcc?logoWidth=1" title="习近平威胁“反习集团” 狠判任志强18年  " alt="习近平威胁“反习集团” 狠判任志强18年  "></a></p>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946389.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美神秘“51区”发现16米高外星机器人和UF>-009fcc?logoWidth=1" title="美神秘“51区”发现16米高外星机器人和UFO(视频)  " alt="美神秘“51区”发现16米高外星机器人和UFO(视频)  "></a></p>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞揭“换习”内幕 党内三大派 习已成光杆司>-009fcc?logoWidth=1" title="蔡霞揭“换习”内幕 党内三大派 习已成光杆司令  " alt="蔡霞揭“换习”内幕 党内三大派 习已成光杆司令  "></a></p>
+<p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946794.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微信官司律所被曝红色背景 拜登加州助选人涉入>-009fcc?logoWidth=1" title="微信官司律所被曝红色背景 拜登加州助选人涉入  " alt="微信官司律所被曝红色背景 拜登加州助选人涉入  "></a></p>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/苏州幼儿园外再现随机杀人 至少1死4伤（视频>-009fcc?logoWidth=1" title="苏州幼儿园外再现随机杀人 至少1死4伤（视频）  " alt="苏州幼儿园外再现随机杀人 至少1死4伤（视频）  "></a></p>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/番禺小学惨案凶手原为官媒记者 曾维权10年屡>-009fcc?logoWidth=1" title="番禺小学惨案凶手原为官媒记者 曾维权10年屡遭迫害  " alt="番禺小学惨案凶手原为官媒记者 曾维权10年屡遭迫害  "></a></p>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946754.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大法官提名 麦康奈尔：参议院今年表决    >-009fcc?logoWidth=1" title="大法官提名 麦康奈尔：参议院今年表决  " alt="大法官提名 麦康奈尔：参议院今年表决  "></a></p>
 <p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946748.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/给川普邮件含蓖麻毒素 加拿大女子被逮捕   >-009fcc?logoWidth=1" title="给川普邮件含蓖麻毒素 加拿大女子被逮捕  " alt="给川普邮件含蓖麻毒素 加拿大女子被逮捕  "></a></p>
-<p><a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/2020/09/22/a102946732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/再砍新闻自由 港警修例等同实施“媒体登记制”>-009fcc?logoWidth=1" title="再砍新闻自由 港警修例等同实施“媒体登记制”  " alt="再砍新闻自由 港警修例等同实施“媒体登记制”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/22/n12421360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：纽约警官勾结中领馆 带来重大警讯   >-009fcc?logoWidth=1" title="田云：纽约警官勾结中领馆 带来重大警讯  " alt="田云：纽约警官勾结中领馆 带来重大警讯  "></a></p>
 <p><a href="https://github.com/zkouno3802/djy/blob/master/gb/20/9/22/n12421898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传中共内部激烈分化 想报复川普又不敢    >-009fcc?logoWidth=1" title="传中共内部激烈分化 想报复川普又不敢  " alt="传中共内部激烈分化 想报复川普又不敢  "></a></p>
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://zkouno3802.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?yorsc">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?oqhgi">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?xfcxa">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?oseaw">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?chnpq">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?zmrjp">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?fqfie">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?xpbdn">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,11 +485,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/zkouno3802/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zkouno3802/www/master/index.html?z">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zkouno3802/www/blob/master/README.md?d#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/zkouno3802/www/blob/master/README.md?d%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/nnnn8" title="分享本平台"></img>
-<br><a href="https://git.io/6bbbb">https://git.io/6bbbb</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/nnnn8">https://is.gd/nnnn8</a>
+<p><strong><a href="https://github.com/zkouno3802/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zkouno3802/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zkouno3802/www/master/index.html?x">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zkouno3802/www/blob/master/README.md?k#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/zkouno3802/www/blob/master/README.md?w%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/z5555" title="分享本平台"></img>
+<br><a href="https://git.io/feeee">https://git.io/feeee</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/z5555">https://is.gd/z5555</a>
 <br>
 <br>
-<h3><a href="https://zkouno3802.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/nnnn8%22%2C%22https://is.gd/rrbrr%22%2C%22https://is.gd/qqqqh%22%2C%22https://is.gd/sgggg%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://zkouno3802.github.io/vd/qr/qr2/#https://is.gd/nnnn8" target="_blank">二维码的美化和LOGO</a></h3>
+<h3><a href="https://zkouno3802.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/z5555%22%2C%22https://is.gd/t5555%22%2C%22https://is.gd/ssss8%22%2C%22https://is.gd/tffff%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://zkouno3802.github.io/vd/qr/qr2/#https://is.gd/z5555" target="_blank">二维码的美化和LOGO</a></h3>
 </div>
