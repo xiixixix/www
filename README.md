@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ndmpxu3731/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ndmpxu3731/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/j7777">git.io/j7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/hua9">x.co/hua9</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/3dddd">git.io/3dddd</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/x99">x.co/x99</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/ndmpxu3731/ntdtv/blob/master/gb/2020/09/23/a102947289.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普怒称“中国病毒” 习近平砸钱示软    >-009fcc?logoWidth=1" title="川普怒称“中国病毒” 习近平砸钱示软  " alt="川普怒称“中国病毒” 习近平砸钱示软  "></a></p>
-<p><a href="https://github.com/ndmpxu3731/ntdtv/blob/master/gb/2020/09/23/a102947242.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/青海首富肖永明被查 背后隐现赵乐际     >-009fcc?logoWidth=1" title="青海首富肖永明被查 背后隐现赵乐际  " alt="青海首富肖永明被查 背后隐现赵乐际  "></a></p>
 <p><a href="https://github.com/ndmpxu3731/ntdtv/blob/master/gb/2020/09/23/a102947170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共女代表撒泼联合国 遭大会主席无视(视频)>-009fcc?logoWidth=1" title="中共女代表撒泼联合国 遭大会主席无视(视频)  " alt="中共女代表撒泼联合国 遭大会主席无视(视频)  "></a></p>
 <p><a href="https://github.com/ndmpxu3731/ntdtv/blob/master/gb/2020/09/23/a102947147.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五中全会前局势诡异！李克强王沪宁各释信号  >-009fcc?logoWidth=1" title="五中全会前局势诡异！李克强王沪宁各释信号  " alt="五中全会前局势诡异！李克强王沪宁各释信号  "></a></p>
 <p><a href="https://github.com/ndmpxu3731/ntdtv/blob/master/gb/2020/09/23/a102947116.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强案内幕流出：王沪宁主抓，他想当副主席 >-009fcc?logoWidth=1" title="任志强案内幕流出：王沪宁主抓，他想当副主席  " alt="任志强案内幕流出：王沪宁主抓，他想当副主席  "></a></p>
 <p><a href="https://github.com/ndmpxu3731/ntdtv/blob/master/gb/2020/09/23/a102947064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强视察上海 保镖突然扑上去(视频)   >-009fcc?logoWidth=1" title="李克强视察上海 保镖突然扑上去(视频)  " alt="李克强视察上海 保镖突然扑上去(视频)  "></a></p>
+<p><a href="https://github.com/ndmpxu3731/ntdtv/blob/master/gb/2020/09/23/a102947063.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强被重判18年 官媒诡异噤声引热议   >-009fcc?logoWidth=1" title="任志强被重判18年 官媒诡异噤声引热议  " alt="任志强被重判18年 官媒诡异噤声引热议  "></a></p>
 <p><a href="https://github.com/ndmpxu3731/ntdtv/blob/master/gb/2020/09/23/a102947230.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/470头领航鲸搁浅澳洲 大部分已经死亡   >-009fcc?logoWidth=1" title="470头领航鲸搁浅澳洲 大部分已经死亡  " alt="470头领航鲸搁浅澳洲 大部分已经死亡  "></a></p>
 <p><a href="https://github.com/ndmpxu3731/ntdtv/blob/master/gb/2020/09/23/a102947236.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余茂春：川普力阻中共镇压香港 宁失贸易协议 >-009fcc?logoWidth=1" title="余茂春：川普力阻中共镇压香港 宁失贸易协议  " alt="余茂春：川普力阻中共镇压香港 宁失贸易协议  "></a></p>
 <p><a href="https://github.com/ndmpxu3731/ntdtv/blob/master/gb/2020/09/23/a102947218.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/因一句玩笑话 护士找飞机助癌末男完成最后心愿>-009fcc?logoWidth=1" title="因一句玩笑话 护士找飞机助癌末男完成最后心愿  " alt="因一句玩笑话 护士找飞机助癌末男完成最后心愿  "></a></p>
+<p><a href="https://github.com/ndmpxu3731/ntdtv/blob/master/gb/2020/09/23/a102947242.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/青海首富肖永明被查 背后隐现赵乐际     >-009fcc?logoWidth=1" title="青海首富肖永明被查 背后隐现赵乐际  " alt="青海首富肖永明被查 背后隐现赵乐际  "></a></p>
 <p><a href="https://github.com/ndmpxu3731/ntdtv/blob/master/gb/2020/09/23/a102947214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾庆红心腹马仔史文清被查 乱伦性癖好曝光  >-009fcc?logoWidth=1" title="曾庆红心腹马仔史文清被查 乱伦性癖好曝光  " alt="曾庆红心腹马仔史文清被查 乱伦性癖好曝光  "></a></p>
-<p><a href="https://github.com/ndmpxu3731/ntdtv/blob/master/gb/2020/09/23/a102947204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大马政局波涛诡异 传安华获国会多数议席或执政>-009fcc?logoWidth=1" title="大马政局波涛诡异 传安华获国会多数议席或执政  " alt="大马政局波涛诡异 传安华获国会多数议席或执政  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ndmpxu3731/djy/blob/master/gb/20/9/18/n12414395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共未来五年的战略通道布局         >-009fcc?logoWidth=1" title="中共未来五年的战略通道布局  " alt="中共未来五年的战略通道布局  "></a></p>
 <p><a href="https://github.com/ndmpxu3731/djy/blob/master/gb/20/9/23/n12423419.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：川普强硬 习“叫屈” 世界格局渐明朗 >-009fcc?logoWidth=1" title="杨威：川普强硬 习“叫屈” 世界格局渐明朗  " alt="杨威：川普强硬 习“叫屈” 世界格局渐明朗  "></a></p>
@@ -39,17 +39,16 @@
 <p><a href="https://github.com/ndmpxu3731/djy/blob/master/gb/20/9/23/n12423738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆27城二手房价格下行 牡丹江跌近一成  >-009fcc?logoWidth=1" title="大陆27城二手房价格下行 牡丹江跌近一成  " alt="大陆27城二手房价格下行 牡丹江跌近一成  "></a></p>
 <p><a href="https://github.com/ndmpxu3731/djy/blob/master/gb/20/9/23/n12423561.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭秘川普阻止中共镇压香港          >-009fcc?logoWidth=1" title="揭秘川普阻止中共镇压香港  " alt="揭秘川普阻止中共镇压香港  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ndmpxu3731/ntdtv/blob/master/gb/2020/09/22/a102946941.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美金融犯罪执法网络密件外泄 曝汇丰纵容庞氏骗>-009fcc?logoWidth=1" title="美金融犯罪执法网络密件外泄 曝汇丰纵容庞氏骗局  " alt="美金融犯罪执法网络密件外泄 曝汇丰纵容庞氏骗局  "></a></p>
-<p><a href="https://github.com/ndmpxu3731/ntdtv/blob/master/gb/2020/09/23/a102947205.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京抓地铁“色狼” 抓到一名处长      >-009fcc?logoWidth=1" title="北京抓地铁“色狼” 抓到一名处长  " alt="北京抓地铁“色狼” 抓到一名处长  "></a></p>
 <p><a href="https://github.com/ndmpxu3731/ntdtv/blob/master/gb/2020/09/22/a102946716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/1420名百岁寿星大调查！只有一个共性，不是>-009fcc?logoWidth=1" title="1420名百岁寿星大调查！只有一个共性，不是饮食运动，而是……  " alt="1420名百岁寿星大调查！只有一个共性，不是饮食运动，而是……  "></a></p>
+<p><a href="https://github.com/ndmpxu3731/ntdtv/blob/master/gb/2020/09/22/a102946370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞揭“换习”内幕 党内三大派 习已成光杆司>-009fcc?logoWidth=1" title="蔡霞揭“换习”内幕 党内三大派 习已成光杆司令  " alt="蔡霞揭“换习”内幕 党内三大派 习已成光杆司令  "></a></p>
 <p><a href="https://github.com/ndmpxu3731/djy/blob/master/gb/20/9/23/n12423460.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏小强：任志强遭重判 习近平危机加剧    >-009fcc?logoWidth=1" title="夏小强：任志强遭重判 习近平危机加剧  " alt="夏小强：任志强遭重判 习近平危机加剧  "></a></p>
 <p><a href="https://github.com/ndmpxu3731/djy/blob/master/gb/20/9/22/n12422771.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余茂春揭秘：为保香港 川普愿牺牲贸易协议  >-009fcc?logoWidth=1" title="余茂春揭秘：为保香港 川普愿牺牲贸易协议  " alt="余茂春揭秘：为保香港 川普愿牺牲贸易协议  "></a></p>
-<p><a href="https://github.com/ndmpxu3731/ntdtv/blob/master/gb/2020/09/22/a102946370.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞揭“换习”内幕 党内三大派 习已成光杆司>-009fcc?logoWidth=1" title="蔡霞揭“换习”内幕 党内三大派 习已成光杆司令  " alt="蔡霞揭“换习”内幕 党内三大派 习已成光杆司令  "></a></p>
 <p><a href="https://github.com/ndmpxu3731/ntdtv/blob/master/gb/2020/09/20/a102944962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张文宏钟南山连续预警 疫情或再爆发     >-009fcc?logoWidth=1" title="张文宏钟南山连续预警 疫情或再爆发  " alt="张文宏钟南山连续预警 疫情或再爆发  "></a></p>
+<p><a href="https://github.com/ndmpxu3731/ntdtv/blob/master/gb/2020/09/22/a102946927.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉： 北京对联合国提四点建议 世界哂笑 >-009fcc?logoWidth=1" title="周晓辉： 北京对联合国提四点建议 世界哂笑  " alt="周晓辉： 北京对联合国提四点建议 世界哂笑  "></a></p>
 <p><a href="https://github.com/ndmpxu3731/djy/blob/master/gb/20/9/22/n12422534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：一提到疫情 我就对习近平很生气    >-009fcc?logoWidth=1" title="川普：一提到疫情 我就对习近平很生气  " alt="川普：一提到疫情 我就对习近平很生气  "></a></p>
 <p><a href="https://github.com/ndmpxu3731/djy/blob/master/gb/20/9/22/n12423152.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：川普联大追责中共 中国人赶紧“三退”>-009fcc?logoWidth=1" title="王友群：川普联大追责中共 中国人赶紧“三退”  " alt="王友群：川普联大追责中共 中国人赶紧“三退”  "></a></p>
-<p><a href="https://github.com/ndmpxu3731/ntdtv/blob/master/gb/2020/09/22/a102946927.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉： 北京对联合国提四点建议 世界哂笑 >-009fcc?logoWidth=1" title="周晓辉： 北京对联合国提四点建议 世界哂笑  " alt="周晓辉： 北京对联合国提四点建议 世界哂笑  "></a></p>
 <p><a href="https://github.com/ndmpxu3731/ntdtv/blob/master/gb/2020/09/22/a102946870.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普联大致辞 火力全开点名中共12次    >-009fcc?logoWidth=1" title="川普联大致辞 火力全开点名中共12次  " alt="川普联大致辞 火力全开点名中共12次  "></a></p>
+<p><a href="https://github.com/ndmpxu3731/ntdtv/blob/master/gb/2020/09/22/a102946941.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美金融犯罪执法网络密件外泄 曝汇丰纵容庞氏骗>-009fcc?logoWidth=1" title="美金融犯罪执法网络密件外泄 曝汇丰纵容庞氏骗局  " alt="美金融犯罪执法网络密件外泄 曝汇丰纵容庞氏骗局  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -261,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://ndmpxu3731.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?onrkh">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?uiuua">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?kbvxp">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ucqgi">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?xiufq">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?iutmt">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?putmv">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?jbebk">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,11 +486,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/ndmpxu3731/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ndmpxu3731/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ndmpxu3731/www/master/index.html?g">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ndmpxu3731/www/blob/master/README.md?p#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ndmpxu3731/www/blob/master/README.md?y%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/rrirr" title="分享本平台"></img>
-<br><a href="https://git.io/j7777">https://git.io/j7777</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/rrirr">https://is.gd/rrirr</a>
+<p><strong><a href="https://github.com/ndmpxu3731/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ndmpxu3731/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ndmpxu3731/www/master/index.html?f">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ndmpxu3731/www/blob/master/README.md?k#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ndmpxu3731/www/blob/master/README.md?j%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/tuuuu" title="分享本平台"></img>
+<br><a href="https://git.io/3dddd">https://git.io/3dddd</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/tuuuu">https://is.gd/tuuuu</a>
 <br>
 <br>
-<h3><a href="https://ndmpxu3731.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/rrirr%22%2C%22https://is.gd/rrrrx%22%2C%22https://is.gd/s3333%22%2C%22https://is.gd/yyyy2%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ndmpxu3731.github.io/vd/qr/qr2/#https://is.gd/rrirr" target="_blank">二维码的美化和LOGO</a></h3>
+<h3><a href="https://ndmpxu3731.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/tuuuu%22%2C%22https://is.gd/uuuuuuu%22%2C%22https://is.gd/zzzzg%22%2C%22https://is.gd/ppmpp%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ndmpxu3731.github.io/vd/qr/qr2/#https://is.gd/tuuuu" target="_blank">二维码的美化和LOGO</a></h3>
 </div>
