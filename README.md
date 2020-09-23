@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mhtgpw3965/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mhtgpw3965/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/8bbbb">git.io/8bbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9933">x.co/9933</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dgggg">git.io/dgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/fpp">x.co/fpp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,7 +39,7 @@
 <p><a href="https://github.com/mhtgpw3965/djy/blob/master/gb/20/9/22/n12422534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：一提到疫情 我就对习近平很生气    >-009fcc?logoWidth=1" title="川普：一提到疫情 我就对习近平很生气  " alt="川普：一提到疫情 我就对习近平很生气  "></a></p>
 <p><a href="https://github.com/mhtgpw3965/djy/blob/master/gb/20/9/22/n12421360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：纽约警官勾结中领馆 带来重大警讯   >-009fcc?logoWidth=1" title="田云：纽约警官勾结中领馆 带来重大警讯  " alt="田云：纽约警官勾结中领馆 带来重大警讯  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/mhtgpw3965/ntdtv/blob/master/gb/2020/09/22/a102946372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/讽习近平是小丑 任志强被重判18年     >-009fcc?logoWidth=1" title="讽习近平是小丑 任志强被重判18年  " alt="讽习近平是小丑 任志强被重判18年  "></a></p>
+<p><a href="https://github.com/mhtgpw3965/ntdtv/blob/master/gb/2020/09/22/a102946365.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/狠判任志强18年 习一句话威胁“反习集团” >-009fcc?logoWidth=1" title="狠判任志强18年 习一句话威胁“反习集团”  " alt="狠判任志强18年 习一句话威胁“反习集团”  "></a></p>
 <p><a href="https://github.com/mhtgpw3965/ntdtv/blob/master/gb/2020/09/22/a102946848.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进180度大转弯 称北京叫停TikTok>-009fcc?logoWidth=1" title="胡锡进180度大转弯 称北京叫停TikTok交易  " alt="胡锡进180度大转弯 称北京叫停TikTok交易  "></a></p>
 <p><a href="https://github.com/mhtgpw3965/ntdtv/blob/master/gb/2020/09/22/a102946389.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美神秘“51区”发现16米高外星机器人和UF>-009fcc?logoWidth=1" title="美神秘“51区”发现16米高外星机器人和UFO(视频)  " alt="美神秘“51区”发现16米高外星机器人和UFO(视频)  "></a></p>
 <p><a href="https://github.com/mhtgpw3965/djy/blob/master/gb/20/9/22/n12423007.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆民众批中共央视抗疫剧背离实情 呼吁停播 >-009fcc?logoWidth=1" title="大陆民众批中共央视抗疫剧背离实情 呼吁停播  " alt="大陆民众批中共央视抗疫剧背离实情 呼吁停播  "></a></p>
@@ -48,7 +48,7 @@
 <p><a href="https://github.com/mhtgpw3965/djy/blob/master/gb/20/9/22/n12422691.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普重敲联合国：如果还有效 该干点实事   >-009fcc?logoWidth=1" title="川普重敲联合国：如果还有效 该干点实事  " alt="川普重敲联合国：如果还有效 该干点实事  "></a></p>
 <p><a href="https://github.com/mhtgpw3965/djy/blob/master/gb/20/9/22/n12421108.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美曝光中共黑客对话 揭“链式”作案手法   >-009fcc?logoWidth=1" title="美曝光中共黑客对话 揭“链式”作案手法  " alt="美曝光中共黑客对话 揭“链式”作案手法  "></a></p>
 <p><a href="https://github.com/mhtgpw3965/ntdtv/blob/master/gb/2020/09/22/a102946927.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉： 北京对联合国提四点建议 世界哂笑 >-009fcc?logoWidth=1" title="周晓辉： 北京对联合国提四点建议 世界哂笑  " alt="周晓辉： 北京对联合国提四点建议 世界哂笑  "></a></p>
-<p><a href="https://github.com/mhtgpw3965/ntdtv/blob/master/gb/2020/09/22/a102946290.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：习近平对美“踩高跷” 胡春华杠上刘鹤 >-009fcc?logoWidth=1" title="美媒：习近平对美“踩高跷” 胡春华杠上刘鹤  " alt="美媒：习近平对美“踩高跷” 胡春华杠上刘鹤  "></a></p>
+<p><a href="https://github.com/mhtgpw3965/ntdtv/blob/master/gb/2020/09/22/a102946372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/讽习近平是小丑 任志强被重判18年     >-009fcc?logoWidth=1" title="讽习近平是小丑 任志强被重判18年  " alt="讽习近平是小丑 任志强被重判18年  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://mhtgpw3965.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?iqoih">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?gmebb">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?lphfc">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?hrmsp">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?gkpwc">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ajoch">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?yimue">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?wkilt">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,11 +486,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/mhtgpw3965/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mhtgpw3965/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mhtgpw3965/www/master/index.html?k">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mhtgpw3965/www/blob/master/README.md?x#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/mhtgpw3965/www/blob/master/README.md?y%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/yyyym" title="分享本平台"></img>
-<br><a href="https://git.io/8bbbb">https://git.io/8bbbb</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/yyyym">https://is.gd/yyyym</a>
+<p><strong><a href="https://github.com/mhtgpw3965/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mhtgpw3965/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mhtgpw3965/www/master/index.html?h">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mhtgpw3965/www/blob/master/README.md?y#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/mhtgpw3965/www/blob/master/README.md?r%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/qqfqq" title="分享本平台"></img>
+<br><a href="https://git.io/dgggg">https://git.io/dgggg</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/qqfqq">https://is.gd/qqfqq</a>
 <br>
 <br>
-<h3><a href="https://mhtgpw3965.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/yyyym%22%2C%22https://is.gd/mmmmb%22%2C%22https://is.gd/zzmzz%22%2C%22https://is.gd/uuuud%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://mhtgpw3965.github.io/vd/qr/qr2/#https://is.gd/yyyym" target="_blank">二维码的美化和LOGO</a></h3>
+<h3><a href="https://mhtgpw3965.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/qqfqq%22%2C%22https://is.gd/ttttp%22%2C%22https://is.gd/scccc%22%2C%22https://is.gd/zzzzr%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://mhtgpw3965.github.io/vd/qr/qr2/#https://is.gd/qqfqq" target="_blank">二维码的美化和LOGO</a></h3>
 </div>
