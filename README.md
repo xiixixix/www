@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/thofoc3691/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/thofoc3691/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/55555555">git.io/55555555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u77">x.co/u77</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/3nnnn">git.io/3nnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/fdd">x.co/fdd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/thofoc3691/ntdtv/blob/master/gb/2020/09/23/a102947147.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五中全会前局势诡异！李克强王沪宁各释信号  >-009fcc?logoWidth=1" title="五中全会前局势诡异！李克强王沪宁各释信号  " alt="五中全会前局势诡异！李克强王沪宁各释信号  "></a></p>
 <p><a href="https://github.com/thofoc3691/ntdtv/blob/master/gb/2020/09/23/a102947116.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强案内幕流出 王沪宁主抓 企图当副主席 >-009fcc?logoWidth=1" title="任志强案内幕流出 王沪宁主抓 企图当副主席  " alt="任志强案内幕流出 王沪宁主抓 企图当副主席  "></a></p>
 <p><a href="https://github.com/thofoc3691/ntdtv/blob/master/gb/2020/09/23/a102947785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普总统在白宫举行新闻发布会        >-009fcc?logoWidth=1" title="川普总统在白宫举行新闻发布会  " alt="川普总统在白宫举行新闻发布会  "></a></p>
+<p><a href="https://github.com/thofoc3691/ntdtv/blob/master/gb/2020/09/23/a102947751.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参院报告:拜登儿子涉与中俄数百万交易   >-009fcc?logoWidth=1" title="美参院报告:拜登儿子涉与中俄数百万交易  " alt="美参院报告:拜登儿子涉与中俄数百万交易  "></a></p>
 <p><a href="https://github.com/thofoc3691/ntdtv/blob/master/gb/2020/09/23/a102947717.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共抗疫剧负评如潮 编剧:都是央视让改的  >-009fcc?logoWidth=1" title="中共抗疫剧负评如潮 编剧:都是央视让改的  " alt="中共抗疫剧负评如潮 编剧:都是央视让改的  "></a></p>
 <p><a href="https://github.com/thofoc3691/ntdtv/blob/master/gb/2020/09/23/a102947716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印同意停止增兵 中方疑让步:不单方面改变现>-009fcc?logoWidth=1" title="中印同意停止增兵 中方疑让步:不单方面改变现状  " alt="中印同意停止增兵 中方疑让步:不单方面改变现状  "></a></p>
 <p><a href="https://github.com/thofoc3691/ntdtv/blob/master/gb/2020/09/23/a102947708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/时代2020百大影响人物 总统蔡英文入选  >-009fcc?logoWidth=1" title="时代2020百大影响人物 总统蔡英文入选  " alt="时代2020百大影响人物 总统蔡英文入选  "></a></p>
-<p><a href="https://github.com/thofoc3691/ntdtv/blob/master/gb/2020/09/23/a102947315.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民调：关键年龄组挺川普 支持率高达55％  >-009fcc?logoWidth=1" title="民调：关键年龄组挺川普 支持率高达55％  " alt="民调：关键年龄组挺川普 支持率高达55％  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/thofoc3691/djy/blob/master/gb/20/9/23/n12424906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强被重判 震撼红二代及政商界圈     >-009fcc?logoWidth=1" title="任志强被重判 震撼红二代及政商界圈  " alt="任志强被重判 震撼红二代及政商界圈  "></a></p>
 <p><a href="https://github.com/thofoc3691/djy/blob/master/gb/20/9/23/n12424244.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多边主义？余茂春讽习近平：中共没真朋友   >-009fcc?logoWidth=1" title="多边主义？余茂春讽习近平：中共没真朋友  " alt="多边主义？余茂春讽习近平：中共没真朋友  "></a></p>
@@ -39,17 +39,14 @@
 <p><a href="https://github.com/thofoc3691/djy/blob/master/gb/20/9/23/n12425158.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：中共妄图打种族牌 逃避美追责疫情  >-009fcc?logoWidth=1" title="蓬佩奥：中共妄图打种族牌 逃避美追责疫情  " alt="蓬佩奥：中共妄图打种族牌 逃避美追责疫情  "></a></p>
 <p><a href="https://github.com/thofoc3691/djy/blob/master/gb/20/9/23/n12424014.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/雪佛龙要求全球员工删除微信App      >-009fcc?logoWidth=1" title="雪佛龙要求全球员工删除微信App  " alt="雪佛龙要求全球员工删除微信App  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/thofoc3691/djy/blob/master/gb/20/9/23/n12423738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆27城二手房价格下行 牡丹江跌近一成  >-009fcc?logoWidth=1" title="大陆27城二手房价格下行 牡丹江跌近一成  " alt="大陆27城二手房价格下行 牡丹江跌近一成  "></a></p>
 <p><a href="https://github.com/thofoc3691/ntdtv/blob/master/gb/2020/09/23/a102947019.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:川习联大互批正式翻脸 中共不承认台海中>-009fcc?logoWidth=1" title="文昭:川习联大互批正式翻脸 中共不承认台海中线 地动山摇要来  " alt="文昭:川习联大互批正式翻脸 中共不承认台海中线 地动山摇要来  "></a></p>
-<p><a href="https://github.com/thofoc3691/djy/blob/master/gb/20/9/23/n12423561.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭秘川普阻止中共镇压香港          >-009fcc?logoWidth=1" title="揭秘川普阻止中共镇压香港  " alt="揭秘川普阻止中共镇压香港  "></a></p>
-<p><a href="https://github.com/thofoc3691/djy/blob/master/gb/20/9/22/n12422729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/从瘟疫到中东和平 川普联大演讲聚焦五议题  >-009fcc?logoWidth=1" title="从瘟疫到中东和平 川普联大演讲聚焦五议题  " alt="从瘟疫到中东和平 川普联大演讲聚焦五议题  "></a></p>
 <p><a href="https://github.com/thofoc3691/ntdtv/blob/master/gb/2020/09/23/a102947525.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重判任志强  习近平内外开战        >-009fcc?logoWidth=1" title="重判任志强  习近平内外开战  " alt="重判任志强  习近平内外开战  "></a></p>
-<p><a href="https://github.com/thofoc3691/djy/blob/master/gb/20/9/22/n12422908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余茂春：中共在香港的“四大失败”      >-009fcc?logoWidth=1" title="余茂春：中共在香港的“四大失败”  " alt="余茂春：中共在香港的“四大失败”  "></a></p>
-<p><a href="https://github.com/thofoc3691/djy/blob/master/gb/20/9/22/n12422845.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一进一退联合国？何谓“一中”        >-009fcc?logoWidth=1" title="一进一退联合国？何谓“一中”  " alt="一进一退联合国？何谓“一中”  "></a></p>
+<p><a href="https://github.com/thofoc3691/djy/blob/master/gb/20/9/23/n12424893.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高智晟女儿联合国发言 吁国际社会施压中共  >-009fcc?logoWidth=1" title="高智晟女儿联合国发言 吁国际社会施压中共  " alt="高智晟女儿联合国发言 吁国际社会施压中共  "></a></p>
+<p><a href="https://github.com/thofoc3691/djy/blob/master/gb/20/9/23/n12425118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥威州演讲 揭芝加哥中领馆渗透美国   >-009fcc?logoWidth=1" title="蓬佩奥威州演讲 揭芝加哥中领馆渗透美国  " alt="蓬佩奥威州演讲 揭芝加哥中领馆渗透美国  "></a></p>
 <p><a href="https://github.com/thofoc3691/ntdtv/blob/master/gb/2020/09/23/a102947214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾庆红心腹马仔史文清被查 乱伦性癖好曝光  >-009fcc?logoWidth=1" title="曾庆红心腹马仔史文清被查 乱伦性癖好曝光  " alt="曾庆红心腹马仔史文清被查 乱伦性癖好曝光  "></a></p>
 <p><a href="https://github.com/thofoc3691/ntdtv/blob/master/gb/2020/09/23/a102947470.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：川普联大追责中共 中国人赶紧退党  >-009fcc?logoWidth=1" title="王友群：川普联大追责中共 中国人赶紧退党  " alt="王友群：川普联大追责中共 中国人赶紧退党  "></a></p>
-<p><a href="https://github.com/thofoc3691/djy/blob/master/gb/20/9/23/n12423460.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夏小强：任志强遭重判 习近平危机加剧    >-009fcc?logoWidth=1" title="夏小强：任志强遭重判 习近平危机加剧  " alt="夏小强：任志强遭重判 习近平危机加剧  "></a></p>
-<p><a href="https://github.com/thofoc3691/djy/blob/master/gb/20/9/22/n12423007.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆民众批中共央视抗疫剧背离实情 呼吁停播 >-009fcc?logoWidth=1" title="大陆民众批中共央视抗疫剧背离实情 呼吁停播  " alt="大陆民众批中共央视抗疫剧背离实情 呼吁停播  "></a></p>
+<p><a href="https://github.com/thofoc3691/djy/blob/master/gb/20/9/23/n12424976.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德国推新IT安全法 迂回拒绝华为参与5G  >-009fcc?logoWidth=1" title="德国推新IT安全法 迂回拒绝华为参与5G  " alt="德国推新IT安全法 迂回拒绝华为参与5G  "></a></p>
+<p><a href="https://github.com/thofoc3691/djy/blob/master/gb/20/9/23/n12425172.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共10万亿元芯片大跃进 恐难逃失败命运  >-009fcc?logoWidth=1" title="中共10万亿元芯片大跃进 恐难逃失败命运  " alt="中共10万亿元芯片大跃进 恐难逃失败命运  "></a></p>
 <p><a href="https://github.com/thofoc3691/ntdtv/blob/master/gb/2020/09/22/a102946716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/1420名百岁寿星大调查！只有一个共性，不是>-009fcc?logoWidth=1" title="1420名百岁寿星大调查！只有一个共性，不是饮食运动，而是……  " alt="1420名百岁寿星大调查！只有一个共性，不是饮食运动，而是……  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -262,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://thofoc3691.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?snwzx">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ovcit">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?gujhn">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ruona">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -308,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?wbkji">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?teskp">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?pohgw">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?wqfsh">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -488,11 +485,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/thofoc3691/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/thofoc3691/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/thofoc3691/www/master/index.html?h">高速版平台</a></strong></p>
+<p><strong><a href="https://github.com/thofoc3691/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/thofoc3691/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/thofoc3691/www/master/index.html?v">高速版平台</a></strong></p>
 手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/thofoc3691/www/blob/master/README.md?u#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/thofoc3691/www/blob/master/README.md?r%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/nkkkk" title="分享本平台"></img>
-<br><a href="https://git.io/55555555">https://git.io/55555555</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/nkkkk">https://is.gd/nkkkk</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/thofoc3691/www/blob/master/README.md?n%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/mnnnn" title="分享本平台"></img>
+<br><a href="https://git.io/3nnnn">https://git.io/3nnnn</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/mnnnn">https://is.gd/mnnnn</a>
 <br>
 <br>
-<h3><a href="https://thofoc3691.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/nkkkk%22%2C%22https://is.gd/xxqxx%22%2C%22https://is.gd/ttttx%22%2C%22https://is.gd/xhhhh%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://thofoc3691.github.io/vd/qr/qr2/#https://is.gd/nkkkk" target="_blank">二维码的美化和LOGO</a></h3>
+<h3><a href="https://thofoc3691.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/mnnnn%22%2C%22https://is.gd/ppepp%22%2C%22https://is.gd/qqqqg%22%2C%22https://is.gd/nuuuu%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://thofoc3691.github.io/vd/qr/qr2/#https://is.gd/mnnnn" target="_blank">二维码的美化和LOGO</a></h3>
 </div>
