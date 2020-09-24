@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/agekkc323/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/agekkc323/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/6cccc">git.io/6cccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppm">x.co/ppm</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nrrrr">git.io/nrrrr</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aaf">x.co/aaf</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,29 +26,28 @@
 <p><a href="https://github.com/agekkc323/ntdtv/blob/master/gb/2020/09/24/a102948028.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连近两百人遭厄运 都曾迫害法轮功（5）  >-009fcc?logoWidth=1" title="大连近两百人遭厄运 都曾迫害法轮功（5）  " alt="大连近两百人遭厄运 都曾迫害法轮功（5）  "></a></p>
 <p><a href="https://github.com/agekkc323/ntdtv/blob/master/gb/2020/09/24/a102947977.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/参议员克鲁兹：中共是新邪恶帝国       >-009fcc?logoWidth=1" title="参议员克鲁兹：中共是新邪恶帝国  " alt="参议员克鲁兹：中共是新邪恶帝国  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/agekkc323/djy/blob/master/gb/20/9/23/n12425404.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉： 川普联大讲话有深意 北京听懂多少？>-009fcc?logoWidth=1" title="周晓辉： 川普联大讲话有深意 北京听懂多少？  " alt="周晓辉： 川普联大讲话有深意 北京听懂多少？  "></a></p>
+<p><a href="https://github.com/agekkc323/djy/blob/master/gb/20/9/23/n12425772.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共重判任志强的三个严重后果    >-009fcc?logoWidth=1" title="王友群：中共重判任志强的三个严重后果  " alt="王友群：中共重判任志强的三个严重后果  "></a></p>
 <p><a href="https://github.com/agekkc323/djy/blob/master/gb/20/9/23/n12424906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强被重判 震撼红二代及政商界圈     >-009fcc?logoWidth=1" title="任志强被重判 震撼红二代及政商界圈  " alt="任志强被重判 震撼红二代及政商界圈  "></a></p>
+<p><a href="https://github.com/agekkc323/djy/blob/master/gb/20/9/22/n12420873.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄中共掩盖H7N9疫情       >-009fcc?logoWidth=1" title="内部文件泄中共掩盖H7N9疫情  " alt="内部文件泄中共掩盖H7N9疫情  "></a></p>
 <p><a href="https://github.com/agekkc323/djy/blob/master/gb/20/9/23/n12425452.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习联大遭堵 世界如何灭共又避战？      >-009fcc?logoWidth=1" title="习联大遭堵 世界如何灭共又避战？  " alt="习联大遭堵 世界如何灭共又避战？  "></a></p>
-<p><a href="https://github.com/agekkc323/djy/blob/master/gb/20/9/18/n12414395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共未来五年的战略通道布局         >-009fcc?logoWidth=1" title="中共未来五年的战略通道布局  " alt="中共未来五年的战略通道布局  "></a></p>
 <p><a href="https://github.com/agekkc323/djy/blob/master/gb/20/9/24/n12426066.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共急切抵赖隐瞒疫情 难挡各国追责  >-009fcc?logoWidth=1" title="钟原：中共急切抵赖隐瞒疫情 难挡各国追责  " alt="钟原：中共急切抵赖隐瞒疫情 难挡各国追责  "></a></p>
 <p><a href="https://github.com/agekkc323/djy/blob/master/gb/20/9/23/n12425397.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥斥中共破坏加州法轮功决议案      >-009fcc?logoWidth=1" title="蓬佩奥斥中共破坏加州法轮功决议案  " alt="蓬佩奥斥中共破坏加州法轮功决议案  "></a></p>
-<p><a href="https://github.com/agekkc323/djy/blob/master/gb/20/9/23/n12425172.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共10万亿元芯片大跃进 恐难逃失败命运  >-009fcc?logoWidth=1" title="中共10万亿元芯片大跃进 恐难逃失败命运  " alt="中共10万亿元芯片大跃进 恐难逃失败命运  "></a></p>
-<p><a href="https://github.com/agekkc323/djy/blob/master/gb/20/9/22/n12422879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中联大交锋 川普追责 习诉苦？      >-009fcc?logoWidth=1" title="美中联大交锋 川普追责 习诉苦？  " alt="美中联大交锋 川普追责 习诉苦？  "></a></p>
-<p><a href="https://github.com/agekkc323/djy/blob/master/gb/20/9/22/n12420873.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄中共掩盖H7N9疫情       >-009fcc?logoWidth=1" title="内部文件泄中共掩盖H7N9疫情  " alt="内部文件泄中共掩盖H7N9疫情  "></a></p>
-<p><a href="https://github.com/agekkc323/djy/blob/master/gb/20/9/23/n12425772.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共重判任志强的三个严重后果    >-009fcc?logoWidth=1" title="王友群：中共重判任志强的三个严重后果  " alt="王友群：中共重判任志强的三个严重后果  "></a></p>
-<p><a href="https://github.com/agekkc323/djy/blob/master/gb/20/9/24/n12426153.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：川普联大讲话以中共为核心       >-009fcc?logoWidth=1" title="分析：川普联大讲话以中共为核心  " alt="分析：川普联大讲话以中共为核心  "></a></p>
 <p><a href="https://github.com/agekkc323/djy/blob/master/gb/20/9/23/n12423617.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/联大北京自卑 老任坐牢18年？       >-009fcc?logoWidth=1" title="联大北京自卑 老任坐牢18年？  " alt="联大北京自卑 老任坐牢18年？  "></a></p>
+<p><a href="https://github.com/agekkc323/djy/blob/master/gb/20/9/22/n12422879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中联大交锋 川普追责 习诉苦？      >-009fcc?logoWidth=1" title="美中联大交锋 川普追责 习诉苦？  " alt="美中联大交锋 川普追责 习诉苦？  "></a></p>
+<p><a href="https://github.com/agekkc323/djy/blob/master/gb/20/9/23/n12425404.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉： 川普联大讲话有深意 北京听懂多少？>-009fcc?logoWidth=1" title="周晓辉： 川普联大讲话有深意 北京听懂多少？  " alt="周晓辉： 川普联大讲话有深意 北京听懂多少？  "></a></p>
+<p><a href="https://github.com/agekkc323/djy/blob/master/gb/20/9/24/n12426287.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/联合国官网称习“殿下”降级身份 掀热议   >-009fcc?logoWidth=1" title="联合国官网称习“殿下”降级身份 掀热议  " alt="联合国官网称习“殿下”降级身份 掀热议  "></a></p>
+<p><a href="https://github.com/agekkc323/djy/blob/master/gb/20/9/24/n12426153.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：川普联大讲话以中共为核心       >-009fcc?logoWidth=1" title="分析：川普联大讲话以中共为核心  " alt="分析：川普联大讲话以中共为核心  "></a></p>
+<p><a href="https://github.com/agekkc323/djy/blob/master/gb/20/9/23/n12425172.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共10万亿元芯片大跃进 恐难逃失败命运  >-009fcc?logoWidth=1" title="中共10万亿元芯片大跃进 恐难逃失败命运  " alt="中共10万亿元芯片大跃进 恐难逃失败命运  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/agekkc323/ntdtv/blob/master/gb/2020/09/23/a102947652.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美台建交做实，北京被甩！          >-009fcc?logoWidth=1" title="美台建交做实，北京被甩！  " alt="美台建交做实，北京被甩！  "></a></p>
-<p><a href="https://github.com/agekkc323/ntdtv/blob/master/gb/2020/09/23/a102947147.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五中全会前局势诡异！李克强王沪宁各释信号  >-009fcc?logoWidth=1" title="五中全会前局势诡异！李克强王沪宁各释信号  " alt="五中全会前局势诡异！李克强王沪宁各释信号  "></a></p>
+<p><a href="https://github.com/agekkc323/ntdtv/blob/master/gb/2020/09/24/a102948113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国大学生不再沉默 王沪宁造反？      >-009fcc?logoWidth=1" title="中国大学生不再沉默 王沪宁造反？  " alt="中国大学生不再沉默 王沪宁造反？  "></a></p>
 <p><a href="https://github.com/agekkc323/djy/blob/master/gb/20/9/23/n12425590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“好大的官威” 山东省党史官员打骂下属视频曝>-009fcc?logoWidth=1" title="“好大的官威” 山东省党史官员打骂下属视频曝光  " alt="“好大的官威” 山东省党史官员打骂下属视频曝光  "></a></p>
 <p><a href="https://github.com/agekkc323/djy/blob/master/gb/20/9/23/n12424893.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高智晟女儿联合国发言 吁国际社会施压中共  >-009fcc?logoWidth=1" title="高智晟女儿联合国发言 吁国际社会施压中共  " alt="高智晟女儿联合国发言 吁国际社会施压中共  "></a></p>
-<p><a href="https://github.com/agekkc323/ntdtv/blob/master/gb/2020/09/22/a102946716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/1420名百岁寿星大调查！只有一个共性，不是>-009fcc?logoWidth=1" title="1420名百岁寿星大调查！只有一个共性，不是饮食运动，而是……  " alt="1420名百岁寿星大调查！只有一个共性，不是饮食运动，而是……  "></a></p>
-<p><a href="https://github.com/agekkc323/ntdtv/blob/master/gb/2020/09/24/a102947894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王沪宁暗算习近平 30年前旧文热传/女战狼撒>-009fcc?logoWidth=1" title="王沪宁暗算习近平 30年前旧文热传/女战狼撒泼耍赖 中共丑闻不断  " alt="王沪宁暗算习近平 30年前旧文热传/女战狼撒泼耍赖 中共丑闻不断  "></a></p>
+<p><a href="https://github.com/agekkc323/ntdtv/blob/master/gb/2020/09/23/a102947652.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美台建交做实，北京被甩！          >-009fcc?logoWidth=1" title="美台建交做实，北京被甩！  " alt="美台建交做实，北京被甩！  "></a></p>
+<p><a href="https://github.com/agekkc323/ntdtv/blob/master/gb/2020/09/23/a102947147.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五中全会前局势诡异！李克强王沪宁各释信号  >-009fcc?logoWidth=1" title="五中全会前局势诡异！李克强王沪宁各释信号  " alt="五中全会前局势诡异！李克强王沪宁各释信号  "></a></p>
 <p><a href="https://github.com/agekkc323/djy/blob/master/gb/20/9/23/n12425802.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：中共担忧在美国“大拳头”下的结局   >-009fcc?logoWidth=1" title="沈舟：中共担忧在美国“大拳头”下的结局  " alt="沈舟：中共担忧在美国“大拳头”下的结局  "></a></p>
 <p><a href="https://github.com/agekkc323/djy/blob/master/gb/20/9/23/n12425158.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：中共妄图打种族牌 逃避美追责疫情  >-009fcc?logoWidth=1" title="蓬佩奥：中共妄图打种族牌 逃避美追责疫情  " alt="蓬佩奥：中共妄图打种族牌 逃避美追责疫情  "></a></p>
-<p><a href="https://github.com/agekkc323/ntdtv/blob/master/gb/2020/09/23/a102947064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强视察上海民众想握手 保镖突然扑上去(视>-009fcc?logoWidth=1" title="李克强视察上海民众想握手 保镖突然扑上去(视频)  " alt="李克强视察上海民众想握手 保镖突然扑上去(视频)  "></a></p>
-<p><a href="https://github.com/agekkc323/ntdtv/blob/master/gb/2020/09/24/a102948003.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重判任志强 习权力更不稳/蓬佩奥誓言反击中共>-009fcc?logoWidth=1" title="重判任志强 习权力更不稳/蓬佩奥誓言反击中共  " alt="重判任志强 习权力更不稳/蓬佩奥誓言反击中共  "></a></p>
+<p><a href="https://github.com/agekkc323/ntdtv/blob/master/gb/2020/09/24/a102948101.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/养生重在养脾胃 12个症状看你是否脾胃虚  >-009fcc?logoWidth=1" title="养生重在养脾胃 12个症状看你是否脾胃虚  " alt="养生重在养脾胃 12个症状看你是否脾胃虚  "></a></p>
+<p><a href="https://github.com/agekkc323/ntdtv/blob/master/gb/2020/09/22/a102946716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/1420名百岁寿星大调查！只有一个共性，不是>-009fcc?logoWidth=1" title="1420名百岁寿星大调查！只有一个共性，不是饮食运动，而是……  " alt="1420名百岁寿星大调查！只有一个共性，不是饮食运动，而是……  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -260,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://agekkc323.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?irqaj">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?dasgj">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ypdms">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?pafcl">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?xothy">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?lmnha">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?mptlg">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?wspxk">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,11 +485,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/agekkc323/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/agekkc323/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/agekkc323/www/master/index.html?h">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/agekkc323/www/blob/master/README.md?d#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/agekkc323/www/blob/master/README.md?c%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/qxxxx" title="分享本平台"></img>
-<br><a href="https://git.io/6cccc">https://git.io/6cccc</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/qxxxx">https://is.gd/qxxxx</a>
+<p><strong><a href="https://github.com/agekkc323/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/agekkc323/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/agekkc323/www/master/index.html?b">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/agekkc323/www/blob/master/README.md?w#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/agekkc323/www/blob/master/README.md?z%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/mjjjj" title="分享本平台"></img>
+<br><a href="https://git.io/nrrrr">https://git.io/nrrrr</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/mjjjj">https://is.gd/mjjjj</a>
 <br>
 <br>
-<h3><a href="https://agekkc323.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/qxxxx%22%2C%22https://is.gd/npppp%22%2C%22https://is.gd/yyyyq%22%2C%22https://is.gd/pkkkk%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://agekkc323.github.io/vd/qr/qr2/#https://is.gd/qxxxx" target="_blank">二维码的美化和LOGO</a></h3>
+<h3><a href="https://agekkc323.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/mjjjj%22%2C%22https://is.gd/sscss%22%2C%22https://is.gd/xbbbb%22%2C%22https://is.gd/rrrr7%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://agekkc323.github.io/vd/qr/qr2/#https://is.gd/mjjjj" target="_blank">二维码的美化和LOGO</a></h3>
 </div>
