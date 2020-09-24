@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/botcsg3455/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/botcsg3455/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/zbbbb">git.io/zbbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/uqq">x.co/uqq</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hnnnn">git.io/hnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/maa">x.co/maa</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/botcsg3455/ntdtv/blob/master/gb/2020/09/23/a102947334.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强案内幕流出/川习联大互批正式翻脸   >-009fcc?logoWidth=1" title="任志强案内幕流出/川习联大互批正式翻脸  " alt="任志强案内幕流出/川习联大互批正式翻脸  "></a></p>
 <p><a href="https://github.com/botcsg3455/ntdtv/blob/master/gb/2020/09/23/a102947289.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普怒称“中国病毒” 习近平砸钱示软    >-009fcc?logoWidth=1" title="川普怒称“中国病毒” 习近平砸钱示软  " alt="川普怒称“中国病毒” 习近平砸钱示软  "></a></p>
 <p><a href="https://github.com/botcsg3455/ntdtv/blob/master/gb/2020/09/23/a102947170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传中共女代表联合国撒泼 被大会主席无视(更>-009fcc?logoWidth=1" title="网传中共女代表联合国撒泼 被大会主席无视(更新)  " alt="网传中共女代表联合国撒泼 被大会主席无视(更新)  "></a></p>
+<p><a href="https://github.com/botcsg3455/ntdtv/blob/master/gb/2020/09/23/a102947804.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/防中共武力犯台 美陆军刊物建议美军进驻台湾 >-009fcc?logoWidth=1" title="防中共武力犯台 美陆军刊物建议美军进驻台湾  " alt="防中共武力犯台 美陆军刊物建议美军进驻台湾  "></a></p>
 <p><a href="https://github.com/botcsg3455/ntdtv/blob/master/gb/2020/09/24/a102947883.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/追查国际呼吁脸书解除封禁的公开信      >-009fcc?logoWidth=1" title="追查国际呼吁脸书解除封禁的公开信  " alt="追查国际呼吁脸书解除封禁的公开信  "></a></p>
 <p><a href="https://github.com/botcsg3455/ntdtv/blob/master/gb/2020/09/20/a102944962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张文宏钟南山连续预警 疫情或再爆发     >-009fcc?logoWidth=1" title="张文宏钟南山连续预警 疫情或再爆发  " alt="张文宏钟南山连续预警 疫情或再爆发  "></a></p>
 <p><a href="https://github.com/botcsg3455/ntdtv/blob/master/gb/2020/09/23/a102947818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/余茂春: 中共站在自由世界对立面      >-009fcc?logoWidth=1" title="余茂春: 中共站在自由世界对立面  " alt="余茂春: 中共站在自由世界对立面  "></a></p>
 <p><a href="https://github.com/botcsg3455/ntdtv/blob/master/gb/2020/09/23/a102947779.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/东北粮仓重创 黑龙江大坝决口 7万亩水稻被淹>-009fcc?logoWidth=1" title="东北粮仓重创 黑龙江大坝决口 7万亩水稻被淹  " alt="东北粮仓重创 黑龙江大坝决口 7万亩水稻被淹  "></a></p>
-<p><a href="https://github.com/botcsg3455/ntdtv/blob/master/gb/2020/09/23/a102947781.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/80万海归 900万大学毕业生 中国就业更难>-009fcc?logoWidth=1" title="80万海归 900万大学毕业生 中国就业更难  " alt="80万海归 900万大学毕业生 中国就业更难  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/botcsg3455/djy/blob/master/gb/20/9/23/n12424906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强被重判 震撼红二代及政商界圈     >-009fcc?logoWidth=1" title="任志强被重判 震撼红二代及政商界圈  " alt="任志强被重判 震撼红二代及政商界圈  "></a></p>
 <p><a href="https://github.com/botcsg3455/djy/blob/master/gb/20/9/23/n12424244.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多边主义？余茂春讽习近平：中共没真朋友   >-009fcc?logoWidth=1" title="多边主义？余茂春讽习近平：中共没真朋友  " alt="多边主义？余茂春讽习近平：中共没真朋友  "></a></p>
@@ -39,8 +39,8 @@
 <p><a href="https://github.com/botcsg3455/djy/blob/master/gb/20/9/23/n12425158.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：中共妄图打种族牌 逃避美追责疫情  >-009fcc?logoWidth=1" title="蓬佩奥：中共妄图打种族牌 逃避美追责疫情  " alt="蓬佩奥：中共妄图打种族牌 逃避美追责疫情  "></a></p>
 <p><a href="https://github.com/botcsg3455/djy/blob/master/gb/20/9/23/n12424014.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/雪佛龙要求全球员工删除微信App      >-009fcc?logoWidth=1" title="雪佛龙要求全球员工删除微信App  " alt="雪佛龙要求全球员工删除微信App  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/botcsg3455/ntdtv/blob/master/gb/2020/09/23/a102947587.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新版大跃进：造芯运动处处埋雷 企业政府趋之若>-009fcc?logoWidth=1" title="新版大跃进：造芯运动处处埋雷 企业政府趋之若鹜  " alt="新版大跃进：造芯运动处处埋雷 企业政府趋之若鹜  "></a></p>
 <p><a href="https://github.com/botcsg3455/ntdtv/blob/master/gb/2020/09/23/a102947116.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强案内幕流出 王沪宁主抓 企图当副主席 >-009fcc?logoWidth=1" title="任志强案内幕流出 王沪宁主抓 企图当副主席  " alt="任志强案内幕流出 王沪宁主抓 企图当副主席  "></a></p>
+<p><a href="https://github.com/botcsg3455/ntdtv/blob/master/gb/2020/09/23/a102947587.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新版大跃进：造芯运动处处埋雷 企业政府趋之若>-009fcc?logoWidth=1" title="新版大跃进：造芯运动处处埋雷 企业政府趋之若鹜  " alt="新版大跃进：造芯运动处处埋雷 企业政府趋之若鹜  "></a></p>
 <p><a href="https://github.com/botcsg3455/djy/blob/master/gb/20/9/23/n12424893.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高智晟女儿联合国发言 吁国际社会施压中共  >-009fcc?logoWidth=1" title="高智晟女儿联合国发言 吁国际社会施压中共  " alt="高智晟女儿联合国发言 吁国际社会施压中共  "></a></p>
 <p><a href="https://github.com/botcsg3455/djy/blob/master/gb/20/9/23/n12425118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥威州演讲 揭芝加哥中领馆渗透美国   >-009fcc?logoWidth=1" title="蓬佩奥威州演讲 揭芝加哥中领馆渗透美国  " alt="蓬佩奥威州演讲 揭芝加哥中领馆渗透美国  "></a></p>
 <p><a href="https://github.com/botcsg3455/ntdtv/blob/master/gb/2020/09/22/a102946716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/1420名百岁寿星大调查！只有一个共性，不是>-009fcc?logoWidth=1" title="1420名百岁寿星大调查！只有一个共性，不是饮食运动，而是……  " alt="1420名百岁寿星大调查！只有一个共性，不是饮食运动，而是……  "></a></p>
@@ -48,7 +48,7 @@
 <p><a href="https://github.com/botcsg3455/djy/blob/master/gb/20/9/23/n12424976.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德国推新IT安全法 迂回拒绝华为参与5G  >-009fcc?logoWidth=1" title="德国推新IT安全法 迂回拒绝华为参与5G  " alt="德国推新IT安全法 迂回拒绝华为参与5G  "></a></p>
 <p><a href="https://github.com/botcsg3455/djy/blob/master/gb/20/9/23/n12425172.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共10万亿元芯片大跃进 恐难逃失败命运  >-009fcc?logoWidth=1" title="中共10万亿元芯片大跃进 恐难逃失败命运  " alt="中共10万亿元芯片大跃进 恐难逃失败命运  "></a></p>
 <p><a href="https://github.com/botcsg3455/ntdtv/blob/master/gb/2020/09/23/a102947214.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾庆红心腹马仔史文清被查 乱伦性癖好曝光  >-009fcc?logoWidth=1" title="曾庆红心腹马仔史文清被查 乱伦性癖好曝光  " alt="曾庆红心腹马仔史文清被查 乱伦性癖好曝光  "></a></p>
-<p><a href="https://github.com/botcsg3455/ntdtv/blob/master/gb/2020/09/23/a102947019.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:川习联大互批正式翻脸 中共不承认台海中>-009fcc?logoWidth=1" title="文昭:川习联大互批正式翻脸 中共不承认台海中线 地动山摇要来  " alt="文昭:川习联大互批正式翻脸 中共不承认台海中线 地动山摇要来  "></a></p>
+<p><a href="https://github.com/botcsg3455/ntdtv/blob/master/gb/2020/09/23/a102947525.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重判任志强  习近平内外开战        >-009fcc?logoWidth=1" title="重判任志强  习近平内外开战  " alt="重判任志强  习近平内外开战  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://botcsg3455.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?azjns">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?wcpme">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?lwphd">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ynqrl">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?mzglm">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?luxlu">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ulfzf">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?gkuoq">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,11 +486,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/botcsg3455/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/botcsg3455/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/botcsg3455/www/master/index.html?l">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/botcsg3455/www/blob/master/README.md?z#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/botcsg3455/www/blob/master/README.md?o%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/zzgzz" title="分享本平台"></img>
-<br><a href="https://git.io/zbbbb">https://git.io/zbbbb</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/zzgzz">https://is.gd/zzgzz</a>
+<p><strong><a href="https://github.com/botcsg3455/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/botcsg3455/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/botcsg3455/www/master/index.html?e">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/botcsg3455/www/blob/master/README.md?u#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/botcsg3455/www/blob/master/README.md?h%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/tttts" title="分享本平台"></img>
+<br><a href="https://git.io/hnnnn">https://git.io/hnnnn</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/tttts">https://is.gd/tttts</a>
 <br>
 <br>
-<h3><a href="https://botcsg3455.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/zzgzz%22%2C%22https://is.gd/mmdmm%22%2C%22https://is.gd/z6666%22%2C%22https://is.gd/rrmrr%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://botcsg3455.github.io/vd/qr/qr2/#https://is.gd/zzgzz" target="_blank">二维码的美化和LOGO</a></h3>
+<h3><a href="https://botcsg3455.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/tttts%22%2C%22https://is.gd/yyyyd%22%2C%22https://is.gd/xxqxx%22%2C%22https://is.gd/nnnne%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://botcsg3455.github.io/vd/qr/qr2/#https://is.gd/tttts" target="_blank">二维码的美化和LOGO</a></h3>
 </div>
