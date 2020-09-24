@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/agekkc323/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/agekkc323/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/67777">git.io/67777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppb">x.co/ppb</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/axxxx">git.io/axxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3334">x.co/3334</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/agekkc323/ntdtv/blob/master/gb/2020/09/24/a102948040.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华警间谍案 实锤中领馆握黑名单       >-009fcc?logoWidth=1" title="华警间谍案 实锤中领馆握黑名单  " alt="华警间谍案 实锤中领馆握黑名单  "></a></p>
 <p><a href="https://github.com/agekkc323/ntdtv/blob/master/gb/2020/09/24/a102947967.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/42年前外星人登陆地球被美警枪杀 UFO嗡嗡>-009fcc?logoWidth=1" title="42年前外星人登陆地球被美警枪杀 UFO嗡嗡作响  " alt="42年前外星人登陆地球被美警枪杀 UFO嗡嗡作响  "></a></p>
 <p><a href="https://github.com/agekkc323/ntdtv/blob/master/gb/2020/09/24/a102947916.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强身陷“人海” 习近平独站“大圈”(视频>-009fcc?logoWidth=1" title="李克强身陷“人海” 习近平独站“大圈”(视频)  " alt="李克强身陷“人海” 习近平独站“大圈”(视频)  "></a></p>
 <p><a href="https://github.com/agekkc323/ntdtv/blob/master/gb/2020/09/24/a102947905.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普联合国大会炮轰中共（全文中文翻译）   >-009fcc?logoWidth=1" title="川普联合国大会炮轰中共（全文中文翻译）  " alt="川普联合国大会炮轰中共（全文中文翻译）  "></a></p>
 <p><a href="https://github.com/agekkc323/ntdtv/blob/master/gb/2020/09/24/a102947890.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王岐山不救任志强？蔡霞曝内情        >-009fcc?logoWidth=1" title="王岐山不救任志强？蔡霞曝内情  " alt="王岐山不救任志强？蔡霞曝内情  "></a></p>
 <p><a href="https://github.com/agekkc323/ntdtv/blob/master/gb/2020/09/24/a102947874.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：美军四个师进驻台湾？余茂春暗示下一步抗>-009fcc?logoWidth=1" title="文昭：美军四个师进驻台湾？余茂春暗示下一步抗共动作？  " alt="文昭：美军四个师进驻台湾？余茂春暗示下一步抗共动作？  "></a></p>
-<p><a href="https://github.com/agekkc323/ntdtv/blob/master/gb/2020/09/23/a102947656.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/捧习还是贬习？联合国官网不称阁下称“殿下” >-009fcc?logoWidth=1" title="捧习还是贬习？联合国官网不称阁下称“殿下”  " alt="捧习还是贬习？联合国官网不称阁下称“殿下”  "></a></p>
+<p><a href="https://github.com/agekkc323/ntdtv/blob/master/gb/2020/09/24/a102948034.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/涉洗钱反恐法 西太平洋银行遭罚13亿澳元创记>-009fcc?logoWidth=1" title="涉洗钱反恐法 西太平洋银行遭罚13亿澳元创记录  " alt="涉洗钱反恐法 西太平洋银行遭罚13亿澳元创记录  "></a></p>
 <p><a href="https://github.com/agekkc323/ntdtv/blob/master/gb/2020/09/24/a102947977.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/参议员克鲁兹：中共是新邪恶帝国       >-009fcc?logoWidth=1" title="参议员克鲁兹：中共是新邪恶帝国  " alt="参议员克鲁兹：中共是新邪恶帝国  "></a></p>
 <p><a href="https://github.com/agekkc323/ntdtv/blob/master/gb/2020/09/24/a102947969.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：小心中共外交官 可能是间谍     >-009fcc?logoWidth=1" title="蓬佩奥：小心中共外交官 可能是间谍  " alt="蓬佩奥：小心中共外交官 可能是间谍  "></a></p>
 <p><a href="https://github.com/agekkc323/ntdtv/blob/master/gb/2020/09/24/a102947931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/桑普：美台互动彰显世界变局         >-009fcc?logoWidth=1" title="桑普：美台互动彰显世界变局  " alt="桑普：美台互动彰显世界变局  "></a></p>
 <p><a href="https://github.com/agekkc323/ntdtv/blob/master/gb/2020/09/24/a102947930.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/防疫下格杀勿论 韩渔业官员疑越界遭朝鲜射杀 >-009fcc?logoWidth=1" title="防疫下格杀勿论 韩渔业官员疑越界遭朝鲜射杀  " alt="防疫下格杀勿论 韩渔业官员疑越界遭朝鲜射杀  "></a></p>
-<p><a href="https://github.com/agekkc323/ntdtv/blob/master/gb/2020/09/24/a102947937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河南货车与幼儿园校巴相撞 致4死9伤    >-009fcc?logoWidth=1" title="河南货车与幼儿园校巴相撞 致4死9伤  " alt="河南货车与幼儿园校巴相撞 致4死9伤  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/agekkc323/djy/blob/master/gb/20/9/23/n12424906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强被重判 震撼红二代及政商界圈     >-009fcc?logoWidth=1" title="任志强被重判 震撼红二代及政商界圈  " alt="任志强被重判 震撼红二代及政商界圈  "></a></p>
 <p><a href="https://github.com/agekkc323/djy/blob/master/gb/20/9/23/n12424976.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德国推新IT安全法 迂回拒绝华为参与5G  >-009fcc?logoWidth=1" title="德国推新IT安全法 迂回拒绝华为参与5G  " alt="德国推新IT安全法 迂回拒绝华为参与5G  "></a></p>
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://agekkc323.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?yxvza">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ejlus">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ifpmc">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?fburv">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?seabr">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?hxsui">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?watuu">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?rmytt">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,11 +486,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/agekkc323/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/agekkc323/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/agekkc323/www/master/index.html?i">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/agekkc323/www/blob/master/README.md?j#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/agekkc323/www/blob/master/README.md?n%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/y3333" title="分享本平台"></img>
-<br><a href="https://git.io/67777">https://git.io/67777</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/y3333">https://is.gd/y3333</a>
+<p><strong><a href="https://github.com/agekkc323/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/agekkc323/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/agekkc323/www/master/index.html?v">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/agekkc323/www/blob/master/README.md?r#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/agekkc323/www/blob/master/README.md?b%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ujjjj" title="分享本平台"></img>
+<br><a href="https://git.io/axxxx">https://git.io/axxxx</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/ujjjj">https://is.gd/ujjjj</a>
 <br>
 <br>
-<h3><a href="https://agekkc323.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/y3333%22%2C%22https://is.gd/zzezz%22%2C%22https://is.gd/nnnn5%22%2C%22https://is.gd/mmmmf%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://agekkc323.github.io/vd/qr/qr2/#https://is.gd/y3333" target="_blank">二维码的美化和LOGO</a></h3>
+<h3><a href="https://agekkc323.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/ujjjj%22%2C%22https://is.gd/qbbbb%22%2C%22https://is.gd/uuuux%22%2C%22https://is.gd/q8888%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://agekkc323.github.io/vd/qr/qr2/#https://is.gd/ujjjj" target="_blank">二维码的美化和LOGO</a></h3>
 </div>
