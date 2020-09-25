@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/lnojrg3600/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/lnojrg3600/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kgggg">git.io/kgggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/u22">x.co/u22</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ieeee">git.io/ieeee</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ydd">x.co/ydd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,7 +20,7 @@
 <p><a href="https://github.com/lnojrg3600/ntdtv/blob/master/gb/2020/09/24/a102948466.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/清华自评“世界一流”引嘲讽 中共教育部改口降>-009fcc?logoWidth=1" title="清华自评“世界一流”引嘲讽 中共教育部改口降调  " alt="清华自评“世界一流”引嘲讽 中共教育部改口降调  "></a></p>
 <p><a href="https://github.com/lnojrg3600/ntdtv/blob/master/gb/2020/09/24/a102948565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：纽约中领馆是间谍中心 或抓捕更多外交>-009fcc?logoWidth=1" title="蓬佩奥：纽约中领馆是间谍中心 或抓捕更多外交官  " alt="蓬佩奥：纽约中领馆是间谍中心 或抓捕更多外交官  "></a></p>
 <p><a href="https://github.com/lnojrg3600/ntdtv/blob/master/gb/2020/09/24/a102948448.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共教科书篡改圣经 称耶稣砸死妇女     >-009fcc?logoWidth=1" title="中共教科书篡改圣经 称耶稣砸死妇女  " alt="中共教科书篡改圣经 称耶稣砸死妇女  "></a></p>
-<p><a href="https://github.com/lnojrg3600/ntdtv/blob/master/gb/2020/09/24/a102947939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被中共盯上 李嘉诚成功金蝉脱壳       >-009fcc?logoWidth=1" title="被中共盯上 李嘉诚成功金蝉脱壳  " alt="被中共盯上 李嘉诚成功金蝉脱壳  "></a></p>
+<p><a href="https://github.com/lnojrg3600/ntdtv/blob/master/gb/2020/09/24/a102947939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被中共盯上 李嘉诚再次成功金蝉脱壳     >-009fcc?logoWidth=1" title="被中共盯上 李嘉诚再次成功金蝉脱壳  " alt="被中共盯上 李嘉诚再次成功金蝉脱壳  "></a></p>
 <p><a href="https://github.com/lnojrg3600/ntdtv/blob/master/gb/2020/09/20/a102944962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“防疫”封闭高校 多地学生“喊楼”爆示威>-009fcc?logoWidth=1" title="中共“防疫”封闭高校 多地学生“喊楼”爆示威潮  " alt="中共“防疫”封闭高校 多地学生“喊楼”爆示威潮  "></a></p>
 <p><a href="https://github.com/lnojrg3600/ntdtv/blob/master/gb/2020/09/24/a102948458.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共将小粉红和红色App武器化  4层级操控>-009fcc?logoWidth=1" title="中共将小粉红和红色App武器化  4层级操控内外舆论  " alt="中共将小粉红和红色App武器化  4层级操控内外舆论  "></a></p>
 <p><a href="https://github.com/lnojrg3600/ntdtv/blob/master/gb/2020/09/24/a102948558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美四款疫苗进最后阶段 经济呈强劲复苏    >-009fcc?logoWidth=1" title="美四款疫苗进最后阶段 经济呈强劲复苏  " alt="美四款疫苗进最后阶段 经济呈强劲复苏  "></a></p>
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://lnojrg3600.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?fdiha">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?gjlsf">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?orarz">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?cxrdi">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?dxerg">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?liuug">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?nupru">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?phpwe">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,11 +485,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/lnojrg3600/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lnojrg3600/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lnojrg3600/www/master/index.html?s">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lnojrg3600/www/blob/master/README.md?g#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/lnojrg3600/www/blob/master/README.md?g%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/xxxx3" title="分享本平台"></img>
-<br><a href="https://git.io/kgggg">https://git.io/kgggg</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/xxxx3">https://is.gd/xxxx3</a>
+<p><strong><a href="https://github.com/lnojrg3600/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lnojrg3600/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lnojrg3600/www/master/index.html?x">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lnojrg3600/www/blob/master/README.md?x#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/lnojrg3600/www/blob/master/README.md?r%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ssssp" title="分享本平台"></img>
+<br><a href="https://git.io/ieeee">https://git.io/ieeee</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/ssssp">https://is.gd/ssssp</a>
 <br>
 <br>
-<h3><a href="https://lnojrg3600.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/xxxx3%22%2C%22https://is.gd/nnnnm%22%2C%22https://is.gd/qhhhh%22%2C%22https://is.gd/ttttp%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://lnojrg3600.github.io/vd/qr/qr2/#https://is.gd/xxxx3" target="_blank">二维码的美化和LOGO</a></h3>
+<h3><a href="https://lnojrg3600.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/ssssp%22%2C%22https://is.gd/qrrrr%22%2C%22https://is.gd/mmamm%22%2C%22https://is.gd/xgggg%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://lnojrg3600.github.io/vd/qr/qr2/#https://is.gd/ssssp" target="_blank">二维码的美化和LOGO</a></h3>
 </div>
