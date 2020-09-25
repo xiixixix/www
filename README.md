@@ -10,23 +10,23 @@
 <div align="center">
 <a target="_blank" href="https://github.com/lnojrg3600/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/lnojrg3600/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/r3333">git.io/r3333</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa9">x.co/aa9</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/piiii">git.io/piiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/3335">x.co/3335</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/lnojrg3600/ntdtv/blob/master/gb/2020/09/25/a102948676.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平再遭软刀子？ 王沪宁诡异文章惹猜测  >-009fcc?logoWidth=1" title="习近平再遭软刀子？ 王沪宁诡异文章惹猜测  " alt="习近平再遭软刀子？ 王沪宁诡异文章惹猜测  "></a></p>
 <p><a href="https://github.com/lnojrg3600/ntdtv/blob/master/gb/2020/09/25/a102948682.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“不救我无数人陪葬”%3F 恒大求救报告轰动舆论>-009fcc?logoWidth=1" title="“不救我无数人陪葬”? 恒大求救报告轰动舆论  " alt="“不救我无数人陪葬”? 恒大求救报告轰动舆论  "></a></p>
 <p><a href="https://github.com/lnojrg3600/ntdtv/blob/master/gb/2020/09/24/a102948466.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/清华自评“世界一流”引嘲讽 中共教育部改口降>-009fcc?logoWidth=1" title="清华自评“世界一流”引嘲讽 中共教育部改口降调  " alt="清华自评“世界一流”引嘲讽 中共教育部改口降调  "></a></p>
 <p><a href="https://github.com/lnojrg3600/ntdtv/blob/master/gb/2020/09/24/a102948565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：纽约中领馆是间谍中心 或抓捕更多外交>-009fcc?logoWidth=1" title="蓬佩奥：纽约中领馆是间谍中心 或抓捕更多外交官  " alt="蓬佩奥：纽约中领馆是间谍中心 或抓捕更多外交官  "></a></p>
 <p><a href="https://github.com/lnojrg3600/ntdtv/blob/master/gb/2020/09/24/a102948448.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共教科书篡改圣经 称耶稣砸死妇女     >-009fcc?logoWidth=1" title="中共教科书篡改圣经 称耶稣砸死妇女  " alt="中共教科书篡改圣经 称耶稣砸死妇女  "></a></p>
 <p><a href="https://github.com/lnojrg3600/ntdtv/blob/master/gb/2020/09/24/a102948170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平与两大“天敌”一同上榜 排名评价大不同>-009fcc?logoWidth=1" title="习近平与两大“天敌”一同上榜 排名评价大不同  " alt="习近平与两大“天敌”一同上榜 排名评价大不同  "></a></p>
-<p><a href="https://github.com/lnojrg3600/ntdtv/blob/master/gb/2020/09/24/a102948148.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王岐山不救任志强/王沪宁暗算习近平     >-009fcc?logoWidth=1" title="王岐山不救任志强/王沪宁暗算习近平  " alt="王岐山不救任志强/王沪宁暗算习近平  "></a></p>
 <p><a href="https://github.com/lnojrg3600/ntdtv/blob/master/gb/2020/09/20/a102944962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“防疫”封闭高校 多地学生“喊楼”爆示威>-009fcc?logoWidth=1" title="中共“防疫”封闭高校 多地学生“喊楼”爆示威潮  " alt="中共“防疫”封闭高校 多地学生“喊楼”爆示威潮  "></a></p>
 <p><a href="https://github.com/lnojrg3600/ntdtv/blob/master/gb/2020/09/24/a102948458.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共将小粉红和红色App武器化  4层级操控>-009fcc?logoWidth=1" title="中共将小粉红和红色App武器化  4层级操控内外舆论  " alt="中共将小粉红和红色App武器化  4层级操控内外舆论  "></a></p>
 <p><a href="https://github.com/lnojrg3600/ntdtv/blob/master/gb/2020/09/24/a102948558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美四款疫苗进最后阶段 经济呈强劲复苏    >-009fcc?logoWidth=1" title="美四款疫苗进最后阶段 经济呈强劲复苏  " alt="美四款疫苗进最后阶段 经济呈强劲复苏  "></a></p>
 <p><a href="https://github.com/lnojrg3600/ntdtv/blob/master/gb/2020/09/24/a102948535.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/助网民翻墙 美重启网路自由办公室      >-009fcc?logoWidth=1" title="助网民翻墙 美重启网路自由办公室  " alt="助网民翻墙 美重启网路自由办公室  "></a></p>
 <p><a href="https://github.com/lnojrg3600/ntdtv/blob/master/gb/2020/09/24/a102948531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共拒认“海峡中线” 逼美台关系正常化%3F  >-009fcc?logoWidth=1" title="中共拒认“海峡中线” 逼美台关系正常化?  " alt="中共拒认“海峡中线” 逼美台关系正常化?  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/lnojrg3600/djy/blob/master/gb/20/9/24/n12427590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/恒大致粤政府文件曝光 负债8千亿 现况告急 >-009fcc?logoWidth=1" title="恒大致粤政府文件曝光 负债8千亿 现况告急  " alt="恒大致粤政府文件曝光 负债8千亿 现况告急  "></a></p>
+<p><a href="https://github.com/lnojrg3600/djy/blob/master/gb/20/9/24/n12427590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/恒大致粤政府文件曝光 负债八千亿 现况告急 >-009fcc?logoWidth=1" title="恒大致粤政府文件曝光 负债八千亿 现况告急  " alt="恒大致粤政府文件曝光 负债八千亿 现况告急  "></a></p>
 <p><a href="https://github.com/lnojrg3600/djy/blob/master/gb/20/9/23/n12425338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/打造监控铁幕 南京偷偷“刷脸”       >-009fcc?logoWidth=1" title="打造监控铁幕 南京偷偷“刷脸”  " alt="打造监控铁幕 南京偷偷“刷脸”  "></a></p>
 <p><a href="https://github.com/lnojrg3600/djy/blob/master/gb/20/9/23/n12425364.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外交部批川普联大发言 被指谎言连篇   >-009fcc?logoWidth=1" title="中共外交部批川普联大发言 被指谎言连篇  " alt="中共外交部批川普联大发言 被指谎言连篇  "></a></p>
 <p><a href="https://github.com/lnojrg3600/djy/blob/master/gb/20/9/24/n12426287.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/联合国官网称习“殿下”降级身份 掀热议   >-009fcc?logoWidth=1" title="联合国官网称习“殿下”降级身份 掀热议  " alt="联合国官网称习“殿下”降级身份 掀热议  "></a></p>
@@ -40,7 +40,6 @@
 <p><a href="https://github.com/lnojrg3600/djy/blob/master/gb/20/9/24/n12426041.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆专家自定清华大学为世界一流大学 引热议  >-009fcc?logoWidth=1" title="陆专家自定清华大学为世界一流大学 引热议  " alt="陆专家自定清华大学为世界一流大学 引热议  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/lnojrg3600/ntdtv/blob/master/gb/2020/09/24/a102948130.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“脱贫”成笑话  “骂共大军”遍农村 >-009fcc?logoWidth=1" title="习近平“脱贫”成笑话  “骂共大军”遍农村  " alt="习近平“脱贫”成笑话  “骂共大军”遍农村  "></a></p>
-<p><a href="https://github.com/lnojrg3600/ntdtv/blob/master/gb/2020/09/24/a102948113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国大学生不再沉默 王沪宁造反？      >-009fcc?logoWidth=1" title="中国大学生不再沉默 王沪宁造反？  " alt="中国大学生不再沉默 王沪宁造反？  "></a></p>
 <p><a href="https://github.com/lnojrg3600/ntdtv/blob/master/gb/2020/09/25/a102948633.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：动手了！美国清理门户 亲共华人和留学>-009fcc?logoWidth=1" title="陈破空：动手了！美国清理门户 亲共华人和留学生是走是降？  " alt="陈破空：动手了！美国清理门户 亲共华人和留学生是走是降？  "></a></p>
 <p><a href="https://github.com/lnojrg3600/djy/blob/master/gb/20/9/24/n12427905.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共要“超常规方式”速培人才 学者批大跃进 >-009fcc?logoWidth=1" title="中共要“超常规方式”速培人才 学者批大跃进  " alt="中共要“超常规方式”速培人才 学者批大跃进  "></a></p>
 <p><a href="https://github.com/lnojrg3600/ntdtv/blob/master/gb/2020/09/24/a102948577.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/剑指李嘉诚？成都和记黄埔“被禁融资”    >-009fcc?logoWidth=1" title="剑指李嘉诚？成都和记黄埔“被禁融资”  " alt="剑指李嘉诚？成都和记黄埔“被禁融资”  "></a></p>
@@ -260,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://lnojrg3600.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?yhddg">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?oibne">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?fxepk">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?lwjwv">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?tmjqc">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?riucl">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?crfct">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?oafxi">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,11 +485,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/lnojrg3600/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lnojrg3600/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lnojrg3600/www/master/index.html?j">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lnojrg3600/www/blob/master/README.md?z#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/lnojrg3600/www/blob/master/README.md?y%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/zkkkk" title="分享本平台"></img>
-<br><a href="https://git.io/r3333">https://git.io/r3333</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/zkkkk">https://is.gd/zkkkk</a>
+<p><strong><a href="https://github.com/lnojrg3600/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lnojrg3600/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lnojrg3600/www/master/index.html?e">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lnojrg3600/www/blob/master/README.md?n#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/lnojrg3600/www/blob/master/README.md?a%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ssss8" title="分享本平台"></img>
+<br><a href="https://git.io/piiii">https://git.io/piiii</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/ssss8">https://is.gd/ssss8</a>
 <br>
 <br>
-<h3><a href="https://lnojrg3600.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/zkkkk%22%2C%22https://is.gd/tkkkk%22%2C%22https://is.gd/ppapp%22%2C%22https://is.gd/ujjjj%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://lnojrg3600.github.io/vd/qr/qr2/#https://is.gd/zkkkk" target="_blank">二维码的美化和LOGO</a></h3>
+<h3><a href="https://lnojrg3600.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/ssss8%22%2C%22https://is.gd/xxxxr%22%2C%22https://is.gd/qkkkk%22%2C%22https://is.gd/zzzzp%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://lnojrg3600.github.io/vd/qr/qr2/#https://is.gd/ssss8" target="_blank">二维码的美化和LOGO</a></h3>
 </div>
