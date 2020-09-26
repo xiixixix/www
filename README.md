@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zoshje339/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zoshje339/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pmmmm">git.io/pmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2555">x.co/2555</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/76666">git.io/76666</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/5pp">x.co/5pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -29,23 +29,23 @@
 <p><a href="https://github.com/zoshje339/djy/blob/master/gb/20/9/25/n12430457.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共在联合国遭遇逆风 西方各国齐声讨    >-009fcc?logoWidth=1" title="中共在联合国遭遇逆风 西方各国齐声讨  " alt="中共在联合国遭遇逆风 西方各国齐声讨  "></a></p>
 <p><a href="https://github.com/zoshje339/djy/blob/master/gb/20/9/25/n12430764.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红二代与习近平决裂 对习杀伤力非常大    >-009fcc?logoWidth=1" title="红二代与习近平决裂 对习杀伤力非常大  " alt="红二代与习近平决裂 对习杀伤力非常大  "></a></p>
 <p><a href="https://github.com/zoshje339/djy/blob/master/gb/20/9/25/n12430658.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：恒大“威胁”政府说明了什么？    >-009fcc?logoWidth=1" title="何清涟：恒大“威胁”政府说明了什么？  " alt="何清涟：恒大“威胁”政府说明了什么？  "></a></p>
-<p><a href="https://github.com/zoshje339/djy/blob/master/gb/20/9/25/n12430537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共无“芯”之窘              >-009fcc?logoWidth=1" title="中共无“芯”之窘  " alt="中共无“芯”之窘  "></a></p>
-<p><a href="https://github.com/zoshje339/djy/blob/master/gb/20/9/26/n12431626.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/消息：川普选定巴雷特担任高院的大法官    >-009fcc?logoWidth=1" title="消息：川普选定巴雷特担任高院的大法官  " alt="消息：川普选定巴雷特担任高院的大法官  "></a></p>
+<p><a href="https://github.com/zoshje339/djy/blob/master/gb/20/9/25/n12430753.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：金正恩忽道歉 知道中共政权不行了   >-009fcc?logoWidth=1" title="钟原：金正恩忽道歉 知道中共政权不行了  " alt="钟原：金正恩忽道歉 知道中共政权不行了  "></a></p>
+<p><a href="https://github.com/zoshje339/djy/blob/master/gb/20/9/25/n12431207.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中宣部长陆定一文革被关秦城监狱之谜 >-009fcc?logoWidth=1" title="王友群：中宣部长陆定一文革被关秦城监狱之谜  " alt="王友群：中宣部长陆定一文革被关秦城监狱之谜  "></a></p>
 <p><a href="https://github.com/zoshje339/djy/blob/master/gb/20/9/19/n12415773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/10年文件 记中共迫害法轮功片段      >-009fcc?logoWidth=1" title="10年文件 记中共迫害法轮功片段  " alt="10年文件 记中共迫害法轮功片段  "></a></p>
-<p><a href="https://github.com/zoshje339/djy/blob/master/gb/20/9/25/n12430855.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：蓬佩奥放话 驻美中领馆与外交官悬了 >-009fcc?logoWidth=1" title="周晓辉：蓬佩奥放话 驻美中领馆与外交官悬了  " alt="周晓辉：蓬佩奥放话 驻美中领馆与外交官悬了  "></a></p>
+<p><a href="https://github.com/zoshje339/djy/blob/master/gb/20/9/26/n12431626.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/消息：川普选定巴雷特担任高院的大法官    >-009fcc?logoWidth=1" title="消息：川普选定巴雷特担任高院的大法官  " alt="消息：川普选定巴雷特担任高院的大法官  "></a></p>
 <p><a href="https://github.com/zoshje339/djy/blob/master/gb/20/9/23/n12425338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/打造监控铁幕 中共偷偷“刷脸”       >-009fcc?logoWidth=1" title="打造监控铁幕 中共偷偷“刷脸”  " alt="打造监控铁幕 中共偷偷“刷脸”  "></a></p>
 <p><a href="https://github.com/zoshje339/djy/blob/master/gb/20/9/25/n12430820.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共外交官发飙 联大决议删习语录      >-009fcc?logoWidth=1" title="中共外交官发飙 联大决议删习语录  " alt="中共外交官发飙 联大决议删习语录  "></a></p>
-<p><a href="https://github.com/zoshje339/djy/blob/master/gb/20/9/25/n12431207.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中宣部长陆定一文革被关秦城监狱之谜 >-009fcc?logoWidth=1" title="王友群：中宣部长陆定一文革被关秦城监狱之谜  " alt="王友群：中宣部长陆定一文革被关秦城监狱之谜  "></a></p>
+<p><a href="https://github.com/zoshje339/djy/blob/master/gb/20/9/24/n12426038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文件泄中共压制疫情舆论的手段        >-009fcc?logoWidth=1" title="文件泄中共压制疫情舆论的手段  " alt="文件泄中共压制疫情舆论的手段  "></a></p>
 <p><a href="https://github.com/zoshje339/djy/blob/master/gb/20/9/26/n12431643.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共在联合国被各国唾弃           >-009fcc?logoWidth=1" title="中共在联合国被各国唾弃  " alt="中共在联合国被各国唾弃  "></a></p>
-<p><a href="https://github.com/zoshje339/djy/blob/master/gb/20/9/25/n12430590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内外交困之际 北京明年实名购煤气罐   >-009fcc?logoWidth=1" title="中共内外交困之际 北京明年实名购煤气罐  " alt="中共内外交困之际 北京明年实名购煤气罐  "></a></p>
+<p><a href="https://github.com/zoshje339/djy/blob/master/gb/20/9/25/n12430855.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：蓬佩奥放话 驻美中领馆与外交官悬了 >-009fcc?logoWidth=1" title="周晓辉：蓬佩奥放话 驻美中领馆与外交官悬了  " alt="周晓辉：蓬佩奥放话 驻美中领馆与外交官悬了  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/zoshje339/ntdtv/blob/master/gb/2020/09/25/a102949070.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥破解习密码 王岐山任志强真实关系   >-009fcc?logoWidth=1" title="蓬佩奥破解习密码 王岐山任志强真实关系  " alt="蓬佩奥破解习密码 王岐山任志强真实关系  "></a></p>
 <p><a href="https://github.com/zoshje339/ntdtv/blob/master/gb/2020/09/25/a102949160.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两岸开战结果如何？“共军致命弱点”曝光！印度>-009fcc?logoWidth=1" title="两岸开战结果如何？“共军致命弱点”曝光！印度高调炫耀飙风战机，歼20尴尬了……  " alt="两岸开战结果如何？“共军致命弱点”曝光！印度高调炫耀飙风战机，歼20尴尬了……  "></a></p>
-<p><a href="https://github.com/zoshje339/djy/blob/master/gb/20/9/25/n12429060.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：纽约中领馆是间谍窝 或抓外交官   >-009fcc?logoWidth=1" title="蓬佩奥：纽约中领馆是间谍窝 或抓外交官  " alt="蓬佩奥：纽约中领馆是间谍窝 或抓外交官  "></a></p>
-<p><a href="https://github.com/zoshje339/djy/blob/master/gb/20/9/25/n12430753.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：金正恩忽道歉 知道中共政权不行了   >-009fcc?logoWidth=1" title="钟原：金正恩忽道歉 知道中共政权不行了  " alt="钟原：金正恩忽道歉 知道中共政权不行了  "></a></p>
+<p><a href="https://github.com/zoshje339/djy/blob/master/gb/20/9/25/n12430537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共无“芯”之窘              >-009fcc?logoWidth=1" title="中共无“芯”之窘  " alt="中共无“芯”之窘  "></a></p>
+<p><a href="https://github.com/zoshje339/djy/blob/master/gb/20/9/26/n12431760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/许家印逼宫中共 华为免死了？        >-009fcc?logoWidth=1" title="许家印逼宫中共 华为免死了？  " alt="许家印逼宫中共 华为免死了？  "></a></p>
 <p><a href="https://github.com/zoshje339/ntdtv/blob/master/gb/2020/09/26/a102949452.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭:网传恒大集团求救信，房地产爆雷、灰犀牛>-009fcc?logoWidth=1" title="文昭:网传恒大集团求救信，房地产爆雷、灰犀牛来了？  " alt="文昭:网传恒大集团求救信，房地产爆雷、灰犀牛来了？  "></a></p>
-<p><a href="https://github.com/zoshje339/djy/blob/master/gb/20/9/24/n12427367.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/魔鬼与卡尔·马克思             >-009fcc?logoWidth=1" title="魔鬼与卡尔·马克思  " alt="魔鬼与卡尔·马克思  "></a></p>
-<p><a href="https://github.com/zoshje339/djy/blob/master/gb/20/9/25/n12428923.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为境遇成中共心病 破译习讲话       >-009fcc?logoWidth=1" title="华为境遇成中共心病 破译习讲话  " alt="华为境遇成中共心病 破译习讲话  "></a></p>
+<p><a href="https://github.com/zoshje339/djy/blob/master/gb/20/9/25/n12431217.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：中共双航母未成军 美舰队有新组合   >-009fcc?logoWidth=1" title="沈舟：中共双航母未成军 美舰队有新组合  " alt="沈舟：中共双航母未成军 美舰队有新组合  "></a></p>
+<p><a href="https://github.com/zoshje339/djy/blob/master/gb/20/9/26/n12431529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/恒大求助信曝光后 标普将其评级展望降至负面 >-009fcc?logoWidth=1" title="恒大求助信曝光后 标普将其评级展望降至负面  " alt="恒大求助信曝光后 标普将其评级展望降至负面  "></a></p>
 <p><a href="https://github.com/zoshje339/ntdtv/blob/master/gb/2020/09/26/a102949465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网民拆解恒大爆煲之谜 “成龙魔咒”再应验？ >-009fcc?logoWidth=1" title="网民拆解恒大爆煲之谜 “成龙魔咒”再应验？  " alt="网民拆解恒大爆煲之谜 “成龙魔咒”再应验？  "></a></p>
 <p><a href="https://github.com/zoshje339/ntdtv/blob/master/gb/2020/09/25/a102949271.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝军海上射杀焚烧韩公务员 金正恩罕见迅速道歉>-009fcc?logoWidth=1" title="朝军海上射杀焚烧韩公务员 金正恩罕见迅速道歉  " alt="朝军海上射杀焚烧韩公务员 金正恩罕见迅速道歉  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://zoshje339.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?lnynh">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ntmae">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?vfnww">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ktpgx">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?jysfg">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ocdty">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?qqhvx">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?gapnf">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,11 +485,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/zoshje339/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zoshje339/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zoshje339/www/master/index.html?q">高速版平台</a></strong></p>
+<p><strong><a href="https://github.com/zoshje339/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zoshje339/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zoshje339/www/master/index.html?z">高速版平台</a></strong></p>
 手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zoshje339/www/blob/master/README.md?w#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/zoshje339/www/blob/master/README.md?p%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/yygyy" title="分享本平台"></img>
-<br><a href="https://git.io/pmmmm">https://git.io/pmmmm</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/yygyy">https://is.gd/yygyy</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/zoshje339/www/blob/master/README.md?g%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/zzizz" title="分享本平台"></img>
+<br><a href="https://git.io/76666">https://git.io/76666</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/zzizz">https://is.gd/zzizz</a>
 <br>
 <br>
-<h3><a href="https://zoshje339.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/yygyy%22%2C%22https://is.gd/ttttx%22%2C%22https://is.gd/ukkkk%22%2C%22https://is.gd/nndnn%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://zoshje339.github.io/vd/qr/qr2/#https://is.gd/yygyy" target="_blank">二维码的美化和LOGO</a></h3>
+<h3><a href="https://zoshje339.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/zzizz%22%2C%22https://is.gd/pphpp%22%2C%22https://is.gd/sssse%22%2C%22https://is.gd/sspss%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://zoshje339.github.io/vd/qr/qr2/#https://is.gd/zzizz" target="_blank">二维码的美化和LOGO</a></h3>
 </div>
