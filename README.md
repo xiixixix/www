@@ -10,12 +10,12 @@
 <div align="center">
 <a target="_blank" href="https://github.com/iqqfyj3004/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/iqqfyj3004/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/tpppp">git.io/tpppp</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pcp">x.co/pcp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h7777">git.io/h7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j44">x.co/j44</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/iqqfyj3004/ntdtv/blob/master/gb/2020/09/27/a102950325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登子通中俄 涉卖淫人口贩卖圈       >-009fcc?logoWidth=1" title="拜登子通中俄 涉卖淫人口贩卖圈  " alt="拜登子通中俄 涉卖淫人口贩卖圈  "></a></p>
 <p><a href="https://github.com/iqqfyj3004/ntdtv/blob/master/gb/2020/09/27/a102950291.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/移民顾问：美国开始禁止党员入境 海外华人纷纷>-009fcc?logoWidth=1" title="移民顾问：美国开始禁止党员入境 海外华人纷纷退党  " alt="移民顾问：美国开始禁止党员入境 海外华人纷纷退党  "></a></p>
+<p><a href="https://github.com/iqqfyj3004/ntdtv/blob/master/gb/2020/09/27/a102950325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登子通中俄 涉卖淫人口贩卖圈       >-009fcc?logoWidth=1" title="拜登子通中俄 涉卖淫人口贩卖圈  " alt="拜登子通中俄 涉卖淫人口贩卖圈  "></a></p>
 <p><a href="https://github.com/iqqfyj3004/ntdtv/blob/master/gb/2020/09/27/a102950283.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朱镕基爱将搬出赵紫阳 暗批习近平“双循环” >-009fcc?logoWidth=1" title="朱镕基爱将搬出赵紫阳 暗批习近平“双循环”  " alt="朱镕基爱将搬出赵紫阳 暗批习近平“双循环”  "></a></p>
 <p><a href="https://github.com/iqqfyj3004/ntdtv/blob/master/gb/2020/09/27/a102950250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁11名中港高官 执行细节曝光     >-009fcc?logoWidth=1" title="美制裁11名中港高官 执行细节曝光  " alt="美制裁11名中港高官 执行细节曝光  "></a></p>
 <p><a href="https://github.com/iqqfyj3004/ntdtv/blob/master/gb/2020/09/27/a102950211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：习近平杠上红二代 为自己挖下大坑   >-009fcc?logoWidth=1" title="分析：习近平杠上红二代 为自己挖下大坑  " alt="分析：习近平杠上红二代 为自己挖下大坑  "></a></p>
@@ -39,16 +39,16 @@
 <p><a href="https://github.com/iqqfyj3004/djy/blob/master/gb/20/9/27/n12433567.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中共政权终结于习近平         >-009fcc?logoWidth=1" title="分析：中共政权终结于习近平  " alt="分析：中共政权终结于习近平  "></a></p>
 <p><a href="https://github.com/iqqfyj3004/djy/blob/master/gb/20/9/26/n12433131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中情局前高官：中共间谍攻击纽约史无前例   >-009fcc?logoWidth=1" title="中情局前高官：中共间谍攻击纽约史无前例  " alt="中情局前高官：中共间谍攻击纽约史无前例  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/iqqfyj3004/ntdtv/blob/master/gb/2020/09/26/a102949943.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曝川普胜选后两人会谈内容 安倍自豪说服抗共 >-009fcc?logoWidth=1" title="曝川普胜选后两人会谈内容 安倍自豪说服抗共  " alt="曝川普胜选后两人会谈内容 安倍自豪说服抗共  "></a></p>
 <p><a href="https://github.com/iqqfyj3004/ntdtv/blob/master/gb/2020/09/27/a102950177.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强上头版夹缝求存 中芯国际要凉     >-009fcc?logoWidth=1" title="李克强上头版夹缝求存 中芯国际要凉  " alt="李克强上头版夹缝求存 中芯国际要凉  "></a></p>
 <p><a href="https://github.com/iqqfyj3004/ntdtv/blob/master/gb/2020/09/25/a102949070.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥破解习密码 王岐山任志强真实关系   >-009fcc?logoWidth=1" title="蓬佩奥破解习密码 王岐山任志强真实关系  " alt="蓬佩奥破解习密码 王岐山任志强真实关系  "></a></p>
 <p><a href="https://github.com/iqqfyj3004/djy/blob/master/gb/20/9/17/n12410042.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浓情中秋 前大陆讲师感恩李洪志大师（上）  >-009fcc?logoWidth=1" title="浓情中秋 前大陆讲师感恩李洪志大师（上）  " alt="浓情中秋 前大陆讲师感恩李洪志大师（上）  "></a></p>
 <p><a href="https://github.com/iqqfyj3004/djy/blob/master/gb/20/9/26/n12432988.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登及其儿子在“勾兑”？          >-009fcc?logoWidth=1" title="拜登及其儿子在“勾兑”？  " alt="拜登及其儿子在“勾兑”？  "></a></p>
-<p><a href="https://github.com/iqqfyj3004/ntdtv/blob/master/gb/2020/09/27/a102950357.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/共军用好莱坞大片炸了美军基地，中共大使发飙 >-009fcc?logoWidth=1" title="共军用好莱坞大片炸了美军基地，中共大使发飙  " alt="共军用好莱坞大片炸了美军基地，中共大使发飙  "></a></p>
-<p><a href="https://github.com/iqqfyj3004/ntdtv/blob/master/gb/2020/09/26/a102950115.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登儿子性奴丑闻 美司法部成立“剥夺国籍科”>-009fcc?logoWidth=1" title="拜登儿子性奴丑闻 美司法部成立“剥夺国籍科”  " alt="拜登儿子性奴丑闻 美司法部成立“剥夺国籍科”  "></a></p>
+<p><a href="https://github.com/iqqfyj3004/ntdtv/blob/master/gb/2020/09/26/a102949988.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美司法部提交法庭文件：抖音老板是中共喉舌 雇>-009fcc?logoWidth=1" title="美司法部提交法庭文件：抖音老板是中共喉舌 雇佣130名党员  " alt="美司法部提交法庭文件：抖音老板是中共喉舌 雇佣130名党员  "></a></p>
 <p><a href="https://github.com/iqqfyj3004/djy/blob/master/gb/20/9/26/n12433286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强上头版夹缝 中芯国际被制裁      >-009fcc?logoWidth=1" title="李克强上头版夹缝 中芯国际被制裁  " alt="李克强上头版夹缝 中芯国际被制裁  "></a></p>
 <p><a href="https://github.com/iqqfyj3004/djy/blob/master/gb/20/9/26/n12432982.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：“推翻中共政权”现美电视节目不简单 >-009fcc?logoWidth=1" title="周晓辉：“推翻中共政权”现美电视节目不简单  " alt="周晓辉：“推翻中共政权”现美电视节目不简单  "></a></p>
-<p><a href="https://github.com/iqqfyj3004/ntdtv/blob/master/gb/2020/09/27/a102950369.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军入驻台湾，中共将开第一枪？       >-009fcc?logoWidth=1" title="美军入驻台湾，中共将开第一枪？  " alt="美军入驻台湾，中共将开第一枪？  "></a></p>
-<p><a href="https://github.com/iqqfyj3004/ntdtv/blob/master/gb/2020/09/26/a102949988.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美司法部提交法庭文件：抖音老板是中共喉舌 雇>-009fcc?logoWidth=1" title="美司法部提交法庭文件：抖音老板是中共喉舌 雇佣130名党员  " alt="美司法部提交法庭文件：抖音老板是中共喉舌 雇佣130名党员  "></a></p>
+<p><a href="https://github.com/iqqfyj3004/ntdtv/blob/master/gb/2020/09/27/a102950357.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/共军用好莱坞大片炸了美军基地，中共大使发飙 >-009fcc?logoWidth=1" title="共军用好莱坞大片炸了美军基地，中共大使发飙  " alt="共军用好莱坞大片炸了美军基地，中共大使发飙  "></a></p>
+<p><a href="https://github.com/iqqfyj3004/ntdtv/blob/master/gb/2020/09/26/a102950115.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登儿子性奴丑闻 美司法部成立“剥夺国籍科”>-009fcc?logoWidth=1" title="拜登儿子性奴丑闻 美司法部成立“剥夺国籍科”  " alt="拜登儿子性奴丑闻 美司法部成立“剥夺国籍科”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://iqqfyj3004.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ymjwz">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?majyf">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?gllpb">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?fkfdb">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?wwaoo">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?cjoep">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?jmcvr">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?waifb">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,11 +486,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/iqqfyj3004/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/iqqfyj3004/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/iqqfyj3004/www/master/index.html?q">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/iqqfyj3004/www/blob/master/README.md?k#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/iqqfyj3004/www/blob/master/README.md?v%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/yyyy2" title="分享本平台"></img>
-<br><a href="https://git.io/tpppp">https://git.io/tpppp</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/yyyy2">https://is.gd/yyyy2</a>
+<p><strong><a href="https://github.com/iqqfyj3004/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/iqqfyj3004/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/iqqfyj3004/www/master/index.html?o">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/iqqfyj3004/www/blob/master/README.md?h#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/iqqfyj3004/www/blob/master/README.md?n%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ppppn" title="分享本平台"></img>
+<br><a href="https://git.io/h7777">https://git.io/h7777</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/ppppn">https://is.gd/ppppn</a>
 <br>
 <br>
-<h3><a href="https://iqqfyj3004.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/yyyy2%22%2C%22https://is.gd/xxxxi%22%2C%22https://is.gd/p8888%22%2C%22https://is.gd/xxxxt%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://iqqfyj3004.github.io/vd/qr/qr2/#https://is.gd/yyyy2" target="_blank">二维码的美化和LOGO</a></h3>
+<h3><a href="https://iqqfyj3004.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/ppppn%22%2C%22https://is.gd/xtttt%22%2C%22https://is.gd/yygyy%22%2C%22https://is.gd/u7777%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://iqqfyj3004.github.io/vd/qr/qr2/#https://is.gd/ppppn" target="_blank">二维码的美化和LOGO</a></h3>
 </div>
