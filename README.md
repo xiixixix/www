@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/oixpbx3897/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/oixpbx3897/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/xkkkk">git.io/xkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/mdd">x.co/mdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mxxxx">git.io/mxxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/2444">x.co/2444</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -44,11 +44,11 @@
 <p><a href="https://github.com/oixpbx3897/ntdtv/blob/master/gb/2020/09/28/a102950668.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普火速提名大法官！什么是决定本次美国大选的>-009fcc?logoWidth=1" title="川普火速提名大法官！什么是决定本次美国大选的关键因素？  " alt="川普火速提名大法官！什么是决定本次美国大选的关键因素？  "></a></p>
 <p><a href="https://github.com/oixpbx3897/djy/blob/master/gb/20/9/26/n12433285.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拿下必赢？看预测最准的摇摆州        >-009fcc?logoWidth=1" title="拿下必赢？看预测最准的摇摆州  " alt="拿下必赢？看预测最准的摇摆州  "></a></p>
 <p><a href="https://github.com/oixpbx3897/djy/blob/master/gb/20/9/28/n12435356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆三省接连发生命案 5天内10人死亡   >-009fcc?logoWidth=1" title="大陆三省接连发生命案 5天内10人死亡  " alt="大陆三省接连发生命案 5天内10人死亡  "></a></p>
+<p><a href="https://github.com/oixpbx3897/ntdtv/blob/master/gb/2020/09/28/a102950704.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平：秋后算账的季节，真到了       >-009fcc?logoWidth=1" title="习近平：秋后算账的季节，真到了  " alt="习近平：秋后算账的季节，真到了  "></a></p>
 <p><a href="https://github.com/oixpbx3897/ntdtv/blob/master/gb/2020/09/27/a102950535.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/恒大债务危机 戳破全球最大资产泡沫？    >-009fcc?logoWidth=1" title="恒大债务危机 戳破全球最大资产泡沫？  " alt="恒大债务危机 戳破全球最大资产泡沫？  "></a></p>
-<p><a href="https://github.com/oixpbx3897/ntdtv/blob/master/gb/2020/09/27/a102950250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁11名中港高官 执行细节曝光     >-009fcc?logoWidth=1" title="美制裁11名中港高官 执行细节曝光  " alt="美制裁11名中港高官 执行细节曝光  "></a></p>
 <p><a href="https://github.com/oixpbx3897/djy/blob/master/gb/20/9/27/n12434192.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登儿子通中俄 疑涉卖淫人口贩卖圈     >-009fcc?logoWidth=1" title="拜登儿子通中俄 疑涉卖淫人口贩卖圈  " alt="拜登儿子通中俄 疑涉卖淫人口贩卖圈  "></a></p>
 <p><a href="https://github.com/oixpbx3897/djy/blob/master/gb/20/9/27/n12433654.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹发推讽美国 大陆网民评论大翻车    >-009fcc?logoWidth=1" title="华春莹发推讽美国 大陆网民评论大翻车  " alt="华春莹发推讽美国 大陆网民评论大翻车  "></a></p>
-<p><a href="https://github.com/oixpbx3897/ntdtv/blob/master/gb/2020/09/27/a102950479.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦：中共从无研发疫苗成功记录 短期无有效>-009fcc?logoWidth=1" title="闫丽梦：中共从无研发疫苗成功记录 短期无有效疫苗  " alt="闫丽梦：中共从无研发疫苗成功记录 短期无有效疫苗  "></a></p>
+<p><a href="https://github.com/oixpbx3897/ntdtv/blob/master/gb/2020/09/27/a102950250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁11名中港高官 执行细节曝光     >-009fcc?logoWidth=1" title="美制裁11名中港高官 执行细节曝光  " alt="美制裁11名中港高官 执行细节曝光  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://oixpbx3897.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?qcfwr">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?zkevg">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?efich">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?euyfu">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?fvzsb">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?crbee">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ahytz">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?zywzd">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,11 +486,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/oixpbx3897/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/oixpbx3897/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/oixpbx3897/www/master/index.html?g">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/oixpbx3897/www/blob/master/README.md?y#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/oixpbx3897/www/blob/master/README.md?j%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/n2222" title="分享本平台"></img>
-<br><a href="https://git.io/xkkkk">https://git.io/xkkkk</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/n2222">https://is.gd/n2222</a>
+<p><strong><a href="https://github.com/oixpbx3897/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/oixpbx3897/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/oixpbx3897/www/master/index.html?h">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/oixpbx3897/www/blob/master/README.md?c#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/oixpbx3897/www/blob/master/README.md?r%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/uhhhh" title="分享本平台"></img>
+<br><a href="https://git.io/mxxxx">https://git.io/mxxxx</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/uhhhh">https://is.gd/uhhhh</a>
 <br>
 <br>
-<h3><a href="https://oixpbx3897.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/n2222%22%2C%22https://is.gd/zzzzf%22%2C%22https://is.gd/zzzzd%22%2C%22https://is.gd/x8888%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://oixpbx3897.github.io/vd/qr/qr2/#https://is.gd/n2222" target="_blank">二维码的美化和LOGO</a></h3>
+<h3><a href="https://oixpbx3897.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/uhhhh%22%2C%22https://is.gd/rtttt%22%2C%22https://is.gd/uubuu%22%2C%22https://is.gd/uqqqq%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://oixpbx3897.github.io/vd/qr/qr2/#https://is.gd/uhhhh" target="_blank">二维码的美化和LOGO</a></h3>
 </div>
