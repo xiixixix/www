@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/oruicd3776/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/oruicd3776/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/uqqqq">git.io/uqqqq</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/9996">x.co/9996</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/y7777">git.io/y7777</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aam">x.co/aam</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,7 +20,7 @@
 <p><a href="https://github.com/oruicd3776/ntdtv/blob/master/gb/2020/09/28/a102950726.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/或涉江泽民长子江绵恒  上海退休高官获刑16>-009fcc?logoWidth=1" title="或涉江泽民长子江绵恒  上海退休高官获刑16年  " alt="或涉江泽民长子江绵恒  上海退休高官获刑16年  "></a></p>
 <p><a href="https://github.com/oruicd3776/ntdtv/blob/master/gb/2020/09/28/a102950695.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国要想自制芯片有多难？华裔专家揭内幕   >-009fcc?logoWidth=1" title="中国要想自制芯片有多难？华裔专家揭内幕  " alt="中国要想自制芯片有多难？华裔专家揭内幕  "></a></p>
 <p><a href="https://github.com/oruicd3776/ntdtv/blob/master/gb/2020/09/28/a102950666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/歌手曲婉婷救母引热议 中纪委罕见谈“跳船” >-009fcc?logoWidth=1" title="歌手曲婉婷救母引热议 中纪委罕见谈“跳船”  " alt="歌手曲婉婷救母引热议 中纪委罕见谈“跳船”  "></a></p>
-<p><a href="https://github.com/oruicd3776/ntdtv/blob/master/gb/2020/09/28/a102950946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆中秋节约5.5亿人出游 恐推动疫情“内循>-009fcc?logoWidth=1" title="大陆中秋节约5.5亿人出游 恐推动疫情“内循环”  " alt="大陆中秋节约5.5亿人出游 恐推动疫情“内循环”  "></a></p>
+<p><a href="https://github.com/oruicd3776/ntdtv/blob/master/gb/2020/09/28/a102950946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆中秋节约5.5亿人出游 恐酿疫情“内循环>-009fcc?logoWidth=1" title="大陆中秋节约5.5亿人出游 恐酿疫情“内循环”  " alt="大陆中秋节约5.5亿人出游 恐酿疫情“内循环”  "></a></p>
 <p><a href="https://github.com/oruicd3776/ntdtv/blob/master/gb/2020/09/20/a102944962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆中秋节约5.5亿人出游 恐推动疫情“内循>-009fcc?logoWidth=1" title="大陆中秋节约5.5亿人出游 恐推动疫情“内循环”  " alt="大陆中秋节约5.5亿人出游 恐推动疫情“内循环”  "></a></p>
 <p><a href="https://github.com/oruicd3776/ntdtv/blob/master/gb/2020/09/28/a102950856.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/校园血案 湖北少年带刀上课 捅死二女生   >-009fcc?logoWidth=1" title="校园血案 湖北少年带刀上课 捅死二女生  " alt="校园血案 湖北少年带刀上课 捅死二女生  "></a></p>
 <p><a href="https://github.com/oruicd3776/ntdtv/blob/master/gb/2020/09/28/a102950882.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/于爱丽遭批捕 瘫痪丈夫无人照顾 母亲和妹妹精>-009fcc?logoWidth=1" title="于爱丽遭批捕 瘫痪丈夫无人照顾 母亲和妹妹精神失常  " alt="于爱丽遭批捕 瘫痪丈夫无人照顾 母亲和妹妹精神失常  "></a></p>
@@ -38,14 +38,6 @@
 <p><a href="https://github.com/oruicd3776/djy/blob/master/gb/20/9/28/n12435447.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆学者：美国对中共的十个战场       >-009fcc?logoWidth=1" title="大陆学者：美国对中共的十个战场  " alt="大陆学者：美国对中共的十个战场  "></a></p>
 <p><a href="https://github.com/oruicd3776/djy/blob/master/gb/20/9/28/n12435201.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/业内指中共自制芯片是天方夜谭        >-009fcc?logoWidth=1" title="业内指中共自制芯片是天方夜谭  " alt="业内指中共自制芯片是天方夜谭  "></a></p>
 <p><a href="https://github.com/oruicd3776/djy/blob/master/gb/20/9/28/n12435600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京一公交车司机突然弃车跳桥        >-009fcc?logoWidth=1" title="北京一公交车司机突然弃车跳桥  " alt="北京一公交车司机突然弃车跳桥  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/oruicd3776/ntdtv/blob/master/gb/2020/09/28/a102950641.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瘟疫高潮何时到？中外预言惊人雷同！     >-009fcc?logoWidth=1" title="瘟疫高潮何时到？中外预言惊人雷同！  " alt="瘟疫高潮何时到？中外预言惊人雷同！  "></a></p>
-<p><a href="https://github.com/oruicd3776/djy/blob/master/gb/20/9/28/n12435609.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任世豪：无惧恫吓 持续向中共究责疫情    >-009fcc?logoWidth=1" title="任世豪：无惧恫吓 持续向中共究责疫情  " alt="任世豪：无惧恫吓 持续向中共究责疫情  "></a></p>
-<p><a href="https://github.com/oruicd3776/djy/blob/master/gb/20/9/27/n12434510.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普提名巴雷特任大法官的主要原因      >-009fcc?logoWidth=1" title="川普提名巴雷特任大法官的主要原因  " alt="川普提名巴雷特任大法官的主要原因  "></a></p>
-<p><a href="https://github.com/oruicd3776/ntdtv/blob/master/gb/2020/09/28/a102950638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：习近平泄密：新疆官员不想干了 李克强>-009fcc?logoWidth=1" title="陈破空：习近平泄密：新疆官员不想干了 李克强汪洋顺手甩锅  " alt="陈破空：习近平泄密：新疆官员不想干了 李克强汪洋顺手甩锅  "></a></p>
-<p><a href="https://github.com/oruicd3776/ntdtv/blob/master/gb/2020/09/28/a102950889.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周恩来与毛泽东的微妙关系 以及周恩来的感情世>-009fcc?logoWidth=1" title="周恩来与毛泽东的微妙关系 以及周恩来的感情世界  " alt="周恩来与毛泽东的微妙关系 以及周恩来的感情世界  "></a></p>
-<p><a href="https://github.com/oruicd3776/djy/blob/master/gb/20/9/26/n12433285.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拿下必赢？看预测最准的摇摆州        >-009fcc?logoWidth=1" title="拿下必赢？看预测最准的摇摆州  " alt="拿下必赢？看预测最准的摇摆州  "></a></p>
-<p><a href="https://github.com/oruicd3776/djy/blob/master/gb/20/9/28/n12435356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆三省接连发生命案 5天内10人死亡   >-009fcc?logoWidth=1" title="大陆三省接连发生命案 5天内10人死亡  " alt="大陆三省接连发生命案 5天内10人死亡  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -257,9 +249,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://oruicd3776.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?vzint">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?eugjz">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?dyrvu">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?tearl">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -303,8 +295,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?tqkgq">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?echvs">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ostqy">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?nwqpn">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -483,11 +475,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/oruicd3776/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/oruicd3776/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/oruicd3776/www/master/index.html?n">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/oruicd3776/www/blob/master/README.md?p#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/oruicd3776/www/blob/master/README.md?g%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/u7777" title="分享本平台"></img>
-<br><a href="https://git.io/uqqqq">https://git.io/uqqqq</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/u7777">https://is.gd/u7777</a>
+<p><strong><a href="https://github.com/oruicd3776/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/oruicd3776/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/oruicd3776/www/master/index.html?o">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/oruicd3776/www/blob/master/README.md?i#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/oruicd3776/www/blob/master/README.md?e%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/rzzzz" title="分享本平台"></img>
+<br><a href="https://git.io/y7777">https://git.io/y7777</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/rzzzz">https://is.gd/rzzzz</a>
 <br>
 <br>
-<h3><a href="https://oruicd3776.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/u7777%22%2C%22https://is.gd/qtttt%22%2C%22https://is.gd/nndnn%22%2C%22https://is.gd/ztttt%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://oruicd3776.github.io/vd/qr/qr2/#https://is.gd/u7777" target="_blank">二维码的美化和LOGO</a></h3>
+<h3><a href="https://oruicd3776.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/rzzzz%22%2C%22https://is.gd/nxxxx%22%2C%22https://is.gd/rrrrs%22%2C%22https://is.gd/r9999%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://oruicd3776.github.io/vd/qr/qr2/#https://is.gd/rzzzz" target="_blank">二维码的美化和LOGO</a></h3>
 </div>
