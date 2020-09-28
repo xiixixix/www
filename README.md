@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/oruicd3776/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/oruicd3776/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/7xxxx">git.io/7xxxx</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/zdd">x.co/zdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qiiii">git.io/qiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/hhii">x.co/hhii</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -23,8 +23,8 @@
 <p><a href="https://github.com/oruicd3776/ntdtv/blob/master/gb/2020/09/28/a102951153.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美空军演习徽章图案曝光：死神俯视红色中国  >-009fcc?logoWidth=1" title="美空军演习徽章图案曝光：死神俯视红色中国  " alt="美空军演习徽章图案曝光：死神俯视红色中国  "></a></p>
 <p><a href="https://github.com/oruicd3776/ntdtv/blob/master/gb/2020/09/28/a102951064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵立坚吹嘘中国“新四大发明” 被批五毛水准 >-009fcc?logoWidth=1" title="赵立坚吹嘘中国“新四大发明” 被批五毛水准  " alt="赵立坚吹嘘中国“新四大发明” 被批五毛水准  "></a></p>
 <p><a href="https://github.com/oruicd3776/ntdtv/blob/master/gb/2020/09/28/a102951038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大法官确认听证2周后开始%3F 计划月底前正式表>-009fcc?logoWidth=1" title="大法官确认听证2周后开始? 计划月底前正式表决  " alt="大法官确认听证2周后开始? 计划月底前正式表决  "></a></p>
-<p><a href="https://github.com/oruicd3776/ntdtv/blob/master/gb/2020/09/28/a102951059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共抹黑耶稣杀人 蓬佩奥访梵关切宗教自由  >-009fcc?logoWidth=1" title="中共抹黑耶稣杀人 蓬佩奥访梵关切宗教自由  " alt="中共抹黑耶稣杀人 蓬佩奥访梵关切宗教自由  "></a></p>
-<p><a href="https://github.com/oruicd3776/ntdtv/blob/master/gb/2020/09/28/a102951070.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国法官做出临时裁决 TikTok暂时逃过下>-009fcc?logoWidth=1" title="美国法官做出临时裁决 TikTok暂时逃过下架命运  " alt="美国法官做出临时裁决 TikTok暂时逃过下架命运  "></a></p>
+<p><a href="https://github.com/oruicd3776/ntdtv/blob/master/gb/2020/09/28/a102951110.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美联邦法官：暂时中止川普TikTok禁令  >-009fcc?logoWidth=1" title="美联邦法官：暂时中止川普TikTok禁令  " alt="美联邦法官：暂时中止川普TikTok禁令  "></a></p>
+<p><a href="https://github.com/oruicd3776/ntdtv/blob/master/gb/2020/09/28/a102951102.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/再成关键摇摆州 俄亥俄选民：不要社会主义  >-009fcc?logoWidth=1" title="再成关键摇摆州 俄亥俄选民：不要社会主义  " alt="再成关键摇摆州 俄亥俄选民：不要社会主义  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/oruicd3776/djy/blob/master/gb/20/9/27/n12434720.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普拜登首场辩论周二登场 聚焦六大议题   >-009fcc?logoWidth=1" title="川普拜登首场辩论周二登场 聚焦六大议题  " alt="川普拜登首场辩论周二登场 聚焦六大议题  "></a></p>
 <p><a href="https://github.com/oruicd3776/djy/blob/master/gb/20/9/27/n12434868.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抗共大事记：欧盟公开选择美国 放弃中共(9/>-009fcc?logoWidth=1" title="抗共大事记：欧盟公开选择美国 放弃中共(9/21-9/27)  " alt="抗共大事记：欧盟公开选择美国 放弃中共(9/21-9/27)  "></a></p>
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://oruicd3776.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?hyljk">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?gcmrq">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?occzl">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ydtoy">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?qnefj">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ilozf">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?jfqeh">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?vdmli">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,11 +486,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/oruicd3776/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/oruicd3776/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/oruicd3776/www/master/index.html?l">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/oruicd3776/www/blob/master/README.md?c#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/oruicd3776/www/blob/master/README.md?e%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ppcpp" title="分享本平台"></img>
-<br><a href="https://git.io/7xxxx">https://git.io/7xxxx</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/ppcpp">https://is.gd/ppcpp</a>
+<p><strong><a href="https://github.com/oruicd3776/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/oruicd3776/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/oruicd3776/www/master/index.html?n">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/oruicd3776/www/blob/master/README.md?m#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/oruicd3776/www/blob/master/README.md?i%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/tkkkk" title="分享本平台"></img>
+<br><a href="https://git.io/qiiii">https://git.io/qiiii</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/tkkkk">https://is.gd/tkkkk</a>
 <br>
 <br>
-<h3><a href="https://oruicd3776.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/ppcpp%22%2C%22https://is.gd/qqqqn%22%2C%22https://is.gd/qmmmm%22%2C%22https://is.gd/zzzzs%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://oruicd3776.github.io/vd/qr/qr2/#https://is.gd/ppcpp" target="_blank">二维码的美化和LOGO</a></h3>
+<h3><a href="https://oruicd3776.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/tkkkk%22%2C%22https://is.gd/nnnnm%22%2C%22https://is.gd/ppnpp%22%2C%22https://is.gd/uuuuc%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://oruicd3776.github.io/vd/qr/qr2/#https://is.gd/tkkkk" target="_blank">二维码的美化和LOGO</a></h3>
 </div>
