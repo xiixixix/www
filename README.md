@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/eqlzxz356/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/eqlzxz356/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/j8888">git.io/j8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppm">x.co/ppm</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ugggg">git.io/ugggg</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a5a">x.co/a5a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -45,8 +45,8 @@
 <p><a href="https://github.com/eqlzxz356/djy/blob/master/gb/20/9/27/n12433920.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：曾任李长春秘书 辽宁白月先落马两大看>-009fcc?logoWidth=1" title="陈思敏：曾任李长春秘书 辽宁白月先落马两大看点  " alt="陈思敏：曾任李长春秘书 辽宁白月先落马两大看点  "></a></p>
 <p><a href="https://github.com/eqlzxz356/djy/blob/master/gb/20/9/27/n12433654.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹发推讽美国 大陆网民评论大翻车    >-009fcc?logoWidth=1" title="华春莹发推讽美国 大陆网民评论大翻车  " alt="华春莹发推讽美国 大陆网民评论大翻车  "></a></p>
 <p><a href="https://github.com/eqlzxz356/ntdtv/blob/master/gb/2020/09/28/a102950638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：习近平泄密：新疆官员不想干了 李克强>-009fcc?logoWidth=1" title="陈破空：习近平泄密：新疆官员不想干了 李克强汪洋顺手甩锅  " alt="陈破空：习近平泄密：新疆官员不想干了 李克强汪洋顺手甩锅  "></a></p>
-<p><a href="https://github.com/eqlzxz356/ntdtv/blob/master/gb/2020/09/26/a102949933.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/独家剖析恒大爆雷之谜：8355亿负债，130>-009fcc?logoWidth=1" title="独家剖析恒大爆雷之谜：8355亿负债，1300亿对赌协议  " alt="独家剖析恒大爆雷之谜：8355亿负债，1300亿对赌协议  "></a></p>
 <p><a href="https://github.com/eqlzxz356/djy/blob/master/gb/20/9/22/n12422738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/参议员克鲁兹：推翻中共的战略        >-009fcc?logoWidth=1" title="参议员克鲁兹：推翻中共的战略  " alt="参议员克鲁兹：推翻中共的战略  "></a></p>
+<p><a href="https://github.com/eqlzxz356/ntdtv/blob/master/gb/2020/09/26/a102949933.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/独家剖析恒大爆雷之谜：8355亿负债，130>-009fcc?logoWidth=1" title="独家剖析恒大爆雷之谜：8355亿负债，1300亿对赌协议  " alt="独家剖析恒大爆雷之谜：8355亿负债，1300亿对赌协议  "></a></p>
 <p><a href="https://github.com/eqlzxz356/ntdtv/blob/master/gb/2020/09/27/a102950211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：习近平杠上红二代 为自己挖下大坑   >-009fcc?logoWidth=1" title="分析：习近平杠上红二代 为自己挖下大坑  " alt="分析：习近平杠上红二代 为自己挖下大坑  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://eqlzxz356.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?hrygo">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?mzdoi">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?bcnmi">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?hfxvg">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?njtes">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?tjjxa">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?xbnmr">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?fzxhu">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,11 +485,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/eqlzxz356/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eqlzxz356/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/eqlzxz356/www/master/index.html?r">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eqlzxz356/www/blob/master/README.md?z#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/eqlzxz356/www/blob/master/README.md?i%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/rrrrq" title="分享本平台"></img>
-<br><a href="https://git.io/j8888">https://git.io/j8888</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/rrrrq">https://is.gd/rrrrq</a>
+<p><strong><a href="https://github.com/eqlzxz356/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eqlzxz356/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/eqlzxz356/www/master/index.html?i">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eqlzxz356/www/blob/master/README.md?l#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/eqlzxz356/www/blob/master/README.md?r%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/zmmmm" title="分享本平台"></img>
+<br><a href="https://git.io/ugggg">https://git.io/ugggg</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/zmmmm">https://is.gd/zmmmm</a>
 <br>
 <br>
-<h3><a href="https://eqlzxz356.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/rrrrq%22%2C%22https://is.gd/yyeyy%22%2C%22https://is.gd/zzzzq%22%2C%22https://is.gd/yaaaa%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://eqlzxz356.github.io/vd/qr/qr2/#https://is.gd/rrrrq" target="_blank">二维码的美化和LOGO</a></h3>
+<h3><a href="https://eqlzxz356.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/zmmmm%22%2C%22https://is.gd/tjjjj%22%2C%22https://is.gd/ppfpp%22%2C%22https://is.gd/xbbbb%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://eqlzxz356.github.io/vd/qr/qr2/#https://is.gd/zmmmm" target="_blank">二维码的美化和LOGO</a></h3>
 </div>
