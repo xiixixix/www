@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/cfzsql364/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cfzsql364/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/nnnnn">git.io/nnnnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/upp">x.co/upp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/5iiii">git.io/5iiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j99">x.co/j99</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,18 +39,16 @@
 <p><a href="https://github.com/cfzsql364/djy/blob/master/gb/20/9/28/n12436837.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/剑指中共 日本吁携手欧美 管制4技术出口  >-009fcc?logoWidth=1" title="剑指中共 日本吁携手欧美 管制4技术出口  " alt="剑指中共 日本吁携手欧美 管制4技术出口  "></a></p>
 <p><a href="https://github.com/cfzsql364/djy/blob/master/gb/20/9/28/n12437232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/芯片库存不够 华为Mate X2折叠手机或延>-009fcc?logoWidth=1" title="芯片库存不够 华为Mate X2折叠手机或延迟上市  " alt="芯片库存不够 华为Mate X2折叠手机或延迟上市  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/cfzsql364/djy/blob/master/gb/20/9/28/n12435689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院批习近平违背承诺将南海军事化    >-009fcc?logoWidth=1" title="美国务院批习近平违背承诺将南海军事化  " alt="美国务院批习近平违背承诺将南海军事化  "></a></p>
-<p><a href="https://github.com/cfzsql364/ntdtv/blob/master/gb/2020/09/28/a102951064.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵立坚吹嘘中国“新四大发明” 被批五毛水准 >-009fcc?logoWidth=1" title="赵立坚吹嘘中国“新四大发明” 被批五毛水准  " alt="赵立坚吹嘘中国“新四大发明” 被批五毛水准  "></a></p>
 <p><a href="https://github.com/cfzsql364/ntdtv/blob/master/gb/2020/09/28/a102950752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆老人街头演讲：共产党把我们害得太苦了(视>-009fcc?logoWidth=1" title="重庆老人街头演讲：共产党把我们害得太苦了(视频)  " alt="重庆老人街头演讲：共产党把我们害得太苦了(视频)  "></a></p>
 <p><a href="https://github.com/cfzsql364/ntdtv/blob/master/gb/2020/09/29/a102951402.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重磅调查！拜登之子通中俄涉人口贩卖，初见面收>-009fcc?logoWidth=1" title="重磅调查！拜登之子通中俄涉人口贩卖，初见面收中共2.8克拉钻戒？  " alt="重磅调查！拜登之子通中俄涉人口贩卖，初见面收中共2.8克拉钻戒？  "></a></p>
-<p><a href="https://github.com/cfzsql364/ntdtv/blob/master/gb/2020/09/28/a102950695.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国要想自制芯片有多难？华裔专家揭内幕   >-009fcc?logoWidth=1" title="中国要想自制芯片有多难？华裔专家揭内幕  " alt="中国要想自制芯片有多难？华裔专家揭内幕  "></a></p>
-<p><a href="https://github.com/cfzsql364/djy/blob/master/gb/20/9/27/n12434855.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆编剧披露抗日剧为何沦为“荒诞喜剧”？  >-009fcc?logoWidth=1" title="大陆编剧披露抗日剧为何沦为“荒诞喜剧”？  " alt="大陆编剧披露抗日剧为何沦为“荒诞喜剧”？  "></a></p>
 <p><a href="https://github.com/cfzsql364/ntdtv/blob/master/gb/2020/09/29/a102951393.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/3000年前的圣经竟然预言了2020美国大选>-009fcc?logoWidth=1" title="3000年前的圣经竟然预言了2020美国大选，川普会连任吗？  " alt="3000年前的圣经竟然预言了2020美国大选，川普会连任吗？  "></a></p>
-<p><a href="https://github.com/cfzsql364/ntdtv/blob/master/gb/2020/09/28/a102950638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：习近平泄密：新疆官员不想干了 李克强>-009fcc?logoWidth=1" title="陈破空：习近平泄密：新疆官员不想干了 李克强汪洋顺手甩锅  " alt="陈破空：习近平泄密：新疆官员不想干了 李克强汪洋顺手甩锅  "></a></p>
+<p><a href="https://github.com/cfzsql364/djy/blob/master/gb/20/9/28/n12437445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一代奸相周恩来（下）            >-009fcc?logoWidth=1" title="一代奸相周恩来（下）  " alt="一代奸相周恩来（下）  "></a></p>
 <p><a href="https://github.com/cfzsql364/djy/blob/master/gb/20/9/28/n12436151.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/楼继伟罕见批：中国5G恐成内循环“堵点”  >-009fcc?logoWidth=1" title="楼继伟罕见批：中国5G恐成内循环“堵点”  " alt="楼继伟罕见批：中国5G恐成内循环“堵点”  "></a></p>
-<p><a href="https://github.com/cfzsql364/djy/blob/master/gb/20/9/28/n12436367.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“全民连署”吁释放狱中绝食的公民记者张展  >-009fcc?logoWidth=1" title="“全民连署”吁释放狱中绝食的公民记者张展  " alt="“全民连署”吁释放狱中绝食的公民记者张展  "></a></p>
+<p><a href="https://github.com/cfzsql364/ntdtv/blob/master/gb/2020/09/28/a102950695.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国要想自制芯片有多难？华裔专家揭内幕   >-009fcc?logoWidth=1" title="中国要想自制芯片有多难？华裔专家揭内幕  " alt="中国要想自制芯片有多难？华裔专家揭内幕  "></a></p>
+<p><a href="https://github.com/cfzsql364/ntdtv/blob/master/gb/2020/09/28/a102950638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：习近平泄密：新疆官员不想干了 李克强>-009fcc?logoWidth=1" title="陈破空：习近平泄密：新疆官员不想干了 李克强汪洋顺手甩锅  " alt="陈破空：习近平泄密：新疆官员不想干了 李克强汪洋顺手甩锅  "></a></p>
+<p><a href="https://github.com/cfzsql364/djy/blob/master/gb/20/9/28/n12435689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院批习近平违背承诺将南海军事化    >-009fcc?logoWidth=1" title="美国务院批习近平违背承诺将南海军事化  " alt="美国务院批习近平违背承诺将南海军事化  "></a></p>
+<p><a href="https://github.com/cfzsql364/djy/blob/master/gb/20/9/28/n12437047.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法65议员连署法律提案 抵制中共活摘罪行  >-009fcc?logoWidth=1" title="法65议员连署法律提案 抵制中共活摘罪行  " alt="法65议员连署法律提案 抵制中共活摘罪行  "></a></p>
 <p><a href="https://github.com/cfzsql364/ntdtv/blob/master/gb/2020/09/28/a102951150.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《纽约时报》川普逃税报导属实吗？      >-009fcc?logoWidth=1" title="《纽约时报》川普逃税报导属实吗？  " alt="《纽约时报》川普逃税报导属实吗？  "></a></p>
-<p><a href="https://github.com/cfzsql364/ntdtv/blob/master/gb/2020/09/28/a102950649.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务院罕见发声明 点名批评习近平     >-009fcc?logoWidth=1" title="美国务院罕见发声明 点名批评习近平  " alt="美国务院罕见发声明 点名批评习近平  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -262,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://cfzsql364.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ecblz">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?kebea">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?dxpcz">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?keymy">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -308,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?yppyc">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?impjn">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?iskgv">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?bptfk">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -488,11 +486,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/cfzsql364/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cfzsql364/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cfzsql364/www/master/index.html?z">高速版平台</a></strong></p>
+<p><strong><a href="https://github.com/cfzsql364/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cfzsql364/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/cfzsql364/www/master/index.html?y">高速版平台</a></strong></p>
 手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cfzsql364/www/blob/master/README.md?d#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/cfzsql364/www/blob/master/README.md?u%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/yzzzz" title="分享本平台"></img>
-<br><a href="https://git.io/nnnnn">https://git.io/nnnnn</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/yzzzz">https://is.gd/yzzzz</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/cfzsql364/www/blob/master/README.md?j%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/zzdzz" title="分享本平台"></img>
+<br><a href="https://git.io/5iiii">https://git.io/5iiii</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/zzdzz">https://is.gd/zzdzz</a>
 <br>
 <br>
-<h3><a href="https://cfzsql364.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/yzzzz%22%2C%22https://is.gd/srrrr%22%2C%22https://is.gd/rrrr5%22%2C%22https://is.gd/syyyy%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://cfzsql364.github.io/vd/qr/qr2/#https://is.gd/yzzzz" target="_blank">二维码的美化和LOGO</a></h3>
+<h3><a href="https://cfzsql364.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/zzdzz%22%2C%22https://is.gd/uunuu%22%2C%22https://is.gd/mmamm%22%2C%22https://is.gd/ppppb%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://cfzsql364.github.io/vd/qr/qr2/#https://is.gd/zzdzz" target="_blank">二维码的美化和LOGO</a></h3>
 </div>
