@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/vylahl3695/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/vylahl3695/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bssss">git.io/bssss</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/gaa">x.co/gaa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kkkkk">git.io/kkkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/a6a">x.co/a6a</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,16 @@
 <p><a href="https://github.com/vylahl3695/djy/blob/master/gb/20/9/29/n12439889.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“芯片大跃进” 再增9千企业%3F风险浮现 >-009fcc?logoWidth=1" title="中共“芯片大跃进” 再增9千企业?风险浮现  " alt="中共“芯片大跃进” 再增9千企业?风险浮现  "></a></p>
 <p><a href="https://github.com/vylahl3695/djy/blob/master/gb/20/9/29/n12439947.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国体坛大搞体能测试 众名将被拦决赛外   >-009fcc?logoWidth=1" title="中国体坛大搞体能测试 众名将被拦决赛外  " alt="中国体坛大搞体能测试 众名将被拦决赛外  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/vylahl3695/djy/blob/master/gb/20/9/29/n12438269.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/10月10日起 大陆多地个人大额取款须预约 >-009fcc?logoWidth=1" title="10月10日起 大陆多地个人大额取款须预约  " alt="10月10日起 大陆多地个人大额取款须预约  "></a></p>
 <p><a href="https://github.com/vylahl3695/ntdtv/blob/master/gb/2020/09/29/a102951415.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共确定五中全会日期 或有怪事发生？    >-009fcc?logoWidth=1" title="中共确定五中全会日期 或有怪事发生？  " alt="中共确定五中全会日期 或有怪事发生？  "></a></p>
 <p><a href="https://github.com/vylahl3695/ntdtv/blob/master/gb/2020/09/28/a102951143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不只“殡葬一条街” 上海又现“墓碑式”银行窗>-009fcc?logoWidth=1" title="不只“殡葬一条街” 上海又现“墓碑式”银行窗口  " alt="不只“殡葬一条街” 上海又现“墓碑式”银行窗口  "></a></p>
-<p><a href="https://github.com/vylahl3695/djy/blob/master/gb/20/9/29/n12438105.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普与拜登 中共最怕谁当选？        >-009fcc?logoWidth=1" title="川普与拜登 中共最怕谁当选？  " alt="川普与拜登 中共最怕谁当选？  "></a></p>
-<p><a href="https://github.com/vylahl3695/ntdtv/blob/master/gb/2020/09/29/a102951418.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁晓辉：不是支持川普 是等他这样一个人等了很>-009fcc?logoWidth=1" title="袁晓辉：不是支持川普 是等他这样一个人等了很久  " alt="袁晓辉：不是支持川普 是等他这样一个人等了很久  "></a></p>
 <p><a href="https://github.com/vylahl3695/djy/blob/master/gb/20/9/29/n12439889.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“芯片大跃进” 再增9千企业%3F%3F风险浮现>-009fcc?logoWidth=1" title="中共“芯片大跃进” 再增9千企业??风险浮现  " alt="中共“芯片大跃进” 再增9千企业??风险浮现  "></a></p>
+<p><a href="https://github.com/vylahl3695/ntdtv/blob/master/gb/2020/09/29/a102951418.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁晓辉：不是支持川普 是等他这样一个人等了很>-009fcc?logoWidth=1" title="袁晓辉：不是支持川普 是等他这样一个人等了很久  " alt="袁晓辉：不是支持川普 是等他这样一个人等了很久  "></a></p>
+<p><a href="https://github.com/vylahl3695/djy/blob/master/gb/20/9/29/n12438247.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/十一假期仅1天半 山东学生拉横幅誓死力争  >-009fcc?logoWidth=1" title="十一假期仅1天半 山东学生拉横幅誓死力争  " alt="十一假期仅1天半 山东学生拉横幅誓死力争  "></a></p>
+<p><a href="https://github.com/vylahl3695/djy/blob/master/gb/20/9/29/n12438105.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普与拜登 中共最怕谁当选？        >-009fcc?logoWidth=1" title="川普与拜登 中共最怕谁当选？  " alt="川普与拜登 中共最怕谁当选？  "></a></p>
 <p><a href="https://github.com/vylahl3695/ntdtv/blob/master/gb/2020/09/29/a102951708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登家庭“败家” 美空军队徽的秘密     >-009fcc?logoWidth=1" title="拜登家庭“败家” 美空军队徽的秘密  " alt="拜登家庭“败家” 美空军队徽的秘密  "></a></p>
 <p><a href="https://github.com/vylahl3695/ntdtv/blob/master/gb/2020/09/28/a102951187.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“国师”金灿荣狂言流出：民主是毒药是邪教>-009fcc?logoWidth=1" title="中共“国师”金灿荣狂言流出：民主是毒药是邪教  " alt="中共“国师”金灿荣狂言流出：民主是毒药是邪教  "></a></p>
 <p><a href="https://github.com/vylahl3695/djy/blob/master/gb/20/9/29/n12438639.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共急切扩大接种试验疫苗人群 被指是豪赌  >-009fcc?logoWidth=1" title="中共急切扩大接种试验疫苗人群 被指是豪赌  " alt="中共急切扩大接种试验疫苗人群 被指是豪赌  "></a></p>
-<p><a href="https://github.com/vylahl3695/djy/blob/master/gb/20/9/29/n12439185.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟晚舟出庭戴粉紫色口罩“Made In Ta>-009fcc?logoWidth=1" title="孟晚舟出庭戴粉紫色口罩“Made In Taiwan”抢眼  " alt="孟晚舟出庭戴粉紫色口罩“Made In Taiwan”抢眼  "></a></p>
+<p><a href="https://github.com/vylahl3695/djy/blob/master/gb/20/9/29/n12440048.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天选之子？阿米什人罕见投票         >-009fcc?logoWidth=1" title="天选之子？阿米什人罕见投票  " alt="天选之子？阿米什人罕见投票  "></a></p>
 <p><a href="https://github.com/vylahl3695/ntdtv/blob/master/gb/2020/09/29/a102951713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共的“雅贪”政治 张晓明一字卖470万  >-009fcc?logoWidth=1" title="中共的“雅贪”政治 张晓明一字卖470万  " alt="中共的“雅贪”政治 张晓明一字卖470万  "></a></p>
 <p><a href="https://github.com/vylahl3695/ntdtv/blob/master/gb/2020/09/28/a102951131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛.News》爆炸新闻：拜登家族被揭发拿>-009fcc?logoWidth=1" title="《石涛.News》爆炸新闻：拜登家族被揭发拿了中共很多钱 拜登可能失去总统参选资格  " alt="《石涛.News》爆炸新闻：拜登家族被揭发拿了中共很多钱 拜登可能失去总统参选资格  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -262,9 +262,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://vylahl3695.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?vdvqd">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ttear">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?zwuti">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?lxsdj">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -308,8 +308,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?uzwpv">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?lwngg">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?cflfp">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?piyxw">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -488,11 +488,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/vylahl3695/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vylahl3695/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/vylahl3695/www/master/index.html?h">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vylahl3695/www/blob/master/README.md?s#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/vylahl3695/www/blob/master/README.md?z%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/rxxxx" title="分享本平台"></img>
-<br><a href="https://git.io/bssss">https://git.io/bssss</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/rxxxx">https://is.gd/rxxxx</a>
+<p><strong><a href="https://github.com/vylahl3695/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vylahl3695/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/vylahl3695/www/master/index.html?b">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vylahl3695/www/blob/master/README.md?p#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/vylahl3695/www/blob/master/README.md?h%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/xxfxx" title="分享本平台"></img>
+<br><a href="https://git.io/kkkkk">https://git.io/kkkkk</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/xxfxx">https://is.gd/xxfxx</a>
 <br>
 <br>
-<h3><a href="https://vylahl3695.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/rxxxx%22%2C%22https://is.gd/mmtmm%22%2C%22https://is.gd/xxxxj%22%2C%22https://is.gd/qqtqq%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://vylahl3695.github.io/vd/qr/qr2/#https://is.gd/rxxxx" target="_blank">二维码的美化和LOGO</a></h3>
+<h3><a href="https://vylahl3695.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/xxfxx%22%2C%22https://is.gd/xxxxr%22%2C%22https://is.gd/s3333%22%2C%22https://is.gd/zzdzz%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://vylahl3695.github.io/vd/qr/qr2/#https://is.gd/xxfxx" target="_blank">二维码的美化和LOGO</a></h3>
 </div>
