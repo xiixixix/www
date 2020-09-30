@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qhmibe3080/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qhmibe3080/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/scccc">git.io/scccc</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppi">x.co/ppi</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ahhhh">git.io/ahhhh</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pps">x.co/pps</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,22 +26,23 @@
 <p><a href="https://github.com/qhmibe3080/ntdtv/blob/master/gb/2020/09/30/a102952921.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆民众恭贺法轮功创始人中秋快乐      >-009fcc?logoWidth=1" title="大陆民众恭贺法轮功创始人中秋快乐  " alt="大陆民众恭贺法轮功创始人中秋快乐  "></a></p>
 <p><a href="https://github.com/qhmibe3080/ntdtv/blob/master/gb/2020/09/30/a102952873.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江曾“揽炒” 三硬碟曝中共如何控制拜登家族 >-009fcc?logoWidth=1" title="江曾“揽炒” 三硬碟曝中共如何控制拜登家族  " alt="江曾“揽炒” 三硬碟曝中共如何控制拜登家族  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/30/n12442745.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国大选辩论 大陆专家怎么看        >-009fcc?logoWidth=1" title="美国大选辩论 大陆专家怎么看  " alt="美国大选辩论 大陆专家怎么看  "></a></p>
 <p><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/29/n12437878.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/省官蒋超良向美泄中共高层秘闻        >-009fcc?logoWidth=1" title="省官蒋超良向美泄中共高层秘闻  " alt="省官蒋超良向美泄中共高层秘闻  "></a></p>
-<p><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/29/n12440341.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/奥布莱恩：中共需主动为大瘟疫承担责任    >-009fcc?logoWidth=1" title="奥布莱恩：中共需主动为大瘟疫承担责任  " alt="奥布莱恩：中共需主动为大瘟疫承担责任  "></a></p>
 <p><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/29/n12440058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：中纪委承认官员跳船 红朝随时崩塌  >-009fcc?logoWidth=1" title="周晓辉：中纪委承认官员跳船 红朝随时崩塌  " alt="周晓辉：中纪委承认官员跳船 红朝随时崩塌  "></a></p>
 <p><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/30/n12441101.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/没了微信 对美国华人是福还是祸？（上）   >-009fcc?logoWidth=1" title="没了微信 对美国华人是福还是祸？（上）  " alt="没了微信 对美国华人是福还是祸？（上）  "></a></p>
 <p><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/29/n12440515.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共政治局集体学习考古 释何信号？  >-009fcc?logoWidth=1" title="钟原：中共政治局集体学习考古 释何信号？  " alt="钟原：中共政治局集体学习考古 释何信号？  "></a></p>
-<p><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/28/n12436339.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登一家与中共的秘密交易          >-009fcc?logoWidth=1" title="拜登一家与中共的秘密交易  " alt="拜登一家与中共的秘密交易  "></a></p>
-<p><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/29/n12439973.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/10枚东风导弹齐发？中共军演再被揭造假   >-009fcc?logoWidth=1" title="10枚东风导弹齐发？中共军演再被揭造假  " alt="10枚东风导弹齐发？中共军演再被揭造假  "></a></p>
-<p><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/22/n12422678.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普为何发禁令 报告揭微信审查四大内幕   >-009fcc?logoWidth=1" title="川普为何发禁令 报告揭微信审查四大内幕  " alt="川普为何发禁令 报告揭微信审查四大内幕  "></a></p>
-<p><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/30/n12441630.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/恒大巨债震惊市场 传刘鹤介入处理      >-009fcc?logoWidth=1" title="恒大巨债震惊市场 传刘鹤介入处理  " alt="恒大巨债震惊市场 传刘鹤介入处理  "></a></p>
+<p><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/30/n12440988.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登辩论两败笔 红二代对习四不满      >-009fcc?logoWidth=1" title="拜登辩论两败笔 红二代对习四不满  " alt="拜登辩论两败笔 红二代对习四不满  "></a></p>
+<p><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/30/n12442520.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/A股“黑九月” 蒸发近4万亿 人均损失2万 >-009fcc?logoWidth=1" title="A股“黑九月” 蒸发近4万亿 人均损失2万  " alt="A股“黑九月” 蒸发近4万亿 人均损失2万  "></a></p>
 <p><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/29/n12440116.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政府军队法轮功学员向李洪志大师贺中秋    >-009fcc?logoWidth=1" title="政府军队法轮功学员向李洪志大师贺中秋  " alt="政府军队法轮功学员向李洪志大师贺中秋  "></a></p>
+<p><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/30/n12441619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：美总统辩论令中共恐惧的事实      >-009fcc?logoWidth=1" title="田云：美总统辩论令中共恐惧的事实  " alt="田云：美总统辩论令中共恐惧的事实  "></a></p>
+<p><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/30/n12442167.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国总统大选辩论 几次提到中国和习近平   >-009fcc?logoWidth=1" title="美国总统大选辩论 几次提到中国和习近平  " alt="美国总统大选辩论 几次提到中国和习近平  "></a></p>
+<p><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/30/n12441137.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：民主党将更担忧后续总统选举辩论    >-009fcc?logoWidth=1" title="杨威：民主党将更担忧后续总统选举辩论  " alt="杨威：民主党将更担忧后续总统选举辩论  "></a></p>
+<p><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/30/n12442586.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川鼓励“藏粮于民”民众恐慌纷纷囤粮    >-009fcc?logoWidth=1" title="四川鼓励“藏粮于民”民众恐慌纷纷囤粮  " alt="四川鼓励“藏粮于民”民众恐慌纷纷囤粮  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/30/n12441630.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/恒大巨债震惊市场 传刘鹤介入处理      >-009fcc?logoWidth=1" title="恒大巨债震惊市场 传刘鹤介入处理  " alt="恒大巨债震惊市场 传刘鹤介入处理  "></a></p>
 <p><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/30/n12441125.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登家族与中共秘密交易内幕         >-009fcc?logoWidth=1" title="拜登家族与中共秘密交易内幕  " alt="拜登家族与中共秘密交易内幕  "></a></p>
 <p><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/30/n12441339.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/教材禁用《欢乐颂》？传被中共列为宗教音乐  >-009fcc?logoWidth=1" title="教材禁用《欢乐颂》？传被中共列为宗教音乐  " alt="教材禁用《欢乐颂》？传被中共列为宗教音乐  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qhmibe3080/ntdtv/blob/master/gb/2020/09/30/a102952284.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军演练对北京斩首？“死神”剑指红色中国  >-009fcc?logoWidth=1" title="美军演练对北京斩首？“死神”剑指红色中国  " alt="美军演练对北京斩首？“死神”剑指红色中国  "></a></p>
-<p><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/30/n12441137.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：民主党将更担忧后续总统选举辩论    >-009fcc?logoWidth=1" title="杨威：民主党将更担忧后续总统选举辩论  " alt="杨威：民主党将更担忧后续总统选举辩论  "></a></p>
-<p><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/30/n12441619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：美总统辩论令中共恐惧的事实      >-009fcc?logoWidth=1" title="田云：美总统辩论令中共恐惧的事实  " alt="田云：美总统辩论令中共恐惧的事实  "></a></p>
 <p><a href="https://github.com/qhmibe3080/ntdtv/blob/master/gb/2020/09/30/a102952506.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登辩论两大败笔！邓家反习遭调查？     >-009fcc?logoWidth=1" title="拜登辩论两大败笔！邓家反习遭调查？  " alt="拜登辩论两大败笔！邓家反习遭调查？  "></a></p>
 <p><a href="https://github.com/qhmibe3080/ntdtv/blob/master/gb/2020/09/30/a102952345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美大选辩疫情 川普：让拜登来做就完蛋了   >-009fcc?logoWidth=1" title="美大选辩疫情 川普：让拜登来做就完蛋了  " alt="美大选辩疫情 川普：让拜登来做就完蛋了  "></a></p>
 <p><a href="https://github.com/qhmibe3080/djy/blob/master/gb/20/9/29/n12440122.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/章天亮：左派为何仇恨川普 习近平砸万亿造芯片>-009fcc?logoWidth=1" title="章天亮：左派为何仇恨川普 习近平砸万亿造芯片终烂尾  " alt="章天亮：左派为何仇恨川普 习近平砸万亿造芯片终烂尾  "></a></p>
@@ -259,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://qhmibe3080.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?zyjji">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?dmach">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?feytd">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?akysg">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?uzkbc">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?aujkx">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?svcol">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?tlxmy">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,11 +486,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/qhmibe3080/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qhmibe3080/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qhmibe3080/www/master/index.html?y">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qhmibe3080/www/blob/master/README.md?w#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/qhmibe3080/www/blob/master/README.md?v%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/xxkxx" title="分享本平台"></img>
-<br><a href="https://git.io/scccc">https://git.io/scccc</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/xxkxx">https://is.gd/xxkxx</a>
+<p><strong><a href="https://github.com/qhmibe3080/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qhmibe3080/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qhmibe3080/www/master/index.html?a">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qhmibe3080/www/blob/master/README.md?x#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/qhmibe3080/www/blob/master/README.md?t%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/rrsrr" title="分享本平台"></img>
+<br><a href="https://git.io/ahhhh">https://git.io/ahhhh</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/rrsrr">https://is.gd/rrsrr</a>
 <br>
 <br>
-<h3><a href="https://qhmibe3080.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/xxkxx%22%2C%22https://is.gd/pqqqq%22%2C%22https://is.gd/zzzzs%22%2C%22https://is.gd/ptttt%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://qhmibe3080.github.io/vd/qr/qr2/#https://is.gd/xxkxx" target="_blank">二维码的美化和LOGO</a></h3>
+<h3><a href="https://qhmibe3080.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/rrsrr%22%2C%22https://is.gd/mmimm%22%2C%22https://is.gd/nnnnh%22%2C%22https://is.gd/npppp%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://qhmibe3080.github.io/vd/qr/qr2/#https://is.gd/rrsrr" target="_blank">二维码的美化和LOGO</a></h3>
 </div>
