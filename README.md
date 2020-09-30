@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/anafio3719/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/anafio3719/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/dmmmm">git.io/dmmmm</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/jpp">x.co/jpp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yiiii">git.io/yiiii</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aau">x.co/aau</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,10 +20,10 @@
 <p><a href="https://github.com/anafio3719/ntdtv/blob/master/gb/2020/09/30/a102952310.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印度布防巡航导弹 锁定中共导弹基地     >-009fcc?logoWidth=1" title="印度布防巡航导弹 锁定中共导弹基地  " alt="印度布防巡航导弹 锁定中共导弹基地  "></a></p>
 <p><a href="https://github.com/anafio3719/ntdtv/blob/master/gb/2020/09/28/a102950601.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020美国大选首场辩论 新唐人全程直击  >-009fcc?logoWidth=1" title="2020美国大选首场辩论 新唐人全程直击  " alt="2020美国大选首场辩论 新唐人全程直击  "></a></p>
 <p><a href="https://github.com/anafio3719/ntdtv/blob/master/gb/2020/09/29/a102952028.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高层涉案被抓 百度屏蔽相关消息       >-009fcc?logoWidth=1" title="高层涉案被抓 百度屏蔽相关消息  " alt="高层涉案被抓 百度屏蔽相关消息  "></a></p>
+<p><a href="https://github.com/anafio3719/ntdtv/blob/master/gb/2020/09/29/a102951884.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上诉法院暂停威州计票延期 民主党人受挫   >-009fcc?logoWidth=1" title="上诉法院暂停威州计票延期 民主党人受挫  " alt="上诉法院暂停威州计票延期 民主党人受挫  "></a></p>
+<p><a href="https://github.com/anafio3719/ntdtv/blob/master/gb/2020/09/30/a102952403.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：我正在降低药价            >-009fcc?logoWidth=1" title="川普：我正在降低药价  " alt="川普：我正在降低药价  "></a></p>
 <p><a href="https://github.com/anafio3719/ntdtv/blob/master/gb/2020/09/30/a102952399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：他们正在教育人们仇恨我们的国家    >-009fcc?logoWidth=1" title="川普：他们正在教育人们仇恨我们的国家  " alt="川普：他们正在教育人们仇恨我们的国家  "></a></p>
 <p><a href="https://github.com/anafio3719/ntdtv/blob/master/gb/2020/09/29/a102951877.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美前宇航员竞选参议员 被揭与中共有利益往来 >-009fcc?logoWidth=1" title="美前宇航员竞选参议员 被揭与中共有利益往来  " alt="美前宇航员竞选参议员 被揭与中共有利益往来  "></a></p>
-<p><a href="https://github.com/anafio3719/ntdtv/blob/master/gb/2020/09/30/a102952335.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高加索世仇战斗酿近百死 亚美尼亚控土耳其击落>-009fcc?logoWidth=1" title="高加索世仇战斗酿近百死 亚美尼亚控土耳其击落战机  " alt="高加索世仇战斗酿近百死 亚美尼亚控土耳其击落战机  "></a></p>
-<p><a href="https://github.com/anafio3719/ntdtv/blob/master/gb/2020/09/30/a102952345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国大选辩疫情 川普：让拜登来做就完蛋了  >-009fcc?logoWidth=1" title="美国大选辩疫情 川普：让拜登来做就完蛋了  " alt="美国大选辩疫情 川普：让拜登来做就完蛋了  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/anafio3719/djy/blob/master/gb/20/9/29/n12437878.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/省官蒋超良向美泄中共高层秘闻        >-009fcc?logoWidth=1" title="省官蒋超良向美泄中共高层秘闻  " alt="省官蒋超良向美泄中共高层秘闻  "></a></p>
 <p><a href="https://github.com/anafio3719/djy/blob/master/gb/20/9/29/n12440341.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/奥布莱恩：中共需主动为大瘟疫承担责任    >-009fcc?logoWidth=1" title="奥布莱恩：中共需主动为大瘟疫承担责任  " alt="奥布莱恩：中共需主动为大瘟疫承担责任  "></a></p>
@@ -38,17 +38,15 @@
 <p><a href="https://github.com/anafio3719/djy/blob/master/gb/20/9/30/n12441125.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登家族与中共秘密交易内幕         >-009fcc?logoWidth=1" title="拜登家族与中共秘密交易内幕  " alt="拜登家族与中共秘密交易内幕  "></a></p>
 <p><a href="https://github.com/anafio3719/djy/blob/master/gb/20/9/29/n12440485.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美前官员：中共强摘器官或成大选辩论话题   >-009fcc?logoWidth=1" title="美前官员：中共强摘器官或成大选辩论话题  " alt="美前官员：中共强摘器官或成大选辩论话题  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/anafio3719/djy/blob/master/gb/20/9/29/n12439872.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国大选辩论 中共隔空急喊：避开这话题   >-009fcc?logoWidth=1" title="美国大选辩论 中共隔空急喊：避开这话题  " alt="美国大选辩论 中共隔空急喊：避开这话题  "></a></p>
-<p><a href="https://github.com/anafio3719/djy/blob/master/gb/20/9/29/n12439704.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平当局出台条例 加强控制中央委员会   >-009fcc?logoWidth=1" title="习近平当局出台条例 加强控制中央委员会  " alt="习近平当局出台条例 加强控制中央委员会  "></a></p>
-<p><a href="https://github.com/anafio3719/djy/blob/master/gb/20/9/25/n12430560.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洛阳多次突发事件 文宣介入维稳       >-009fcc?logoWidth=1" title="洛阳多次突发事件 文宣介入维稳  " alt="洛阳多次突发事件 文宣介入维稳  "></a></p>
-<p><a href="https://github.com/anafio3719/djy/blob/master/gb/20/9/29/n12438247.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/十一假期仅1天半 山东学生拉横幅誓死力争  >-009fcc?logoWidth=1" title="十一假期仅1天半 山东学生拉横幅誓死力争  " alt="十一假期仅1天半 山东学生拉横幅誓死力争  "></a></p>
+<p><a href="https://github.com/anafio3719/djy/blob/master/gb/20/9/29/n12440122.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/章天亮：左派为何仇恨川普 习近平砸万亿造芯片>-009fcc?logoWidth=1" title="章天亮：左派为何仇恨川普 习近平砸万亿造芯片终烂尾  " alt="章天亮：左派为何仇恨川普 习近平砸万亿造芯片终烂尾  "></a></p>
+<p><a href="https://github.com/anafio3719/ntdtv/blob/master/gb/2020/09/30/a102952345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国大选辩疫情 川普：让拜登来做就完蛋了  >-009fcc?logoWidth=1" title="美国大选辩疫情 川普：让拜登来做就完蛋了  " alt="美国大选辩疫情 川普：让拜登来做就完蛋了  "></a></p>
 <p><a href="https://github.com/anafio3719/ntdtv/blob/master/gb/2020/09/29/a102952025.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/检查辩论人耳中是否有设备 拜登辩前突反悔拒绝>-009fcc?logoWidth=1" title="检查辩论人耳中是否有设备 拜登辩前突反悔拒绝  " alt="检查辩论人耳中是否有设备 拜登辩前突反悔拒绝  "></a></p>
 <p><a href="https://github.com/anafio3719/ntdtv/blob/master/gb/2020/09/29/a102951739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王沪宁又捣鬼？任志强判刑消息全网清空    >-009fcc?logoWidth=1" title="王沪宁又捣鬼？任志强判刑消息全网清空  " alt="王沪宁又捣鬼？任志强判刑消息全网清空  "></a></p>
-<p><a href="https://github.com/anafio3719/djy/blob/master/gb/20/9/29/n12439889.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“芯片大跃进” 再增9千企业%3F%3F风险浮现>-009fcc?logoWidth=1" title="中共“芯片大跃进” 再增9千企业??风险浮现  " alt="中共“芯片大跃进” 再增9千企业??风险浮现  "></a></p>
-<p><a href="https://github.com/anafio3719/djy/blob/master/gb/20/9/29/n12439947.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国体坛大搞体能测试 众名将被拦决赛外   >-009fcc?logoWidth=1" title="中国体坛大搞体能测试 众名将被拦决赛外  " alt="中国体坛大搞体能测试 众名将被拦决赛外  "></a></p>
+<p><a href="https://github.com/anafio3719/djy/blob/master/gb/20/9/29/n12439872.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国大选辩论 中共隔空急喊：避开这话题   >-009fcc?logoWidth=1" title="美国大选辩论 中共隔空急喊：避开这话题  " alt="美国大选辩论 中共隔空急喊：避开这话题  "></a></p>
+<p><a href="https://github.com/anafio3719/djy/blob/master/gb/20/9/29/n12439704.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平当局出台条例 加强控制中央委员会   >-009fcc?logoWidth=1" title="习近平当局出台条例 加强控制中央委员会  " alt="习近平当局出台条例 加强控制中央委员会  "></a></p>
 <p><a href="https://github.com/anafio3719/ntdtv/blob/master/gb/2020/09/25/a102948975.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/有关中秋节的优美诗词 你知道几首？     >-009fcc?logoWidth=1" title="有关中秋节的优美诗词 你知道几首？  " alt="有关中秋节的优美诗词 你知道几首？  "></a></p>
-<p><a href="https://github.com/anafio3719/djy/blob/master/gb/20/9/28/n12436652.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：中共危局与2020年三大谎言     >-009fcc?logoWidth=1" title="王赫：中共危局与2020年三大谎言  " alt="王赫：中共危局与2020年三大谎言  "></a></p>
-<p><a href="https://github.com/anafio3719/djy/blob/master/gb/20/9/29/n12440262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情下债务危机显露？大陆龙头房企降价售房  >-009fcc?logoWidth=1" title="疫情下债务危机显露？大陆龙头房企降价售房  " alt="疫情下债务危机显露？大陆龙头房企降价售房  "></a></p>
+<p><a href="https://github.com/anafio3719/djy/blob/master/gb/20/9/29/n12440048.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天选之子？阿米什人罕见投票         >-009fcc?logoWidth=1" title="天选之子？阿米什人罕见投票  " alt="天选之子？阿米什人罕见投票  "></a></p>
+<p><a href="https://github.com/anafio3719/djy/blob/master/gb/20/9/29/n12439889.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“芯片大跃进” 再增9千企业%3F%3F风险浮现>-009fcc?logoWidth=1" title="中共“芯片大跃进” 再增9千企业??风险浮现  " alt="中共“芯片大跃进” 再增9千企业??风险浮现  "></a></p>
 <p><a href="https://github.com/anafio3719/ntdtv/blob/master/gb/2020/09/29/a102951655.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五中全会敏感期 习中央巡视邓朴方地盘引关注 >-009fcc?logoWidth=1" title="五中全会敏感期 习中央巡视邓朴方地盘引关注  " alt="五中全会敏感期 习中央巡视邓朴方地盘引关注  "></a></p>
 <p><a href="https://github.com/anafio3719/ntdtv/blob/master/gb/2020/09/30/a102952312.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孟晚舟戴台湾口罩惹怒小粉红：中国的不能用吗？>-009fcc?logoWidth=1" title="孟晚舟戴台湾口罩惹怒小粉红：中国的不能用吗？  " alt="孟晚舟戴台湾口罩惹怒小粉红：中国的不能用吗？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -262,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://anafio3719.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?qdazt">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?kmzyd">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?pjeke">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?zlspk">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -308,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?kguil">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?dnioa">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?qleys">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ipwws">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -488,11 +486,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/anafio3719/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/anafio3719/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/anafio3719/www/master/index.html?w">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/anafio3719/www/blob/master/README.md?w#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/anafio3719/www/blob/master/README.md?z%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/uuuu8" title="分享本平台"></img>
-<br><a href="https://git.io/dmmmm">https://git.io/dmmmm</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/uuuu8">https://is.gd/uuuu8</a>
+<p><strong><a href="https://github.com/anafio3719/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/anafio3719/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/anafio3719/www/master/index.html?h">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/anafio3719/www/blob/master/README.md?r#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/anafio3719/www/blob/master/README.md?q%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ssfss" title="分享本平台"></img>
+<br><a href="https://git.io/yiiii">https://git.io/yiiii</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/ssfss">https://is.gd/ssfss</a>
 <br>
 <br>
-<h3><a href="https://anafio3719.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/uuuu8%22%2C%22https://is.gd/xxxxr%22%2C%22https://is.gd/szzzz%22%2C%22https://is.gd/rrrr6%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://anafio3719.github.io/vd/qr/qr2/#https://is.gd/uuuu8" target="_blank">二维码的美化和LOGO</a></h3>
+<h3><a href="https://anafio3719.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/ssfss%22%2C%22https://is.gd/xeeee%22%2C%22https://is.gd/mjjjj%22%2C%22https://is.gd/ppppu%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://anafio3719.github.io/vd/qr/qr2/#https://is.gd/ssfss" target="_blank">二维码的美化和LOGO</a></h3>
 </div>
