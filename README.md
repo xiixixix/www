@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dchvub3446/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dchvub3446/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/q2222">git.io/q2222</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/apa">x.co/apa</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/e8888">git.io/e8888</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/ppm">x.co/ppm</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -28,9 +28,9 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dchvub3446/djy/blob/master/gb/20/9/30/n12440988.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登辩论两败笔 红二代对习四不满      >-009fcc?logoWidth=1" title="拜登辩论两败笔 红二代对习四不满  " alt="拜登辩论两败笔 红二代对习四不满  "></a></p>
 <p><a href="https://github.com/dchvub3446/djy/blob/master/gb/20/9/29/n12440515.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共政治局集体学习考古 释何信号？  >-009fcc?logoWidth=1" title="钟原：中共政治局集体学习考古 释何信号？  " alt="钟原：中共政治局集体学习考古 释何信号？  "></a></p>
-<p><a href="https://github.com/dchvub3446/djy/blob/master/gb/20/9/29/n12437878.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/省官蒋超良向美泄中共高层秘闻        >-009fcc?logoWidth=1" title="省官蒋超良向美泄中共高层秘闻  " alt="省官蒋超良向美泄中共高层秘闻  "></a></p>
 <p><a href="https://github.com/dchvub3446/djy/blob/master/gb/20/9/30/n12442586.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川鼓励“藏粮于民”民众恐慌纷纷囤粮    >-009fcc?logoWidth=1" title="四川鼓励“藏粮于民”民众恐慌纷纷囤粮  " alt="四川鼓励“藏粮于民”民众恐慌纷纷囤粮  "></a></p>
 <p><a href="https://github.com/dchvub3446/djy/blob/master/gb/20/9/30/n12442894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微信总编辑扬言要严管用户 网民吁美国制裁  >-009fcc?logoWidth=1" title="微信总编辑扬言要严管用户 网民吁美国制裁  " alt="微信总编辑扬言要严管用户 网民吁美国制裁  "></a></p>
+<p><a href="https://github.com/dchvub3446/djy/blob/master/gb/20/9/29/n12437878.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/省官蒋超良向美泄中共高层秘闻        >-009fcc?logoWidth=1" title="省官蒋超良向美泄中共高层秘闻  " alt="省官蒋超良向美泄中共高层秘闻  "></a></p>
 <p><a href="https://github.com/dchvub3446/djy/blob/master/gb/20/9/25/n12428731.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共基层政权成扫黑重点对象         >-009fcc?logoWidth=1" title="中共基层政权成扫黑重点对象  " alt="中共基层政权成扫黑重点对象  "></a></p>
 <p><a href="https://github.com/dchvub3446/djy/blob/master/gb/20/9/30/n12442745.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国大选辩论 大陆专家怎么看        >-009fcc?logoWidth=1" title="美国大选辩论 大陆专家怎么看  " alt="美国大选辩论 大陆专家怎么看  "></a></p>
 <p><a href="https://github.com/dchvub3446/djy/blob/master/gb/20/9/29/n12440116.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政府军队法轮功学员向李洪志大师贺中秋    >-009fcc?logoWidth=1" title="政府军队法轮功学员向李洪志大师贺中秋  " alt="政府军队法轮功学员向李洪志大师贺中秋  "></a></p>
@@ -264,9 +264,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://dchvub3446.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?mytxg">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?rezfi">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ljaji">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?kwtna">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -310,8 +310,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?lnifl">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?mfvvl">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?mobvb">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?fxklm">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -490,11 +490,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/dchvub3446/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dchvub3446/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dchvub3446/www/master/index.html?k">高速版平台</a></strong></p>
+<p><strong><a href="https://github.com/dchvub3446/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dchvub3446/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dchvub3446/www/master/index.html?b">高速版平台</a></strong></p>
 手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dchvub3446/www/blob/master/README.md?h#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/dchvub3446/www/blob/master/README.md?l%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/p5555" title="分享本平台"></img>
-<br><a href="https://git.io/q2222">https://git.io/q2222</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/p5555">https://is.gd/p5555</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/dchvub3446/www/blob/master/README.md?k%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/szzzz" title="分享本平台"></img>
+<br><a href="https://git.io/e8888">https://git.io/e8888</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/szzzz">https://is.gd/szzzz</a>
 <br>
 <br>
-<h3><a href="https://dchvub3446.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/p5555%22%2C%22https://is.gd/qqkqq%22%2C%22https://is.gd/z5555%22%2C%22https://is.gd/ssiss%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://dchvub3446.github.io/vd/qr/qr2/#https://is.gd/p5555" target="_blank">二维码的美化和LOGO</a></h3>
+<h3><a href="https://dchvub3446.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/szzzz%22%2C%22https://is.gd/s6666%22%2C%22https://is.gd/yykyy%22%2C%22https://is.gd/zzzzh%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://dchvub3446.github.io/vd/qr/qr2/#https://is.gd/szzzz" target="_blank">二维码的美化和LOGO</a></h3>
 </div>
