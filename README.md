@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/dchvub3446/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dchvub3446/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/3kkkk">git.io/3kkkk</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aaj">x.co/aaj</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ezzzz">git.io/ezzzz</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/j66">x.co/j66</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/dchvub3446/ntdtv/blob/master/gb/2020/09/30/a102952946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登被抓包 辩论时领口袖口都有电子设备（视频>-009fcc?logoWidth=1" title="拜登被抓包 辩论时领口袖口都有电子设备（视频）  " alt="拜登被抓包 辩论时领口袖口都有电子设备（视频）  "></a></p>
+<p><a href="https://github.com/dchvub3446/ntdtv/blob/master/gb/2020/09/30/a102952727.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普选战：首场辩论川普获胜 拜登“太弱了” >-009fcc?logoWidth=1" title="川普选战：首场辩论川普获胜 拜登“太弱了”  " alt="川普选战：首场辩论川普获胜 拜登“太弱了”  "></a></p>
 <p><a href="https://github.com/dchvub3446/ntdtv/blob/master/gb/2020/09/30/a102952585.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海怕十月变天？/川普拜登首场辩论    >-009fcc?logoWidth=1" title="中南海怕十月变天？/川普拜登首场辩论  " alt="中南海怕十月变天？/川普拜登首场辩论  "></a></p>
 <p><a href="https://github.com/dchvub3446/ntdtv/blob/master/gb/2020/09/30/a102952592.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/默克尔为何不禁华为？传有“秘密”协定    >-009fcc?logoWidth=1" title="默克尔为何不禁华为？传有“秘密”协定  " alt="默克尔为何不禁华为？传有“秘密”协定  "></a></p>
 <p><a href="https://github.com/dchvub3446/ntdtv/blob/master/gb/2020/09/30/a102952551.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美大选辩论川普、拜登首次交锋 6重点引关注(>-009fcc?logoWidth=1" title="美大选辩论川普、拜登首次交锋 6重点引关注(视频)  " alt="美大选辩论川普、拜登首次交锋 6重点引关注(视频)  "></a></p>
 <p><a href="https://github.com/dchvub3446/ntdtv/blob/master/gb/2020/09/30/a102952379.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/百度高层被抓 独家屏蔽相关新闻       >-009fcc?logoWidth=1" title="百度高层被抓 独家屏蔽相关新闻  " alt="百度高层被抓 独家屏蔽相关新闻  "></a></p>
-<p><a href="https://github.com/dchvub3446/ntdtv/blob/master/gb/2020/09/30/a102952363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海怕十月变天？ 政治局突喊保“习核心” >-009fcc?logoWidth=1" title="中南海怕十月变天？ 政治局突喊保“习核心”  " alt="中南海怕十月变天？ 政治局突喊保“习核心”  "></a></p>
-<p><a href="https://github.com/dchvub3446/ntdtv/blob/master/gb/2020/09/30/a102952318.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蒋超良向美大使泄中南海秘闻 涉朱镕基、王岐山>-009fcc?logoWidth=1" title="蒋超良向美大使泄中南海秘闻 涉朱镕基、王岐山  " alt="蒋超良向美大使泄中南海秘闻 涉朱镕基、王岐山  "></a></p>
+<p><a href="https://github.com/dchvub3446/ntdtv/blob/master/gb/2020/09/30/a102953008.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/诺基亚取代华为入主英国5G 法4大电信商回避>-009fcc?logoWidth=1" title="诺基亚取代华为入主英国5G 法4大电信商回避华为  " alt="诺基亚取代华为入主英国5G 法4大电信商回避华为  "></a></p>
 <p><a href="https://github.com/dchvub3446/ntdtv/blob/master/gb/2020/09/30/a102952983.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美大选辩论 川普推特同步更新呛拜登     >-009fcc?logoWidth=1" title="美大选辩论 川普推特同步更新呛拜登  " alt="美大选辩论 川普推特同步更新呛拜登  "></a></p>
 <p><a href="https://github.com/dchvub3446/ntdtv/blob/master/gb/2020/09/30/a102953037.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官方数据印证李克强发言：3亿网民月入不足千元>-009fcc?logoWidth=1" title="官方数据印证李克强发言：3亿网民月入不足千元  " alt="官方数据印证李克强发言：3亿网民月入不足千元  "></a></p>
 <p><a href="https://github.com/dchvub3446/ntdtv/blob/master/gb/2020/09/20/a102944962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾抗疫成功关键 民众：因不相信中共    >-009fcc?logoWidth=1" title="台湾抗疫成功关键 民众：因不相信中共  " alt="台湾抗疫成功关键 民众：因不相信中共  "></a></p>
 <p><a href="https://github.com/dchvub3446/ntdtv/blob/master/gb/2020/09/30/a102952731.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“闭嘴！” 拜登首场辩论几次失态      >-009fcc?logoWidth=1" title="“闭嘴！” 拜登首场辩论几次失态  " alt="“闭嘴！” 拜登首场辩论几次失态  "></a></p>
-<p><a href="https://github.com/dchvub3446/ntdtv/blob/master/gb/2020/09/30/a102952722.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普首战告捷 左翼知名人士吁取消后2场辩论 >-009fcc?logoWidth=1" title="川普首战告捷 左翼知名人士吁取消后2场辩论  " alt="川普首战告捷 左翼知名人士吁取消后2场辩论  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dchvub3446/djy/blob/master/gb/20/9/30/n12442745.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国大选辩论 大陆专家怎么看        >-009fcc?logoWidth=1" title="美国大选辩论 大陆专家怎么看  " alt="美国大选辩论 大陆专家怎么看  "></a></p>
 <p><a href="https://github.com/dchvub3446/djy/blob/master/gb/20/9/29/n12437878.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/省官蒋超良向美泄中共高层秘闻        >-009fcc?logoWidth=1" title="省官蒋超良向美泄中共高层秘闻  " alt="省官蒋超良向美泄中共高层秘闻  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/dchvub3446/djy/blob/master/gb/20/9/30/n12441137.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：民主党将更担忧后续总统选举辩论    >-009fcc?logoWidth=1" title="杨威：民主党将更担忧后续总统选举辩论  " alt="杨威：民主党将更担忧后续总统选举辩论  "></a></p>
 <p><a href="https://github.com/dchvub3446/djy/blob/master/gb/20/9/30/n12442586.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川鼓励“藏粮于民”民众恐慌纷纷囤粮    >-009fcc?logoWidth=1" title="四川鼓励“藏粮于民”民众恐慌纷纷囤粮  " alt="四川鼓励“藏粮于民”民众恐慌纷纷囤粮  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/dchvub3446/ntdtv/blob/master/gb/2020/09/30/a102952318.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蒋超良向美大使泄中南海秘闻 涉朱镕基、王岐山>-009fcc?logoWidth=1" title="蒋超良向美大使泄中南海秘闻 涉朱镕基、王岐山  " alt="蒋超良向美大使泄中南海秘闻 涉朱镕基、王岐山  "></a></p>
 <p><a href="https://github.com/dchvub3446/djy/blob/master/gb/20/9/30/n12442934.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆银行业陷困境 四大行资金缺口达数万亿  >-009fcc?logoWidth=1" title="大陆银行业陷困境 四大行资金缺口达数万亿  " alt="大陆银行业陷困境 四大行资金缺口达数万亿  "></a></p>
 <p><a href="https://github.com/dchvub3446/djy/blob/master/gb/20/9/30/n12442894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/微信总编辑扬言要严管用户 网民吁美国制裁  >-009fcc?logoWidth=1" title="微信总编辑扬言要严管用户 网民吁美国制裁  " alt="微信总编辑扬言要严管用户 网民吁美国制裁  "></a></p>
 <p><a href="https://github.com/dchvub3446/ntdtv/blob/master/gb/2020/09/30/a102952284.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美军演练对北京斩首？“死神”剑指红色中国  >-009fcc?logoWidth=1" title="美军演练对北京斩首？“死神”剑指红色中国  " alt="美军演练对北京斩首？“死神”剑指红色中国  "></a></p>
@@ -257,9 +258,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://dchvub3446.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?waumj">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ivxvk">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?pckqf">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?aveuh">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -303,8 +304,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?bdsbt">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?iijdk">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?mroal">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ywlgj">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -483,11 +484,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/dchvub3446/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dchvub3446/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dchvub3446/www/master/index.html?y">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dchvub3446/www/blob/master/README.md?r#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/dchvub3446/www/blob/master/README.md?h%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/yssss" title="分享本平台"></img>
-<br><a href="https://git.io/3kkkk">https://git.io/3kkkk</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/yssss">https://is.gd/yssss</a>
+<p><strong><a href="https://github.com/dchvub3446/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dchvub3446/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dchvub3446/www/master/index.html?i">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dchvub3446/www/blob/master/README.md?y#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/dchvub3446/www/blob/master/README.md?h%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/yyyys" title="分享本平台"></img>
+<br><a href="https://git.io/ezzzz">https://git.io/ezzzz</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/yyyys">https://is.gd/yyyys</a>
 <br>
 <br>
-<h3><a href="https://dchvub3446.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/yssss%22%2C%22https://is.gd/tiiii%22%2C%22https://is.gd/xxfxx%22%2C%22https://is.gd/yaaaa%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://dchvub3446.github.io/vd/qr/qr2/#https://is.gd/yssss" target="_blank">二维码的美化和LOGO</a></h3>
+<h3><a href="https://dchvub3446.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/yyyys%22%2C%22https://is.gd/ttttn%22%2C%22https://is.gd/rhhhh%22%2C%22https://is.gd/pppp8%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://dchvub3446.github.io/vd/qr/qr2/#https://is.gd/yyyys" target="_blank">二维码的美化和LOGO</a></h3>
 </div>
