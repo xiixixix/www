@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gvzhui3753/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gvzhui3753/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/3bbbb">git.io/3bbbb</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/aa5">x.co/aa5</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/t5555">git.io/t5555</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/pp7">x.co/pp7</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/gvzhui3753/ntdtv/blob/master/gb/2020/10/02/a102954141.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普检测结果震惊全球 大陆小粉红无情叫好  >-009fcc?logoWidth=1" title="川普检测结果震惊全球 大陆小粉红无情叫好  " alt="川普检测结果震惊全球 大陆小粉红无情叫好  "></a></p>
 <p><a href="https://github.com/gvzhui3753/ntdtv/blob/master/gb/2020/10/02/a102954124.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美将售台“MQ--9”无人机 斩首行动传震惊中>-009fcc?logoWidth=1" title="美将售台“MQ-9”无人机 斩首行动传震惊中南海  " alt="美将售台“MQ-9”无人机 斩首行动传震惊中南海  "></a></p>
 <p><a href="https://github.com/gvzhui3753/ntdtv/blob/master/gb/2020/10/02/a102954106.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文革再现？传中共发动全国声讨蔡霞      >-009fcc?logoWidth=1" title="文革再现？传中共发动全国声讨蔡霞  " alt="文革再现？传中共发动全国声讨蔡霞  "></a></p>
+<p><a href="https://github.com/gvzhui3753/ntdtv/blob/master/gb/2020/10/02/a102954506.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“天灭中共” 香港法轮功“十一”中联办举标语>-009fcc?logoWidth=1" title="“天灭中共” 香港法轮功“十一”中联办举标语  " alt="“天灭中共” 香港法轮功“十一”中联办举标语  "></a></p>
+<p><a href="https://github.com/gvzhui3753/ntdtv/blob/master/gb/2020/10/02/a102954474.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球围剿中共 东京举行中国人权问题会议   >-009fcc?logoWidth=1" title="全球围剿中共 东京举行中国人权问题会议  " alt="全球围剿中共 东京举行中国人权问题会议  "></a></p>
 <p><a href="https://github.com/gvzhui3753/ntdtv/blob/master/gb/2020/10/02/a102954470.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普检测呈阳性 副总统彭斯与夫人呈阴性   >-009fcc?logoWidth=1" title="川普检测呈阳性 副总统彭斯与夫人呈阴性  " alt="川普检测呈阳性 副总统彭斯与夫人呈阴性  "></a></p>
+<p><a href="https://github.com/gvzhui3753/ntdtv/blob/master/gb/2020/10/02/a102954240.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆十一长假景区爆满 民忧疫情扩大     >-009fcc?logoWidth=1" title="大陆十一长假景区爆满 民忧疫情扩大  " alt="大陆十一长假景区爆满 民忧疫情扩大  "></a></p>
 <p><a href="https://github.com/gvzhui3753/ntdtv/blob/master/gb/2020/09/20/a102944962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普检测震惊全球 网曝中共下场       >-009fcc?logoWidth=1" title="川普检测震惊全球 网曝中共下场  " alt="川普检测震惊全球 网曝中共下场  "></a></p>
-<p><a href="https://github.com/gvzhui3753/ntdtv/blob/master/gb/2020/10/02/a102954295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情面前展现人性 川普获“仇家”祝福    >-009fcc?logoWidth=1" title="疫情面前展现人性 川普获“仇家”祝福  " alt="疫情面前展现人性 川普获“仇家”祝福  "></a></p>
-<p><a href="https://github.com/gvzhui3753/ntdtv/blob/master/gb/2020/10/02/a102954155.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新唐人直播美国大选辩论 获赞“最棒口译”  >-009fcc?logoWidth=1" title="新唐人直播美国大选辩论 获赞“最棒口译”  " alt="新唐人直播美国大选辩论 获赞“最棒口译”  "></a></p>
-<p><a href="https://github.com/gvzhui3753/ntdtv/blob/master/gb/2020/10/02/a102954161.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/烈犬突袭！ 为保护6岁女儿 上海妈妈大腿遭撕>-009fcc?logoWidth=1" title="烈犬突袭！ 为保护6岁女儿 上海妈妈大腿遭撕咬  " alt="烈犬突袭！ 为保护6岁女儿 上海妈妈大腿遭撕咬  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gvzhui3753/djy/blob/master/gb/20/10/1/n12444550.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美众院中国工作组新报告 指中共为世代之敌  >-009fcc?logoWidth=1" title="美众院中国工作组新报告 指中共为世代之敌  " alt="美众院中国工作组新报告 指中共为世代之敌  "></a></p>
 <p><a href="https://github.com/gvzhui3753/djy/blob/master/gb/20/10/1/n12445720.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7常委献花冷清 习讲话激怒世界       >-009fcc?logoWidth=1" title="7常委献花冷清 习讲话激怒世界  " alt="7常委献花冷清 习讲话激怒世界  "></a></p>
@@ -39,6 +39,7 @@
 <p><a href="https://github.com/gvzhui3753/djy/blob/master/gb/20/10/2/n12446687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国殇日 美国送中共“大礼”         >-009fcc?logoWidth=1" title="国殇日 美国送中共“大礼”  " alt="国殇日 美国送中共“大礼”  "></a></p>
 <p><a href="https://github.com/gvzhui3753/djy/blob/master/gb/20/10/1/n12445032.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“天灭中共” 香港法轮功十一中联办举标语  >-009fcc?logoWidth=1" title="“天灭中共” 香港法轮功十一中联办举标语  " alt="“天灭中共” 香港法轮功十一中联办举标语  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/gvzhui3753/ntdtv/blob/master/gb/2020/10/02/a102954295.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情面前展现人性 川普获“仇家”祝福    >-009fcc?logoWidth=1" title="疫情面前展现人性 川普获“仇家”祝福  " alt="疫情面前展现人性 川普获“仇家”祝福  "></a></p>
 <p><a href="https://github.com/gvzhui3753/djy/blob/master/gb/20/10/2/n12446972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王岐山前大管家董宏落马           >-009fcc?logoWidth=1" title="王岐山前大管家董宏落马  " alt="王岐山前大管家董宏落马  "></a></p>
 <p><a href="https://github.com/gvzhui3753/djy/blob/master/gb/20/10/1/n12445322.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共管控大额现金 分析：经济极衰 防金融危机>-009fcc?logoWidth=1" title="中共管控大额现金 分析：经济极衰 防金融危机  " alt="中共管控大额现金 分析：经济极衰 防金融危机  "></a></p>
 <p><a href="https://github.com/gvzhui3753/ntdtv/blob/master/gb/2020/10/02/a102954160.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普与第一夫人检测呈阳性 美股暴跌     >-009fcc?logoWidth=1" title="川普与第一夫人检测呈阳性 美股暴跌  " alt="川普与第一夫人检测呈阳性 美股暴跌  "></a></p>
@@ -258,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://gvzhui3753.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?iwflt">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?xrgwc">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?cpwyl">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?uiutl">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -304,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ycona">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?tyygi">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?vjmav">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?zdtaz">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -484,11 +485,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/gvzhui3753/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gvzhui3753/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gvzhui3753/www/master/index.html?b">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gvzhui3753/www/blob/master/README.md?a#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/gvzhui3753/www/blob/master/README.md?p%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/z5555" title="分享本平台"></img>
-<br><a href="https://git.io/3bbbb">https://git.io/3bbbb</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/z5555">https://is.gd/z5555</a>
+<p><strong><a href="https://github.com/gvzhui3753/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gvzhui3753/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gvzhui3753/www/master/index.html?y">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gvzhui3753/www/blob/master/README.md?l#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/gvzhui3753/www/blob/master/README.md?d%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/qqqqu" title="分享本平台"></img>
+<br><a href="https://git.io/t5555">https://git.io/t5555</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/qqqqu">https://is.gd/qqqqu</a>
 <br>
 <br>
-<h3><a href="https://gvzhui3753.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/z5555%22%2C%22https://is.gd/xiiii%22%2C%22https://is.gd/nnmnn%22%2C%22https://is.gd/yyyyh%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://gvzhui3753.github.io/vd/qr/qr2/#https://is.gd/z5555" target="_blank">二维码的美化和LOGO</a></h3>
+<h3><a href="https://gvzhui3753.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/qqqqu%22%2C%22https://is.gd/rrrrc%22%2C%22https://is.gd/pprpp%22%2C%22https://is.gd/qqqqn%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://gvzhui3753.github.io/vd/qr/qr2/#https://is.gd/qqqqu" target="_blank">二维码的美化和LOGO</a></h3>
 </div>
