@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/qmcmjt380/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/qmcmjt380/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/innnn">git.io/innnn</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/zdd">x.co/zdd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/xjjjj">git.io/xjjjj</a>&nbsp;&nbsp;&nbsp;&nbsp;和&nbsp;&nbsp;<a href="https://x.co/4pp">x.co/4pp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/qmcmjt380/ntdtv/blob/master/gb/2020/10/02/a102954084.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国大选敏感时刻 川普与第一夫人检测呈阳性 >-009fcc?logoWidth=1" title="美国大选敏感时刻 川普与第一夫人检测呈阳性  " alt="美国大选敏感时刻 川普与第一夫人检测呈阳性  "></a></p>
 <p><a href="https://github.com/qmcmjt380/ntdtv/blob/master/gb/2020/10/02/a102954071.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/董卿意外缺席中秋晚会 涉孙力军案再成话题  >-009fcc?logoWidth=1" title="董卿意外缺席中秋晚会 涉孙力军案再成话题  " alt="董卿意外缺席中秋晚会 涉孙力军案再成话题  "></a></p>
 <p><a href="https://github.com/qmcmjt380/ntdtv/blob/master/gb/2020/10/02/a102954043.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内斗空前 习近平输不起           >-009fcc?logoWidth=1" title="内斗空前 习近平输不起  " alt="内斗空前 习近平输不起  "></a></p>
+<p><a href="https://github.com/qmcmjt380/ntdtv/blob/master/gb/2020/10/02/a102954155.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新唐人直播美国大选辩论 获赞“最棒口译”  >-009fcc?logoWidth=1" title="新唐人直播美国大选辩论 获赞“最棒口译”  " alt="新唐人直播美国大选辩论 获赞“最棒口译”  "></a></p>
 <p><a href="https://github.com/qmcmjt380/ntdtv/blob/master/gb/2020/10/02/a102954160.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普与第一夫人检测呈阳性 美股暴跌     >-009fcc?logoWidth=1" title="川普与第一夫人检测呈阳性 美股暴跌  " alt="川普与第一夫人检测呈阳性 美股暴跌  "></a></p>
 <p><a href="https://github.com/qmcmjt380/ntdtv/blob/master/gb/2020/10/02/a102954120.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情重击大陆经济 4大国有银行将缺钱6万亿 >-009fcc?logoWidth=1" title="疫情重击大陆经济 4大国有银行将缺钱6万亿  " alt="疫情重击大陆经济 4大国有银行将缺钱6万亿  "></a></p>
 <p><a href="https://github.com/qmcmjt380/ntdtv/blob/master/gb/2020/10/02/a102954065.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陕西延安厅官获刑7年 曾熊抱央视女主持   >-009fcc?logoWidth=1" title="陕西延安厅官获刑7年 曾熊抱央视女主持  " alt="陕西延安厅官获刑7年 曾熊抱央视女主持  "></a></p>
 <p><a href="https://github.com/qmcmjt380/ntdtv/blob/master/gb/2020/10/02/a102954053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/销声匿迹近2个月 金正恩妹妹金与正露面   >-009fcc?logoWidth=1" title="销声匿迹近2个月 金正恩妹妹金与正露面  " alt="销声匿迹近2个月 金正恩妹妹金与正露面  "></a></p>
-<p><a href="https://github.com/qmcmjt380/ntdtv/blob/master/gb/2020/10/02/a102954044.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普宣布自我隔离 高级顾问确诊染疫     >-009fcc?logoWidth=1" title="川普宣布自我隔离 高级顾问确诊染疫  " alt="川普宣布自我隔离 高级顾问确诊染疫  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/qmcmjt380/djy/blob/master/gb/20/10/1/n12444550.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美众院中国工作组新报告 指中共为世代之敌  >-009fcc?logoWidth=1" title="美众院中国工作组新报告 指中共为世代之敌  " alt="美众院中国工作组新报告 指中共为世代之敌  "></a></p>
 <p><a href="https://github.com/qmcmjt380/djy/blob/master/gb/20/10/1/n12445720.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7常委献花冷清 习讲话激怒世界       >-009fcc?logoWidth=1" title="7常委献花冷清 习讲话激怒世界  " alt="7常委献花冷清 习讲话激怒世界  "></a></p>
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://qmcmjt380.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?wtyug">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?tdlao">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?frcmp">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?abtba">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?qawpi">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?mclhi">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?exjxw">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?eqfgh">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,11 +486,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/qmcmjt380/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qmcmjt380/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qmcmjt380/www/master/index.html?n">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qmcmjt380/www/blob/master/README.md?v#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/qmcmjt380/www/blob/master/README.md?m%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/pptpp" title="分享本平台"></img>
-<br><a href="https://git.io/innnn">https://git.io/innnn</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/pptpp">https://is.gd/pptpp</a>
+<p><strong><a href="https://github.com/qmcmjt380/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/qmcmjt380/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/qmcmjt380/www/master/index.html?c">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/qmcmjt380/www/blob/master/README.md?l#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/qmcmjt380/www/blob/master/README.md?v%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/yyyyt" title="分享本平台"></img>
+<br><a href="https://git.io/xjjjj">https://git.io/xjjjj</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/yyyyt">https://is.gd/yyyyt</a>
 <br>
 <br>
-<h3><a href="https://qmcmjt380.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/pptpp%22%2C%22https://is.gd/qffff%22%2C%22https://is.gd/r8888%22%2C%22https://is.gd/tthtt%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://qmcmjt380.github.io/vd/qr/qr2/#https://is.gd/pptpp" target="_blank">二维码的美化和LOGO</a></h3>
+<h3><a href="https://qmcmjt380.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/yyyyt%22%2C%22https://is.gd/nnnn9%22%2C%22https://is.gd/nnnnh%22%2C%22https://is.gd/tuuuu%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://qmcmjt380.github.io/vd/qr/qr2/#https://is.gd/yyyyt" target="_blank">二维码的美化和LOGO</a></h3>
 </div>
