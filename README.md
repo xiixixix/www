@@ -10,20 +10,20 @@
 <div align="center">
 <a target="_blank" href="https://github.com/bafyob305/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bafyob305/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gjjjj">git.io/gjjjj</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/xiiii">git.io/xiiii</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/bafyob305/ntdtv/blob/master/gb/2020/10/03/a102955054.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重磅！美国移民局最新通知 停止共产党员移民 >-009fcc?logoWidth=1" title="重磅！美国移民局最新通知 停止共产党员移民  " alt="重磅！美国移民局最新通知 停止共产党员移民  "></a></p>
 <p><a href="https://github.com/bafyob305/ntdtv/blob/master/gb/2020/10/03/a102955098.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平抢当“党主席”？传接班人选已内定   >-009fcc?logoWidth=1" title="习近平抢当“党主席”？传接班人选已内定  " alt="习近平抢当“党主席”？传接班人选已内定  "></a></p>
 <p><a href="https://github.com/bafyob305/ntdtv/blob/master/gb/2020/10/03/a102955072.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美移民局重磅通知 停止共产党员移民     >-009fcc?logoWidth=1" title="美移民局重磅通知 停止共产党员移民  " alt="美移民局重磅通知 停止共产党员移民  "></a></p>
-<p><a href="https://github.com/bafyob305/ntdtv/blob/master/gb/2020/10/03/a102955054.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重磅！美国移民局最新通知 停止共产党员移民 >-009fcc?logoWidth=1" title="重磅！美国移民局最新通知 停止共产党员移民  " alt="重磅！美国移民局最新通知 停止共产党员移民  "></a></p>
 <p><a href="https://github.com/bafyob305/ntdtv/blob/master/gb/2020/10/03/a102955044.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/学者评川普染疫：中共大祸临头        >-009fcc?logoWidth=1" title="学者评川普染疫：中共大祸临头  " alt="学者评川普染疫：中共大祸临头  "></a></p>
 <p><a href="https://github.com/bafyob305/ntdtv/blob/master/gb/2020/10/03/a102955008.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普治疗最新消息：使用瑞德西韦 不需吸氧  >-009fcc?logoWidth=1" title="川普治疗最新消息：使用瑞德西韦 不需吸氧  " alt="川普治疗最新消息：使用瑞德西韦 不需吸氧  "></a></p>
 <p><a href="https://github.com/bafyob305/ntdtv/blob/master/gb/2020/10/03/a102955001.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普又一得力助手中招 中共阴谋论引关注   >-009fcc?logoWidth=1" title="川普又一得力助手中招 中共阴谋论引关注  " alt="川普又一得力助手中招 中共阴谋论引关注  "></a></p>
+<p><a href="https://github.com/bafyob305/ntdtv/blob/master/gb/2020/10/03/a102955284.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/各国元首政要慰问川普夫妇 中共官媒异常低调 >-009fcc?logoWidth=1" title="各国元首政要慰问川普夫妇 中共官媒异常低调  " alt="各国元首政要慰问川普夫妇 中共官媒异常低调  "></a></p>
 <p><a href="https://github.com/bafyob305/ntdtv/blob/master/gb/2020/09/20/a102944962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/学者：川普可能会“报仇” 对中共开第一枪  >-009fcc?logoWidth=1" title="学者：川普可能会“报仇” 对中共开第一枪  " alt="学者：川普可能会“报仇” 对中共开第一枪  "></a></p>
 <p><a href="https://github.com/bafyob305/ntdtv/blob/master/gb/2020/10/03/a102955131.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何强行火化他们的遗体（13）     >-009fcc?logoWidth=1" title="中共为何强行火化他们的遗体（13）  " alt="中共为何强行火化他们的遗体（13）  "></a></p>
 <p><a href="https://github.com/bafyob305/ntdtv/blob/master/gb/2020/10/03/a102955023.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会报告 要求对中共活摘器官采取行动   >-009fcc?logoWidth=1" title="美国会报告 要求对中共活摘器官采取行动  " alt="美国会报告 要求对中共活摘器官采取行动  "></a></p>
-<p><a href="https://github.com/bafyob305/ntdtv/blob/master/gb/2020/10/03/a102954981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普住院后再报平安 伊万卡为老爸打气    >-009fcc?logoWidth=1" title="川普住院后再报平安 伊万卡为老爸打气  " alt="川普住院后再报平安 伊万卡为老爸打气  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bafyob305/djy/blob/master/gb/20/10/2/n12448503.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：十月初美国就爆三件大事 灭共将加速 >-009fcc?logoWidth=1" title="周晓辉：十月初美国就爆三件大事 灭共将加速  " alt="周晓辉：十月初美国就爆三件大事 灭共将加速  "></a></p>
 <p><a href="https://github.com/bafyob305/djy/blob/master/gb/20/10/3/n12449080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共前外交官：与多国同时对抗是外交彻底失败 >-009fcc?logoWidth=1" title="中共前外交官：与多国同时对抗是外交彻底失败  " alt="中共前外交官：与多国同时对抗是外交彻底失败  "></a></p>
@@ -47,6 +47,7 @@
 <p><a href="https://github.com/bafyob305/ntdtv/blob/master/gb/2020/10/03/a102954966.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普染疫全球震动！美议员提案定中共为犯罪组织>-009fcc?logoWidth=1" title="川普染疫全球震动！美议员提案定中共为犯罪组织  " alt="川普染疫全球震动！美议员提案定中共为犯罪组织  "></a></p>
 <p><a href="https://github.com/bafyob305/djy/blob/master/gb/20/10/2/n12448569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：在美国办绿卡被卡 党员退党要抓紧  >-009fcc?logoWidth=1" title="王友群：在美国办绿卡被卡 党员退党要抓紧  " alt="王友群：在美国办绿卡被卡 党员退党要抓紧  "></a></p>
 <p><a href="https://github.com/bafyob305/djy/blob/master/gb/20/10/2/n12447794.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/十一国殇日 全球61城同步抗议中共暴政   >-009fcc?logoWidth=1" title="十一国殇日 全球61城同步抗议中共暴政  " alt="十一国殇日 全球61城同步抗议中共暴政  "></a></p>
+<p><a href="https://github.com/bafyob305/ntdtv/blob/master/gb/2020/10/03/a102954981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普住院后再报平安 伊万卡为老爸打气    >-009fcc?logoWidth=1" title="川普住院后再报平安 伊万卡为老爸打气  " alt="川普住院后再报平安 伊万卡为老爸打气  "></a></p>
 <p><a href="https://github.com/bafyob305/ntdtv/blob/master/gb/2020/10/02/a102954560.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台名嘴分析川普确诊4种结果 都对拜登不利  >-009fcc?logoWidth=1" title="台名嘴分析川普确诊4种结果 都对拜登不利  " alt="台名嘴分析川普确诊4种结果 都对拜登不利  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -259,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://bafyob305.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?gclcm">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?bbuqj">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?dkoof">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?capgo">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?xqong">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?rjayb">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?iycgp">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?nbvbl">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,11 +486,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/bafyob305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bafyob305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bafyob305/www/master/index.html?w">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bafyob305/www/blob/master/README.md?h#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/bafyob305/www/blob/master/README.md?z%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/yyyyq" title="分享本平台"></img>
-<br><a href="https://git.io/gjjjj">https://git.io/gjjjj</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/yyyyq">https://is.gd/yyyyq</a>
+<p><strong><a href="https://github.com/bafyob305/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bafyob305/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bafyob305/www/master/index.html?x">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bafyob305/www/blob/master/README.md?y#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/bafyob305/www/blob/master/README.md?m%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/rnnnn" title="分享本平台"></img>
+<br><a href="https://git.io/xiiii">https://git.io/xiiii</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/rnnnn">https://is.gd/rnnnn</a>
 <br>
 <br>
-<h3><a href="https://bafyob305.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/yyyyq%22%2C%22https://is.gd/mmmmp%22%2C%22https://is.gd/udddd%22%2C%22https://is.gd/xxqxx%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://bafyob305.github.io/vd/qr/qr2/#https://is.gd/yyyyq" target="_blank">二维码的美化和LOGO</a></h3>
+<h3><a href="https://bafyob305.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/rnnnn%22%2C%22https://is.gd/xgggg%22%2C%22https://is.gd/qqrqq%22%2C%22https://is.gd/mmmmx%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://bafyob305.github.io/vd/qr/qr2/#https://is.gd/rnnnn" target="_blank">二维码的美化和LOGO</a></h3>
 </div>
