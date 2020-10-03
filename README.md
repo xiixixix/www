@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/gaoztk302/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/gaoztk302/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/76666">git.io/76666</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/s5555">git.io/s5555</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/gaoztk302/ntdtv/blob/master/gb/2020/10/02/a102954668.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美“末日军机”起飞   国防部:无关川普染疫>-009fcc?logoWidth=1" title="美“末日军机”起飞   国防部:无关川普染疫  " alt="美“末日军机”起飞   国防部:无关川普染疫  "></a></p>
 <p><a href="https://github.com/gaoztk302/ntdtv/blob/master/gb/2020/10/02/a102954560.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台名嘴分析川普确诊4种结果 都对拜登不利  >-009fcc?logoWidth=1" title="台名嘴分析川普确诊4种结果 都对拜登不利  " alt="台名嘴分析川普确诊4种结果 都对拜登不利  "></a></p>
 <p><a href="https://github.com/gaoztk302/ntdtv/blob/master/gb/2020/10/02/a102954250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普被隔离 /王岐山大管家落马       >-009fcc?logoWidth=1" title="川普被隔离 /王岐山大管家落马  " alt="川普被隔离 /王岐山大管家落马  "></a></p>
+<p><a href="https://github.com/gaoztk302/ntdtv/blob/master/gb/2020/10/03/a102955008.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普治疗最新消息：使用瑞德西韦 不需吸氧  >-009fcc?logoWidth=1" title="川普治疗最新消息：使用瑞德西韦 不需吸氧  " alt="川普治疗最新消息：使用瑞德西韦 不需吸氧  "></a></p>
+<p><a href="https://github.com/gaoztk302/ntdtv/blob/master/gb/2020/10/03/a102955001.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普又一得力助手中招 中共阴谋论引关注   >-009fcc?logoWidth=1" title="川普又一得力助手中招 中共阴谋论引关注  " alt="川普又一得力助手中招 中共阴谋论引关注  "></a></p>
 <p><a href="https://github.com/gaoztk302/ntdtv/blob/master/gb/2020/10/03/a102954981.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普住院后再报平安 伊万卡为老爸打气    >-009fcc?logoWidth=1" title="川普住院后再报平安 伊万卡为老爸打气  " alt="川普住院后再报平安 伊万卡为老爸打气  "></a></p>
 <p><a href="https://github.com/gaoztk302/ntdtv/blob/master/gb/2020/10/03/a102954938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳卡冲突越打越凶 土耳其派佣兵参战 美法俄吁>-009fcc?logoWidth=1" title="纳卡冲突越打越凶 土耳其派佣兵参战 美法俄吁停火  " alt="纳卡冲突越打越凶 土耳其派佣兵参战 美法俄吁停火  "></a></p>
 <p><a href="https://github.com/gaoztk302/ntdtv/blob/master/gb/2020/10/03/a102954960.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：全力对抗中共  美国能“直切要害”  >-009fcc?logoWidth=1" title="美媒：全力对抗中共  美国能“直切要害”  " alt="美媒：全力对抗中共  美国能“直切要害”  "></a></p>
-<p><a href="https://github.com/gaoztk302/ntdtv/blob/master/gb/2020/10/03/a102954942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧盟罕见决定 将召开特别峰会应对中共    >-009fcc?logoWidth=1" title="欧盟罕见决定 将召开特别峰会应对中共  " alt="欧盟罕见决定 将召开特别峰会应对中共  "></a></p>
-<p><a href="https://github.com/gaoztk302/ntdtv/blob/master/gb/2020/10/03/a102954913.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/盲眼预言师又命中？曾预测：美第45任总统染怪>-009fcc?logoWidth=1" title="盲眼预言师又命中？曾预测：美第45任总统染怪病  " alt="盲眼预言师又命中？曾预测：美第45任总统染怪病  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/gaoztk302/djy/blob/master/gb/20/10/2/n12448503.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：十月初美国就爆三件大事 灭共将加速 >-009fcc?logoWidth=1" title="周晓辉：十月初美国就爆三件大事 灭共将加速  " alt="周晓辉：十月初美国就爆三件大事 灭共将加速  "></a></p>
 <p><a href="https://github.com/gaoztk302/djy/blob/master/gb/20/10/2/n12448364.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王岐山前“大秘”被查 中共高层内斗激烈   >-009fcc?logoWidth=1" title="王岐山前“大秘”被查 中共高层内斗激烈  " alt="王岐山前“大秘”被查 中共高层内斗激烈  "></a></p>
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://gaoztk302.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?cokln">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?qopxw">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?iuhpn">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?itzcx">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?sqspa">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?iofgy">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?kidjb">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?jbxsj">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,11 +485,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/gaoztk302/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gaoztk302/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gaoztk302/www/master/index.html?g">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gaoztk302/www/blob/master/README.md?j#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/gaoztk302/www/blob/master/README.md?e%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/zzzzh" title="分享本平台"></img>
-<br><a href="https://git.io/76666">https://git.io/76666</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/zzzzh">https://is.gd/zzzzh</a>
+<p><strong><a href="https://github.com/gaoztk302/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/gaoztk302/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/gaoztk302/www/master/index.html?w">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/gaoztk302/www/blob/master/README.md?o#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/gaoztk302/www/blob/master/README.md?m%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ttttq" title="分享本平台"></img>
+<br><a href="https://git.io/s5555">https://git.io/s5555</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/ttttq">https://is.gd/ttttq</a>
 <br>
 <br>
-<h3><a href="https://gaoztk302.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/zzzzh%22%2C%22https://is.gd/uuuua%22%2C%22https://is.gd/uumuu%22%2C%22https://is.gd/qqqqb%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://gaoztk302.github.io/vd/qr/qr2/#https://is.gd/zzzzh" target="_blank">二维码的美化和LOGO</a></h3>
+<h3><a href="https://gaoztk302.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/ttttq%22%2C%22https://is.gd/rrrrd%22%2C%22https://is.gd/rrurr%22%2C%22https://is.gd/ppppg%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://gaoztk302.github.io/vd/qr/qr2/#https://is.gd/ttttq" target="_blank">二维码的美化和LOGO</a></h3>
 </div>
