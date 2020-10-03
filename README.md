@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/wgpdek3931/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wgpdek3931/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gqqqq">git.io/gqqqq</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a5555">git.io/a5555</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -35,19 +35,19 @@
 <p><a href="https://github.com/wgpdek3931/djy/blob/master/gb/20/10/2/n12448198.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传任志强与王岐山早吵翻 不再来往      >-009fcc?logoWidth=1" title="传任志强与王岐山早吵翻 不再来往  " alt="传任志强与王岐山早吵翻 不再来往  "></a></p>
 <p><a href="https://github.com/wgpdek3931/djy/blob/master/gb/20/10/1/n12445731.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/感恩李洪志大师 三个德国家庭的故事     >-009fcc?logoWidth=1" title="感恩李洪志大师 三个德国家庭的故事  " alt="感恩李洪志大师 三个德国家庭的故事  "></a></p>
 <p><a href="https://github.com/wgpdek3931/djy/blob/master/gb/20/10/2/n12448010.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/十一 北京遭强拆户跳楼身亡         >-009fcc?logoWidth=1" title="十一 北京遭强拆户跳楼身亡  " alt="十一 北京遭强拆户跳楼身亡  "></a></p>
-<p><a href="https://github.com/wgpdek3931/djy/blob/master/gb/20/10/2/n12448745.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/十月惊奇加速倒共 美列中共黑帮？      >-009fcc?logoWidth=1" title="十月惊奇加速倒共 美列中共黑帮？  " alt="十月惊奇加速倒共 美列中共黑帮？  "></a></p>
+<p><a href="https://github.com/wgpdek3931/djy/blob/master/gb/20/10/2/n12448745.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/十月惊奇加速倒共 美末日军机升空      >-009fcc?logoWidth=1" title="十月惊奇加速倒共 美末日军机升空  " alt="十月惊奇加速倒共 美末日军机升空  "></a></p>
 <p><a href="https://github.com/wgpdek3931/djy/blob/master/gb/20/10/3/n12449069.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传任志强与王岐山早已分道扬镳        >-009fcc?logoWidth=1" title="传任志强与王岐山早已分道扬镳  " alt="传任志强与王岐山早已分道扬镳  "></a></p>
 <p><a href="https://github.com/wgpdek3931/djy/blob/master/gb/20/10/2/n12448569.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：在美国办绿卡被卡 党员退党要抓紧  >-009fcc?logoWidth=1" title="王友群：在美国办绿卡被卡 党员退党要抓紧  " alt="王友群：在美国办绿卡被卡 党员退党要抓紧  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wgpdek3931/ntdtv/blob/master/gb/2020/09/20/a102944962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普检测震惊全球 网曝中共下场       >-009fcc?logoWidth=1" title="川普检测震惊全球 网曝中共下场  " alt="川普检测震惊全球 网曝中共下场  "></a></p>
 <p><a href="https://github.com/wgpdek3931/ntdtv/blob/master/gb/2020/10/02/a102954124.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美将售台“MQ--9”无人机 斩首行动传震惊中>-009fcc?logoWidth=1" title="美将售台“MQ-9”无人机 斩首行动传震惊中南海  " alt="美将售台“MQ-9”无人机 斩首行动传震惊中南海  "></a></p>
 <p><a href="https://github.com/wgpdek3931/ntdtv/blob/master/gb/2020/10/02/a102954198.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海内斗加剧 王岐山前大管家董宏突然落马 >-009fcc?logoWidth=1" title="中南海内斗加剧 王岐山前大管家董宏突然落马  " alt="中南海内斗加剧 王岐山前大管家董宏突然落马  "></a></p>
-<p><a href="https://github.com/wgpdek3931/djy/blob/master/gb/20/10/2/n12448758.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何强行火化他们的遗体（13）     >-009fcc?logoWidth=1" title="中共为何强行火化他们的遗体（13）  " alt="中共为何强行火化他们的遗体（13）  "></a></p>
+<p><a href="https://github.com/wgpdek3931/djy/blob/master/gb/20/10/3/n12449130.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普确诊是坏事？各路人分享高见       >-009fcc?logoWidth=1" title="川普确诊是坏事？各路人分享高见  " alt="川普确诊是坏事？各路人分享高见  "></a></p>
 <p><a href="https://github.com/wgpdek3931/djy/blob/master/gb/20/10/2/n12448645.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李锐女儿：习近平像毛泽东一样 越整人越睡不着>-009fcc?logoWidth=1" title="李锐女儿：习近平像毛泽东一样 越整人越睡不着觉  " alt="李锐女儿：习近平像毛泽东一样 越整人越睡不着觉  "></a></p>
 <p><a href="https://github.com/wgpdek3931/ntdtv/blob/master/gb/2020/10/03/a102954839.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文昭：川普中共病毒检测阳性 对习近平是福是祸>-009fcc?logoWidth=1" title="文昭：川普中共病毒检测阳性 对习近平是福是祸  " alt="文昭：川普中共病毒检测阳性 对习近平是福是祸  "></a></p>
 <p><a href="https://github.com/wgpdek3931/ntdtv/blob/master/gb/2020/10/03/a102954940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普和第一夫人确诊 必须了解几件事     >-009fcc?logoWidth=1" title="川普和第一夫人确诊 必须了解几件事  " alt="川普和第一夫人确诊 必须了解几件事  "></a></p>
+<p><a href="https://github.com/wgpdek3931/djy/blob/master/gb/20/10/2/n12448758.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何强行火化他们的遗体（13）     >-009fcc?logoWidth=1" title="中共为何强行火化他们的遗体（13）  " alt="中共为何强行火化他们的遗体（13）  "></a></p>
 <p><a href="https://github.com/wgpdek3931/djy/blob/master/gb/20/10/2/n12448233.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会报告 要求对中共强摘器官采取行动   >-009fcc?logoWidth=1" title="美国会报告 要求对中共强摘器官采取行动  " alt="美国会报告 要求对中共强摘器官采取行动  "></a></p>
-<p><a href="https://github.com/wgpdek3931/djy/blob/master/gb/20/10/2/n12448208.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普染疫 华人热议对选情的影响       >-009fcc?logoWidth=1" title="川普染疫 华人热议对选情的影响  " alt="川普染疫 华人热议对选情的影响  "></a></p>
 <p><a href="https://github.com/wgpdek3931/ntdtv/blob/master/gb/2020/10/02/a102954686.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普中招 北京将面临空前巨大压力 有些人不要>-009fcc?logoWidth=1" title="川普中招 北京将面临空前巨大压力 有些人不要高兴太早  " alt="川普中招 北京将面临空前巨大压力 有些人不要高兴太早  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://wgpdek3931.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?wmwoe">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?dqavk">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?sywjk">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?dcvkn">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?flmqt">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?alhwn">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?uscqj">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?jkpan">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,10 +487,10 @@
 <hr>
 <div align="center">
 <p><strong><a href="https://github.com/wgpdek3931/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wgpdek3931/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wgpdek3931/www/master/index.html?j">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wgpdek3931/www/blob/master/README.md?y#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/wgpdek3931/www/blob/master/README.md?j%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/pppp8" title="分享本平台"></img>
-<br><a href="https://git.io/gqqqq">https://git.io/gqqqq</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/pppp8">https://is.gd/pppp8</a>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wgpdek3931/www/blob/master/README.md?s#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/wgpdek3931/www/blob/master/README.md?j%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/rrrrs" title="分享本平台"></img>
+<br><a href="https://git.io/a5555">https://git.io/a5555</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/rrrrs">https://is.gd/rrrrs</a>
 <br>
 <br>
-<h3><a href="https://wgpdek3931.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/pppp8%22%2C%22https://is.gd/mmmmp%22%2C%22https://is.gd/pxxxx%22%2C%22https://is.gd/nnnnm%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://wgpdek3931.github.io/vd/qr/qr2/#https://is.gd/pppp8" target="_blank">二维码的美化和LOGO</a></h3>
+<h3><a href="https://wgpdek3931.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/rrrrs%22%2C%22https://is.gd/xxxxh%22%2C%22https://is.gd/nqqqq%22%2C%22https://is.gd/nnnnk%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://wgpdek3931.github.io/vd/qr/qr2/#https://is.gd/rrrrs" target="_blank">二维码的美化和LOGO</a></h3>
 </div>
