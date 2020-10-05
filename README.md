@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zenrhq3276/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zenrhq3276/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/zyyyy">git.io/zyyyy</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/rnnnn">git.io/rnnnn</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,7 +26,7 @@
 <p><a href="https://github.com/zenrhq3276/ntdtv/blob/master/gb/2020/10/05/a102956490.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/支持者感慨川普病中仍念他人 医院外再收爱心披>-009fcc?logoWidth=1" title="支持者感慨川普病中仍念他人 医院外再收爱心披萨  " alt="支持者感慨川普病中仍念他人 医院外再收爱心披萨  "></a></p>
 <p><a href="https://github.com/zenrhq3276/ntdtv/blob/master/gb/2020/10/05/a102956568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白俄数万人上街遭警水炮驱散 墨克尔接见反对派>-009fcc?logoWidth=1" title="白俄数万人上街遭警水炮驱散 墨克尔接见反对派候选人  " alt="白俄数万人上街遭警水炮驱散 墨克尔接见反对派候选人  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/zenrhq3276/djy/blob/master/gb/20/10/3/n12450596.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：今晚6：30出院           >-009fcc?logoWidth=1" title="川普：今晚6：30出院  " alt="川普：今晚6：30出院  "></a></p>
+<p><a href="https://github.com/zenrhq3276/djy/blob/master/gb/20/10/3/n12450596.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：今晚6:30出院           >-009fcc?logoWidth=1" title="川普：今晚6:30出院  " alt="川普：今晚6:30出院  "></a></p>
 <p><a href="https://github.com/zenrhq3276/djy/blob/master/gb/20/10/5/n12454388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹酸川普医疗待遇特殊 网民拿习近平说事 >-009fcc?logoWidth=1" title="华春莹酸川普医疗待遇特殊 网民拿习近平说事  " alt="华春莹酸川普医疗待遇特殊 网民拿习近平说事  "></a></p>
 <p><a href="https://github.com/zenrhq3276/djy/blob/master/gb/20/10/5/n12453027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：习近平看见医院门口支持川普的华人吗？ >-009fcc?logoWidth=1" title="钟原：习近平看见医院门口支持川普的华人吗？  " alt="钟原：习近平看见医院门口支持川普的华人吗？  "></a></p>
 <p><a href="https://github.com/zenrhq3276/djy/blob/master/gb/20/10/5/n12452357.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美禁共产党员移民 退党中心：欢迎办理退党  >-009fcc?logoWidth=1" title="美禁共产党员移民 退党中心：欢迎办理退党  " alt="美禁共产党员移民 退党中心：欢迎办理退党  "></a></p>
@@ -42,15 +42,14 @@
 <p><a href="https://github.com/zenrhq3276/ntdtv/blob/master/gb/2020/10/04/a102955972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：更大规模瘟疫即将来袭？       >-009fcc?logoWidth=1" title="李正宽：更大规模瘟疫即将来袭？  " alt="李正宽：更大规模瘟疫即将来袭？  "></a></p>
 <p><a href="https://github.com/zenrhq3276/djy/blob/master/gb/20/10/4/n12452909.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共给外国疫苗“友情价” 本国拟定高价超出2>-009fcc?logoWidth=1" title="中共给外国疫苗“友情价” 本国拟定高价超出20倍  " alt="中共给外国疫苗“友情价” 本国拟定高价超出20倍  "></a></p>
 <p><a href="https://github.com/zenrhq3276/ntdtv/blob/master/gb/2020/10/05/a102956083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：感受到神迹！最快周一回白宫      >-009fcc?logoWidth=1" title="川普：感受到神迹！最快周一回白宫  " alt="川普：感受到神迹！最快周一回白宫  "></a></p>
-<p><a href="https://github.com/zenrhq3276/ntdtv/blob/master/gb/2020/10/03/a102955098.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平抢当“党主席”？传接班人选已内定   >-009fcc?logoWidth=1" title="习近平抢当“党主席”？传接班人选已内定  " alt="习近平抢当“党主席”？传接班人选已内定  "></a></p>
 <p><a href="https://github.com/zenrhq3276/djy/blob/master/gb/20/10/5/n12453338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华人挺川普 分析：习体会尴尬        >-009fcc?logoWidth=1" title="华人挺川普 分析：习体会尴尬  " alt="华人挺川普 分析：习体会尴尬  "></a></p>
 <p><a href="https://github.com/zenrhq3276/djy/blob/master/gb/20/10/5/n12454087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王立军继任者谷凤杰4次获监外执行 网民质疑 >-009fcc?logoWidth=1" title="王立军继任者谷凤杰4次获监外执行 网民质疑  " alt="王立军继任者谷凤杰4次获监外执行 网民质疑  "></a></p>
+<p><a href="https://github.com/zenrhq3276/ntdtv/blob/master/gb/2020/10/03/a102955098.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平抢当“党主席”？传接班人选已内定   >-009fcc?logoWidth=1" title="习近平抢当“党主席”？传接班人选已内定  " alt="习近平抢当“党主席”？传接班人选已内定  "></a></p>
 <p><a href="https://github.com/zenrhq3276/ntdtv/blob/master/gb/2020/10/05/a102956363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/史上最荒谬空难 机长警告飞机没油 劫匪：书上>-009fcc?logoWidth=1" title="史上最荒谬空难 机长警告飞机没油 劫匪：书上说还能飞  " alt="史上最荒谬空难 机长警告飞机没油 劫匪：书上说还能飞  "></a></p>
-<p><a href="https://github.com/zenrhq3276/ntdtv/blob/master/gb/2020/10/05/a102956165.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国禁共产党员入境 更新细节曝光      >-009fcc?logoWidth=1" title="美国禁共产党员入境 更新细节曝光  " alt="美国禁共产党员入境 更新细节曝光  "></a></p>
 <p><a href="https://github.com/zenrhq3276/djy/blob/master/gb/20/10/4/n12452574.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“死神无人机”剑指中共           >-009fcc?logoWidth=1" title="“死神无人机”剑指中共  " alt="“死神无人机”剑指中共  "></a></p>
 <p><a href="https://github.com/zenrhq3276/djy/blob/master/gb/20/10/4/n12452666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张慧东：川普染疫成中共最大梦魇       >-009fcc?logoWidth=1" title="张慧东：川普染疫成中共最大梦魇  " alt="张慧东：川普染疫成中共最大梦魇  "></a></p>
+<p><a href="https://github.com/zenrhq3276/ntdtv/blob/master/gb/2020/10/05/a102956165.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国禁共产党员入境 更新细节曝光      >-009fcc?logoWidth=1" title="美国禁共产党员入境 更新细节曝光  " alt="美国禁共产党员入境 更新细节曝光  "></a></p>
 <p><a href="https://github.com/zenrhq3276/ntdtv/blob/master/gb/2020/10/05/a102956396.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/坚果助防癌 3招吃得安心又不怕胖      >-009fcc?logoWidth=1" title="坚果助防癌 3招吃得安心又不怕胖  " alt="坚果助防癌 3招吃得安心又不怕胖  "></a></p>
-<p><a href="https://github.com/zenrhq3276/ntdtv/blob/master/gb/2020/10/04/a102955666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/显灵了！观音菩萨空中骑龙被拍到！？     >-009fcc?logoWidth=1" title="显灵了！观音菩萨空中骑龙被拍到！？  " alt="显灵了！观音菩萨空中骑龙被拍到！？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -262,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://zenrhq3276.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?pigjm">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?tqxzh">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?slcqq">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?gaprg">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -308,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?okahv">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?svsja">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?yenfk">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ghjgq">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -488,11 +487,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/zenrhq3276/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zenrhq3276/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zenrhq3276/www/master/index.html?l">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zenrhq3276/www/blob/master/README.md?x#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/zenrhq3276/www/blob/master/README.md?b%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ppmpp" title="分享本平台"></img>
-<br><a href="https://git.io/zyyyy">https://git.io/zyyyy</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/ppmpp">https://is.gd/ppmpp</a>
+<p><strong><a href="https://github.com/zenrhq3276/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zenrhq3276/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zenrhq3276/www/master/index.html?u">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zenrhq3276/www/blob/master/README.md?y#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/zenrhq3276/www/blob/master/README.md?q%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/qqbqq" title="分享本平台"></img>
+<br><a href="https://git.io/rnnnn">https://git.io/rnnnn</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/qqbqq">https://is.gd/qqbqq</a>
 <br>
 <br>
-<h3><a href="https://zenrhq3276.github.io/vd/qr/qr2/#https://github.com/zenrhq3276/www/blob/master/README.md?u#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://zenrhq3276.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/ppmpp%22%2C%22https://is.gd/ppfpp%22%2C%22https://is.gd/zzzzh%22%2C%22https://is.gd/qcccc%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://zenrhq3276.github.io/vd/qr/qr2/#https://github.com/zenrhq3276/www/blob/master/README.md?o#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://zenrhq3276.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/qqbqq%22%2C%22https://is.gd/zzzzf%22%2C%22https://is.gd/qgggg%22%2C%22https://is.gd/qqqqr%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
