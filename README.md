@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/zfiocy3999/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zfiocy3999/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/krrrr">git.io/krrrr</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/a3333">git.io/a3333</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,15 @@
 <p><a href="https://github.com/zfiocy3999/djy/blob/master/gb/20/10/4/n12452256.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国收紧敏感学科留学审查 涉数百中国签证  >-009fcc?logoWidth=1" title="英国收紧敏感学科留学审查 涉数百中国签证  " alt="英国收紧敏感学科留学审查 涉数百中国签证  "></a></p>
 <p><a href="https://github.com/zfiocy3999/djy/blob/master/gb/20/10/4/n12452676.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前中共外交官曾担任TikTok内容审查主管 >-009fcc?logoWidth=1" title="前中共外交官曾担任TikTok内容审查主管  " alt="前中共外交官曾担任TikTok内容审查主管  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/zfiocy3999/ntdtv/blob/master/gb/2020/10/04/a102955619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共定点投毒害川普？/王岐山大管家落马 清洗>-009fcc?logoWidth=1" title="中共定点投毒害川普？/王岐山大管家落马 清洗刘少奇第二？  " alt="中共定点投毒害川普？/王岐山大管家落马 清洗刘少奇第二？  "></a></p>
 <p><a href="https://github.com/zfiocy3999/ntdtv/blob/master/gb/2020/10/04/a102955972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：更大规模瘟疫即将来袭？       >-009fcc?logoWidth=1" title="李正宽：更大规模瘟疫即将来袭？  " alt="李正宽：更大规模瘟疫即将来袭？  "></a></p>
-<p><a href="https://github.com/zfiocy3999/ntdtv/blob/master/gb/2020/10/05/a102956102.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/10月4日完整版              >-009fcc?logoWidth=1" title="10月4日完整版  " alt="10月4日完整版  "></a></p>
+<p><a href="https://github.com/zfiocy3999/ntdtv/blob/master/gb/2020/10/04/a102955947.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美驻华大使临别致辞 仍赞赏中国人民和中华文化>-009fcc?logoWidth=1" title="美驻华大使临别致辞 仍赞赏中国人民和中华文化（视频）  " alt="美驻华大使临别致辞 仍赞赏中国人民和中华文化（视频）  "></a></p>
 <p><a href="https://github.com/zfiocy3999/djy/blob/master/gb/20/10/4/n12452766.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军机18天扰台51架次 美军有动作   >-009fcc?logoWidth=1" title="中共军机18天扰台51架次 美军有动作  " alt="中共军机18天扰台51架次 美军有动作  "></a></p>
 <p><a href="https://github.com/zfiocy3999/djy/blob/master/gb/20/10/4/n12452794.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/智库民调：川普夺320张选举人票连任    >-009fcc?logoWidth=1" title="智库民调：川普夺320张选举人票连任  " alt="智库民调：川普夺320张选举人票连任  "></a></p>
 <p><a href="https://github.com/zfiocy3999/ntdtv/blob/master/gb/2020/10/04/a102955868.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普染疫 预言成真？辛普森卡通预言     >-009fcc?logoWidth=1" title="川普染疫 预言成真？辛普森卡通预言  " alt="川普染疫 预言成真？辛普森卡通预言  "></a></p>
+<p><a href="https://github.com/zfiocy3999/ntdtv/blob/master/gb/2020/10/04/a102955666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/显灵了！观音菩萨空中骑龙被拍到！？     >-009fcc?logoWidth=1" title="显灵了！观音菩萨空中骑龙被拍到！？  " alt="显灵了！观音菩萨空中骑龙被拍到！？  "></a></p>
 <p><a href="https://github.com/zfiocy3999/djy/blob/master/gb/20/10/4/n12452462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中芯发公告承认美国制裁 有“重要不利影响” >-009fcc?logoWidth=1" title="中芯发公告承认美国制裁 有“重要不利影响”  " alt="中芯发公告承认美国制裁 有“重要不利影响”  "></a></p>
 <p><a href="https://github.com/zfiocy3999/djy/blob/master/gb/20/10/3/n12450887.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：川普总统染疫 解体中共将加速    >-009fcc?logoWidth=1" title="王友群：川普总统染疫 解体中共将加速  " alt="王友群：川普总统染疫 解体中共将加速  "></a></p>
-<p><a href="https://github.com/zfiocy3999/ntdtv/blob/master/gb/2020/10/04/a102955666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/显灵了！观音菩萨空中骑龙被拍到！？     >-009fcc?logoWidth=1" title="显灵了！观音菩萨空中骑龙被拍到！？  " alt="显灵了！观音菩萨空中骑龙被拍到！？  "></a></p>
-<p><a href="https://github.com/zfiocy3999/ntdtv/blob/master/gb/2020/10/04/a102955750.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普染疫激怒美国政要 炮轰中共“生物袭击” >-009fcc?logoWidth=1" title="川普染疫激怒美国政要 炮轰中共“生物袭击”  " alt="川普染疫激怒美国政要 炮轰中共“生物袭击”  "></a></p>
+<p><a href="https://github.com/zfiocy3999/ntdtv/blob/master/gb/2020/10/04/a102956005.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫医生：川普持续好转 最快周一返回白宫  >-009fcc?logoWidth=1" title="白宫医生：川普持续好转 最快周一返回白宫  " alt="白宫医生：川普持续好转 最快周一返回白宫  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -260,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://zfiocy3999.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?rgrxn">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?qqfrc">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?uryox">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?sgspz">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?yyhea">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?qvyvi">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?iybrr">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?yppnn">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,11 +485,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/zfiocy3999/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zfiocy3999/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zfiocy3999/www/master/index.html?r">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zfiocy3999/www/blob/master/README.md?p#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/zfiocy3999/www/blob/master/README.md?n%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/xnnnn" title="分享本平台"></img>
-<br><a href="https://git.io/krrrr">https://git.io/krrrr</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/xnnnn">https://is.gd/xnnnn</a>
+<p><strong><a href="https://github.com/zfiocy3999/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zfiocy3999/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zfiocy3999/www/master/index.html?w">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zfiocy3999/www/blob/master/README.md?c#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/zfiocy3999/www/blob/master/README.md?s%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ukkkk" title="分享本平台"></img>
+<br><a href="https://git.io/a3333">https://git.io/a3333</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/ukkkk">https://is.gd/ukkkk</a>
 <br>
 <br>
-<h3><a href="https://zfiocy3999.github.io/vd/qr/qr2/#https://github.com/zfiocy3999/www/blob/master/README.md?v#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://zfiocy3999.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/xnnnn%22%2C%22https://is.gd/r7777%22%2C%22https://is.gd/ttdtt%22%2C%22https://is.gd/xzzzz%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://zfiocy3999.github.io/vd/qr/qr2/#https://github.com/zfiocy3999/www/blob/master/README.md?i#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://zfiocy3999.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/ukkkk%22%2C%22https://is.gd/xiiii%22%2C%22https://is.gd/mjjjj%22%2C%22https://is.gd/mmmm8%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
