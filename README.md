@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/katety3035/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/katety3035/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/zuuuu">git.io/zuuuu</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/8bbbb">git.io/8bbbb</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/katety3035/ntdtv/blob/master/gb/2020/10/05/a102956364.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红二代：习身旁全是马屁精/华春莹嘲讽川普养病>-009fcc?logoWidth=1" title="红二代：习身旁全是马屁精/华春莹嘲讽川普养病遭网友炮轰  " alt="红二代：习身旁全是马屁精/华春莹嘲讽川普养病遭网友炮轰  "></a></p>
 <p><a href="https://github.com/katety3035/ntdtv/blob/master/gb/2020/10/05/a102956302.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹嘲讽川普养病 又被网民“打脸”    >-009fcc?logoWidth=1" title="华春莹嘲讽川普养病 又被网民“打脸”  " alt="华春莹嘲讽川普养病 又被网民“打脸”  "></a></p>
 <p><a href="https://github.com/katety3035/ntdtv/blob/master/gb/2020/10/05/a102956289.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进说漏嘴：许多党员想移民 这下幻想破灭 >-009fcc?logoWidth=1" title="胡锡进说漏嘴：许多党员想移民 这下幻想破灭  " alt="胡锡进说漏嘴：许多党员想移民 这下幻想破灭  "></a></p>
 <p><a href="https://github.com/katety3035/ntdtv/blob/master/gb/2020/10/05/a102956275.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红二代谈习近平：身旁全是马屁精 夜夜睡不着觉>-009fcc?logoWidth=1" title="红二代谈习近平：身旁全是马屁精 夜夜睡不着觉  " alt="红二代谈习近平：身旁全是马屁精 夜夜睡不着觉  "></a></p>
 <p><a href="https://github.com/katety3035/ntdtv/blob/master/gb/2020/10/05/a102956205.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩被爆：曾当众大骂习近平三个字     >-009fcc?logoWidth=1" title="金正恩被爆：曾当众大骂习近平三个字  " alt="金正恩被爆：曾当众大骂习近平三个字  "></a></p>
 <p><a href="https://github.com/katety3035/ntdtv/blob/master/gb/2020/10/05/a102956165.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国禁共产党员入境 更新细节曝光      >-009fcc?logoWidth=1" title="美国禁共产党员入境 更新细节曝光  " alt="美国禁共产党员入境 更新细节曝光  "></a></p>
-<p><a href="https://github.com/katety3035/ntdtv/blob/master/gb/2020/10/05/a102956151.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普最快5日回白宫 表示给众人一个“惊喜” >-009fcc?logoWidth=1" title="川普最快5日回白宫 表示给众人一个“惊喜”  " alt="川普最快5日回白宫 表示给众人一个“惊喜”  "></a></p>
+<p><a href="https://github.com/katety3035/ntdtv/blob/master/gb/2020/10/05/a102956407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/忧中共偷技术转向 日本拟2021年起严审留学>-009fcc?logoWidth=1" title="忧中共偷技术转向 日本拟2021年起严审留学生签证  " alt="忧中共偷技术转向 日本拟2021年起严审留学生签证  "></a></p>
 <p><a href="https://github.com/katety3035/ntdtv/blob/master/gb/2020/10/05/a102956363.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/史上最荒谬空难 机长警告飞机没油了 劫机者：>-009fcc?logoWidth=1" title="史上最荒谬空难 机长警告飞机没油了 劫机者：书上说还能飞  " alt="史上最荒谬空难 机长警告飞机没油了 劫机者：书上说还能飞  "></a></p>
 <p><a href="https://github.com/katety3035/ntdtv/blob/master/gb/2020/10/05/a102956338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/甘肃大货车冲入菜市场 酿6死14伤     >-009fcc?logoWidth=1" title="甘肃大货车冲入菜市场 酿6死14伤  " alt="甘肃大货车冲入菜市场 酿6死14伤  "></a></p>
 <p><a href="https://github.com/katety3035/ntdtv/blob/master/gb/2020/10/05/a102956267.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴西超市货架“骨牌式倒塌” 21岁女员工遭砸>-009fcc?logoWidth=1" title="巴西超市货架“骨牌式倒塌” 21岁女员工遭砸中身亡  " alt="巴西超市货架“骨牌式倒塌” 21岁女员工遭砸中身亡  "></a></p>
 <p><a href="https://github.com/katety3035/ntdtv/blob/master/gb/2020/10/05/a102956273.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒疫苗离大众还有多远？专家再提警告    >-009fcc?logoWidth=1" title="病毒疫苗离大众还有多远？专家再提警告  " alt="病毒疫苗离大众还有多远？专家再提警告  "></a></p>
-<p><a href="https://github.com/katety3035/ntdtv/blob/master/gb/2020/10/05/a102956249.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美方加强出口管制 中芯近期海外大量扫货   >-009fcc?logoWidth=1" title="美方加强出口管制 中芯近期海外大量扫货  " alt="美方加强出口管制 中芯近期海外大量扫货  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/katety3035/djy/blob/master/gb/20/10/3/n12450596.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：我上了真正一课            >-009fcc?logoWidth=1" title="川普：我上了真正一课  " alt="川普：我上了真正一课  "></a></p>
 <p><a href="https://github.com/katety3035/djy/blob/master/gb/20/10/5/n12453027.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：习近平看见医院门口支持川普的华人吗？ >-009fcc?logoWidth=1" title="钟原：习近平看见医院门口支持川普的华人吗？  " alt="钟原：习近平看见医院门口支持川普的华人吗？  "></a></p>
@@ -37,9 +37,10 @@
 <p><a href="https://github.com/katety3035/djy/blob/master/gb/20/10/4/n12452611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：习近平为何要出台这样两份文件？    >-009fcc?logoWidth=1" title="王赫：习近平为何要出台这样两份文件？  " alt="王赫：习近平为何要出台这样两份文件？  "></a></p>
 <p><a href="https://github.com/katety3035/djy/blob/master/gb/20/10/5/n12453485.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共前上海副书记罗世谦疑车祸不治身亡    >-009fcc?logoWidth=1" title="中共前上海副书记罗世谦疑车祸不治身亡  " alt="中共前上海副书记罗世谦疑车祸不治身亡  "></a></p>
 <p><a href="https://github.com/katety3035/djy/blob/master/gb/20/10/5/n12453338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华人挺川普 分析：习体会尴尬        >-009fcc?logoWidth=1" title="华人挺川普 分析：习体会尴尬  " alt="华人挺川普 分析：习体会尴尬  "></a></p>
-<p><a href="https://github.com/katety3035/djy/blob/master/gb/20/10/4/n12452574.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“死神无人机”剑指中共           >-009fcc?logoWidth=1" title="“死神无人机”剑指中共  " alt="“死神无人机”剑指中共  "></a></p>
+<p><a href="https://github.com/katety3035/djy/blob/master/gb/20/10/5/n12454087.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王立军继任者谷凤杰4次获监外执行 网民质疑 >-009fcc?logoWidth=1" title="王立军继任者谷凤杰4次获监外执行 网民质疑  " alt="王立军继任者谷凤杰4次获监外执行 网民质疑  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/katety3035/ntdtv/blob/master/gb/2020/10/05/a102956143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专访程晓农：2020美国大选为何如此重要？ >-009fcc?logoWidth=1" title="专访程晓农：2020美国大选为何如此重要？  " alt="专访程晓农：2020美国大选为何如此重要？  "></a></p>
+<p><a href="https://github.com/katety3035/djy/blob/master/gb/20/10/4/n12452574.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“死神无人机”剑指中共           >-009fcc?logoWidth=1" title="“死神无人机”剑指中共  " alt="“死神无人机”剑指中共  "></a></p>
 <p><a href="https://github.com/katety3035/ntdtv/blob/master/gb/2020/10/04/a102955619.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共定点投毒害川普？/王岐山大管家落马 清洗>-009fcc?logoWidth=1" title="中共定点投毒害川普？/王岐山大管家落马 清洗刘少奇第二？  " alt="中共定点投毒害川普？/王岐山大管家落马 清洗刘少奇第二？  "></a></p>
 <p><a href="https://github.com/katety3035/djy/blob/master/gb/20/10/4/n12452676.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前中共外交官曾担任TikTok内容审查主管 >-009fcc?logoWidth=1" title="前中共外交官曾担任TikTok内容审查主管  " alt="前中共外交官曾担任TikTok内容审查主管  "></a></p>
 <p><a href="https://github.com/katety3035/djy/blob/master/gb/20/10/4/n12452666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张慧东：川普染疫成中共最大梦魇       >-009fcc?logoWidth=1" title="张慧东：川普染疫成中共最大梦魇  " alt="张慧东：川普染疫成中共最大梦魇  "></a></p>
@@ -48,6 +49,7 @@
 <p><a href="https://github.com/katety3035/djy/blob/master/gb/20/10/4/n12452909.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共给外国疫苗“友情价” 本国拟定高价超出2>-009fcc?logoWidth=1" title="中共给外国疫苗“友情价” 本国拟定高价超出20倍  " alt="中共给外国疫苗“友情价” 本国拟定高价超出20倍  "></a></p>
 <p><a href="https://github.com/katety3035/djy/blob/master/gb/20/10/4/n12452480.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：拜登未停止竞选活动 泄漏真实民调   >-009fcc?logoWidth=1" title="杨威：拜登未停止竞选活动 泄漏真实民调  " alt="杨威：拜登未停止竞选活动 泄漏真实民调  "></a></p>
 <p><a href="https://github.com/katety3035/ntdtv/blob/master/gb/2020/10/05/a102956115.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国政要纷纷抨击中共：必须对川普染疫担责  >-009fcc?logoWidth=1" title="美国政要纷纷抨击中共：必须对川普染疫担责  " alt="美国政要纷纷抨击中共：必须对川普染疫担责  "></a></p>
+<p><a href="https://github.com/katety3035/ntdtv/blob/master/gb/2020/10/05/a102956151.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普最快5日回白宫 表示给众人一个“惊喜” >-009fcc?logoWidth=1" title="川普最快5日回白宫 表示给众人一个“惊喜”  " alt="川普最快5日回白宫 表示给众人一个“惊喜”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -259,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://katety3035.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?uvvlv">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?dpucu">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?oaaah">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?byieb">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?bxoky">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?qvgyj">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?xrgce">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?knryr">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,11 +487,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/katety3035/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/katety3035/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/katety3035/www/master/index.html?s">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/katety3035/www/blob/master/README.md?l#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/katety3035/www/blob/master/README.md?x%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/yybyy" title="分享本平台"></img>
-<br><a href="https://git.io/zuuuu">https://git.io/zuuuu</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/yybyy">https://is.gd/yybyy</a>
+<p><strong><a href="https://github.com/katety3035/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/katety3035/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/katety3035/www/master/index.html?n">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/katety3035/www/blob/master/README.md?j#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/katety3035/www/blob/master/README.md?o%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/tgggg" title="分享本平台"></img>
+<br><a href="https://git.io/8bbbb">https://git.io/8bbbb</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/tgggg">https://is.gd/tgggg</a>
 <br>
 <br>
-<h3><a href="https://katety3035.github.io/vd/qr/qr2/#https://github.com/katety3035/www/blob/master/README.md?j#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://katety3035.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/yybyy%22%2C%22https://is.gd/nnnn9%22%2C%22https://is.gd/tzzzz%22%2C%22https://is.gd/rrbrr%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://katety3035.github.io/vd/qr/qr2/#https://github.com/katety3035/www/blob/master/README.md?s#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://katety3035.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/tgggg%22%2C%22https://is.gd/ttttm%22%2C%22https://is.gd/xeeee%22%2C%22https://is.gd/mgggg%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
