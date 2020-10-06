@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/whhoub340/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/whhoub340/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/hdddd">git.io/hdddd</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ikkkk">git.io/ikkkk</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,16 +39,14 @@
 <p><a href="https://github.com/whhoub340/djy/blob/master/gb/20/10/5/n12455076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专访程晓农：美国大选民调为何不可信（上）  >-009fcc?logoWidth=1" title="专访程晓农：美国大选民调为何不可信（上）  " alt="专访程晓农：美国大选民调为何不可信（上）  "></a></p>
 <p><a href="https://github.com/whhoub340/djy/blob/master/gb/20/10/6/n12456950.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京住宅销售周期达22个月 半数新盘打折  >-009fcc?logoWidth=1" title="北京住宅销售周期达22个月 半数新盘打折  " alt="北京住宅销售周期达22个月 半数新盘打折  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/whhoub340/djy/blob/master/gb/20/10/6/n12456293.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/环北京地区房价普遍大跌           >-009fcc?logoWidth=1" title="环北京地区房价普遍大跌  " alt="环北京地区房价普遍大跌  "></a></p>
 <p><a href="https://github.com/whhoub340/ntdtv/blob/master/gb/2020/10/05/a102956137.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班克斯：中共宣传报纸 为何出现在美国会？全球>-009fcc?logoWidth=1" title="班克斯：中共宣传报纸 为何出现在美国会？全球遭难 中共应担责  " alt="班克斯：中共宣传报纸 为何出现在美国会？全球遭难 中共应担责  "></a></p>
-<p><a href="https://github.com/whhoub340/djy/blob/master/gb/20/10/6/n12456705.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：川普粉丝打碎假新闻、打脸中共     >-009fcc?logoWidth=1" title="田云：川普粉丝打碎假新闻、打脸中共  " alt="田云：川普粉丝打碎假新闻、打脸中共  "></a></p>
 <p><a href="https://github.com/whhoub340/ntdtv/blob/master/gb/2020/10/06/a102957042.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨建利因党员身份移民被拒 美对中共或有更大行>-009fcc?logoWidth=1" title="杨建利因党员身份移民被拒 美对中共或有更大行动  " alt="杨建利因党员身份移民被拒 美对中共或有更大行动  "></a></p>
-<p><a href="https://github.com/whhoub340/djy/blob/master/gb/20/10/5/n12454915.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河北取款5万需预约 为规定额度一半     >-009fcc?logoWidth=1" title="河北取款5万需预约 为规定额度一半  " alt="河北取款5万需预约 为规定额度一半  "></a></p>
 <p><a href="https://github.com/whhoub340/djy/blob/master/gb/20/10/6/n12456516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：中共内斗——习近平的接班人问题    >-009fcc?logoWidth=1" title="王赫：中共内斗——习近平的接班人问题  " alt="王赫：中共内斗——习近平的接班人问题  "></a></p>
+<p><a href="https://github.com/whhoub340/djy/blob/master/gb/20/10/6/n12457049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/事故频发 山西吉林两省政府负责人被约谈   >-009fcc?logoWidth=1" title="事故频发 山西吉林两省政府负责人被约谈  " alt="事故频发 山西吉林两省政府负责人被约谈  "></a></p>
 <p><a href="https://github.com/whhoub340/ntdtv/blob/master/gb/2020/10/06/a102957081.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国禁止共产党员移民 中共高层震动最大   >-009fcc?logoWidth=1" title="美国禁止共产党员移民 中共高层震动最大  " alt="美国禁止共产党员移民 中共高层震动最大  "></a></p>
 <p><a href="https://github.com/whhoub340/ntdtv/blob/master/gb/2020/10/05/a102956705.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进替华春莹圆场：外交部说话只是给外人听 >-009fcc?logoWidth=1" title="胡锡进替华春莹圆场：外交部说话只是给外人听  " alt="胡锡进替华春莹圆场：外交部说话只是给外人听  "></a></p>
 <p><a href="https://github.com/whhoub340/djy/blob/master/gb/20/10/5/n12455500.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/受经济下滑影响 环北京燕郊房价暴跌高达71 >-009fcc?logoWidth=1" title="受经济下滑影响 环北京燕郊房价暴跌高达71  " alt="受经济下滑影响 环北京燕郊房价暴跌高达71  "></a></p>
-<p><a href="https://github.com/whhoub340/djy/blob/master/gb/20/10/6/n12456550.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国会报告示警：投资中企有三大风险     >-009fcc?logoWidth=1" title="美国会报告示警：投资中企有三大风险  " alt="美国会报告示警：投资中企有三大风险  "></a></p>
+<p><a href="https://github.com/whhoub340/djy/blob/master/gb/20/10/6/n12456293.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/环北京地区房价普遍大跌           >-009fcc?logoWidth=1" title="环北京地区房价普遍大跌  " alt="环北京地区房价普遍大跌  "></a></p>
 <p><a href="https://github.com/whhoub340/ntdtv/blob/master/gb/2020/10/05/a102956725.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：联合盟友 对中共迫害宗教信仰追责  >-009fcc?logoWidth=1" title="蓬佩奥：联合盟友 对中共迫害宗教信仰追责  " alt="蓬佩奥：联合盟友 对中共迫害宗教信仰追责  "></a></p>
 <p><a href="https://github.com/whhoub340/ntdtv/blob/master/gb/2020/10/05/a102956772.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国内外价格相差37倍 中共卖疫苗被批“卖国”>-009fcc?logoWidth=1" title="国内外价格相差37倍 中共卖疫苗被批“卖国”  " alt="国内外价格相差37倍 中共卖疫苗被批“卖国”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -262,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://whhoub340.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?btsls">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?gkklp">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?zkgdc">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?tqswg">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -308,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?fbyld">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ibomp">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?wudzt">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?disad">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -490,9 +488,9 @@
 <div align="center">
 <p><strong><a href="https://github.com/whhoub340/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/whhoub340/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/whhoub340/www/master/index.html?z">高速版平台</a></strong></p>
 手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/whhoub340/www/blob/master/README.md?c#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/whhoub340/www/blob/master/README.md?k%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ppppd" title="分享本平台"></img>
-<br><a href="https://git.io/hdddd">https://git.io/hdddd</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/ppppd">https://is.gd/ppppd</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/whhoub340/www/blob/master/README.md?p%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/snnnn" title="分享本平台"></img>
+<br><a href="https://git.io/ikkkk">https://git.io/ikkkk</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/snnnn">https://is.gd/snnnn</a>
 <br>
 <br>
-<h3><a href="https://whhoub340.github.io/vd/qr/qr2/#https://github.com/whhoub340/www/blob/master/README.md?q#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://whhoub340.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/ppppd%22%2C%22https://is.gd/r5555%22%2C%22https://is.gd/yybyy%22%2C%22https://is.gd/t7777%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://whhoub340.github.io/vd/qr/qr2/#https://github.com/whhoub340/www/blob/master/README.md?o#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://whhoub340.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/snnnn%22%2C%22https://is.gd/n8888%22%2C%22https://is.gd/yyayy%22%2C%22https://is.gd/s3333%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
