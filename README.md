@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/uemdlg368/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/uemdlg368/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/69999">git.io/69999</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/axxxx">git.io/axxxx</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/06/a102957469.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/十一旅游收入暴跌逾3成 党媒创新词“报喜” >-009fcc?logoWidth=1" title="十一旅游收入暴跌逾3成 党媒创新词“报喜”  " alt="十一旅游收入暴跌逾3成 党媒创新词“报喜”  "></a></p>
 <p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/06/a102957200.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国FBI解密文件证实：有巨型外星人存在  >-009fcc?logoWidth=1" title="美国FBI解密文件证实：有巨型外星人存在  " alt="美国FBI解密文件证实：有巨型外星人存在  "></a></p>
 <p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/06/a102957168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普说出院遇奇迹/川普会立即复仇中共吗？  >-009fcc?logoWidth=1" title="川普说出院遇奇迹/川普会立即复仇中共吗？  " alt="川普说出院遇奇迹/川普会立即复仇中共吗？  "></a></p>
 <p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/06/a102957185.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒：习近平问候川普做法矛盾 进退失据   >-009fcc?logoWidth=1" title="外媒：习近平问候川普做法矛盾 进退失据  " alt="外媒：习近平问候川普做法矛盾 进退失据  "></a></p>
 <p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/06/a102957148.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国十月惊奇连连 四件大事直指中共     >-009fcc?logoWidth=1" title="美国十月惊奇连连 四件大事直指中共  " alt="美国十月惊奇连连 四件大事直指中共  "></a></p>
 <p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/06/a102957036.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普归来！谁不高兴？在美中共权贵也悬了？  >-009fcc?logoWidth=1" title="川普归来！谁不高兴？在美中共权贵也悬了？  " alt="川普归来！谁不高兴？在美中共权贵也悬了？  "></a></p>
-<p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/06/a102956942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普出院助美股强势上涨 道琼大涨465点  >-009fcc?logoWidth=1" title="川普出院助美股强势上涨 道琼大涨465点  " alt="川普出院助美股强势上涨 道琼大涨465点  "></a></p>
+<p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/06/a102957586.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美高院裁决 南卡州邮寄选票需有证人签名   >-009fcc?logoWidth=1" title="美高院裁决 南卡州邮寄选票需有证人签名  " alt="美高院裁决 南卡州邮寄选票需有证人签名  "></a></p>
 <p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/06/a102957489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台国民党提《台美复交》决议案 立法院无异议通>-009fcc?logoWidth=1" title="台国民党提《台美复交》决议案 立法院无异议通过  " alt="台国民党提《台美复交》决议案 立法院无异议通过  "></a></p>
 <p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/06/a102957568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/久谈未果川普叫停纾困谈判 股市应声大跌   >-009fcc?logoWidth=1" title="久谈未果川普叫停纾困谈判 股市应声大跌  " alt="久谈未果川普叫停纾困谈判 股市应声大跌  "></a></p>
-<p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/06/a102957549.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美日澳印四方安全对话  联手对付中共    >-009fcc?logoWidth=1" title="美日澳印四方安全对话  联手对付中共  " alt="美日澳印四方安全对话  联手对付中共  "></a></p>
+<p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/06/a102957549.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美日澳印四方安全对话 联手对付中共     >-009fcc?logoWidth=1" title="美日澳印四方安全对话 联手对付中共  " alt="美日澳印四方安全对话 联手对付中共  "></a></p>
 <p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/06/a102957515.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹暗讽川普 网友反嘲中共特权      >-009fcc?logoWidth=1" title="华春莹暗讽川普 网友反嘲中共特权  " alt="华春莹暗讽川普 网友反嘲中共特权  "></a></p>
-<p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/06/a102957462.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普返白宫郑重敬军礼 “无论如何都会赢！” >-009fcc?logoWidth=1" title="川普返白宫郑重敬军礼 “无论如何都会赢！”  " alt="川普返白宫郑重敬军礼 “无论如何都会赢！”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/2/n12446632.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朝鲜首爆氢弹 中共内部报告曝光       >-009fcc?logoWidth=1" title="朝鲜首爆氢弹 中共内部报告曝光  " alt="朝鲜首爆氢弹 中共内部报告曝光  "></a></p>
 <p><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/6/n12457864.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/若中共攻台湾 蓬佩奥：美军不会坐视     >-009fcc?logoWidth=1" title="若中共攻台湾 蓬佩奥：美军不会坐视  " alt="若中共攻台湾 蓬佩奥：美军不会坐视  "></a></p>
@@ -261,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://uemdlg368.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?dsani">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?qsgtt">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?grzfd">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?pqhqg">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?xrvov">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?krlus">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?iwgfl">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?fxqow">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,11 +487,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/uemdlg368/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/uemdlg368/www/master/index.html?u">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uemdlg368/www/blob/master/README.md?a#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/uemdlg368/www/blob/master/README.md?a%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ugggg" title="分享本平台"></img>
-<br><a href="https://git.io/69999">https://git.io/69999</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/ugggg">https://is.gd/ugggg</a>
+<p><strong><a href="https://github.com/uemdlg368/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/uemdlg368/www/master/index.html?d">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uemdlg368/www/blob/master/README.md?y#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/uemdlg368/www/blob/master/README.md?t%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/zzzzm" title="分享本平台"></img>
+<br><a href="https://git.io/axxxx">https://git.io/axxxx</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/zzzzm">https://is.gd/zzzzm</a>
 <br>
 <br>
-<h3><a href="https://uemdlg368.github.io/vd/qr/qr2/#https://github.com/uemdlg368/www/blob/master/README.md?r#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://uemdlg368.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/ugggg%22%2C%22https://is.gd/sqqqq%22%2C%22https://is.gd/zzezz%22%2C%22https://is.gd/zbbbb%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://uemdlg368.github.io/vd/qr/qr2/#https://github.com/uemdlg368/www/blob/master/README.md?s#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://uemdlg368.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/zzzzm%22%2C%22https://is.gd/zcccc%22%2C%22https://is.gd/rrsrr%22%2C%22https://is.gd/ttttf%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
