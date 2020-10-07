@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/uemdlg368/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/uemdlg368/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/g9999">git.io/g9999</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cccccc">git.io/cccccc</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/07/a102957668.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/移民顾问：隐瞒共产党身份的后果和豁免的条件 >-009fcc?logoWidth=1" title="移民顾问：隐瞒共产党身份的后果和豁免的条件  " alt="移民顾问：隐瞒共产党身份的后果和豁免的条件  "></a></p>
 <p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/06/a102957243.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/原凤凰网记者：胡锡进儿子移民北美 成同僚笑柄>-009fcc?logoWidth=1" title="原凤凰网记者：胡锡进儿子移民北美 成同僚笑柄  " alt="原凤凰网记者：胡锡进儿子移民北美 成同僚笑柄  "></a></p>
 <p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/07/a102957659.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦证实：母亲遭中共逮捕         >-009fcc?logoWidth=1" title="闫丽梦证实：母亲遭中共逮捕  " alt="闫丽梦证实：母亲遭中共逮捕  "></a></p>
+<p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/05/a102956083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫医生公布：川普出院后的第一份健康声明  >-009fcc?logoWidth=1" title="白宫医生公布：川普出院后的第一份健康声明  " alt="白宫医生公布：川普出院后的第一份健康声明  "></a></p>
+<p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/07/a102957890.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重磅：川普下令解密通俄门、电邮门所有文件  >-009fcc?logoWidth=1" title="重磅：川普下令解密通俄门、电邮门所有文件  " alt="重磅：川普下令解密通俄门、电邮门所有文件  "></a></p>
 <p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/07/a102957886.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山西吉林两省高层被约谈 重大事故至少酿72死>-009fcc?logoWidth=1" title="山西吉林两省高层被约谈 重大事故至少酿72死  " alt="山西吉林两省高层被约谈 重大事故至少酿72死  "></a></p>
 <p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/07/a102957846.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战狼、疫情讨人嫌 民调：多国对华恶感飙升  >-009fcc?logoWidth=1" title="战狼、疫情讨人嫌 民调：多国对华恶感飙升  " alt="战狼、疫情讨人嫌 民调：多国对华恶感飙升  "></a></p>
 <p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/07/a102957836.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“极度危险”戴尔塔逼近墨西哥湾 游客居民疏散>-009fcc?logoWidth=1" title="“极度危险”戴尔塔逼近墨西哥湾 游客居民疏散  " alt="“极度危险”戴尔塔逼近墨西哥湾 游客居民疏散  "></a></p>
-<p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/07/a102957815.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：若中共攻台 美军不会袖手旁观    >-009fcc?logoWidth=1" title="蓬佩奥：若中共攻台 美军不会袖手旁观  " alt="蓬佩奥：若中共攻台 美军不会袖手旁观  "></a></p>
-<p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/07/a102957808.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惊闻邻居惨叫 67岁柔道黑带奶奶痛打歹徒一顿>-009fcc?logoWidth=1" title="惊闻邻居惨叫 67岁柔道黑带奶奶痛打歹徒一顿  " alt="惊闻邻居惨叫 67岁柔道黑带奶奶痛打歹徒一顿  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/7/n12459141.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朱利安尼：中共刻意让病毒破坏世界 形同战争 >-009fcc?logoWidth=1" title="朱利安尼：中共刻意让病毒破坏世界 形同战争  " alt="朱利安尼：中共刻意让病毒破坏世界 形同战争  "></a></p>
 <p><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/6/n12458021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共党媒对川普迅速出院很失望     >-009fcc?logoWidth=1" title="钟原：中共党媒对川普迅速出院很失望  " alt="钟原：中共党媒对川普迅速出院很失望  "></a></p>
@@ -40,16 +40,15 @@
 <p><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/7/n12458687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：华春莹暗讽川普搞特权反被网友打脸   >-009fcc?logoWidth=1" title="袁斌：华春莹暗讽川普搞特权反被网友打脸  " alt="袁斌：华春莹暗讽川普搞特权反被网友打脸  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/6/n12458120.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥四方会谈神秘 测中共底线？      >-009fcc?logoWidth=1" title="蓬佩奥四方会谈神秘 测中共底线？  " alt="蓬佩奥四方会谈神秘 测中共底线？  "></a></p>
-<p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/07/a102957784.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共求世卫帮忙 推广中共病毒疫苗引担忧   >-009fcc?logoWidth=1" title="中共求世卫帮忙 推广中共病毒疫苗引担忧  " alt="中共求世卫帮忙 推广中共病毒疫苗引担忧  "></a></p>
-<p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/07/a102957763.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/移民律师：想移民美国 就要尽快退党     >-009fcc?logoWidth=1" title="移民律师：想移民美国 就要尽快退党  " alt="移民律师：想移民美国 就要尽快退党  "></a></p>
+<p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/07/a102957815.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：若中共攻台 美军不会袖手旁观    >-009fcc?logoWidth=1" title="蓬佩奥：若中共攻台 美军不会袖手旁观  " alt="蓬佩奥：若中共攻台 美军不会袖手旁观  "></a></p>
 <p><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/6/n12458257.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朱利安尼：中共病毒=Covid19     >-009fcc?logoWidth=1" title="朱利安尼：中共病毒=Covid19  " alt="朱利安尼：中共病毒=Covid19  "></a></p>
 <p><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/6/n12457864.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/若中共攻台湾 蓬佩奥：美军不会坐视     >-009fcc?logoWidth=1" title="若中共攻台湾 蓬佩奥：美军不会坐视  " alt="若中共攻台湾 蓬佩奥：美军不会坐视  "></a></p>
-<p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/06/a102957528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国大选已近400万人投票 投票率或创新高 >-009fcc?logoWidth=1" title="美国大选已近400万人投票 投票率或创新高  " alt="美国大选已近400万人投票 投票率或创新高  "></a></p>
-<p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/06/a102957200.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国FBI解密文件证实：有巨型外星人存在  >-009fcc?logoWidth=1" title="美国FBI解密文件证实：有巨型外星人存在  " alt="美国FBI解密文件证实：有巨型外星人存在  "></a></p>
+<p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/07/a102957784.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共求世卫帮忙 推广中共病毒疫苗引担忧   >-009fcc?logoWidth=1" title="中共求世卫帮忙 推广中共病毒疫苗引担忧  " alt="中共求世卫帮忙 推广中共病毒疫苗引担忧  "></a></p>
+<p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/07/a102957763.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/移民律师：想移民美国 就要尽快退党     >-009fcc?logoWidth=1" title="移民律师：想移民美国 就要尽快退党  " alt="移民律师：想移民美国 就要尽快退党  "></a></p>
 <p><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/6/n12458058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普出院 左媒批评 中共恐慌        >-009fcc?logoWidth=1" title="川普出院 左媒批评 中共恐慌  " alt="川普出院 左媒批评 中共恐慌  "></a></p>
 <p><a href="https://github.com/uemdlg368/djy/blob/master/gb/20/10/6/n12457692.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进骂批评外交部言论的中国人“贱”惹众怒 >-009fcc?logoWidth=1" title="胡锡进骂批评外交部言论的中国人“贱”惹众怒  " alt="胡锡进骂批评外交部言论的中国人“贱”惹众怒  "></a></p>
-<p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/07/a102957642.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/7亿人感染病毒，WHO语出惊人/四方会谈卖关>-009fcc?logoWidth=1" title="7亿人感染病毒，WHO语出惊人/四方会谈卖关子？蓬佩奥:回国后再说  " alt="7亿人感染病毒，WHO语出惊人/四方会谈卖关子？蓬佩奥:回国后再说  "></a></p>
-<p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/07/a102957673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫医生公布：川普出院后的第一份健康声明  >-009fcc?logoWidth=1" title="白宫医生公布：川普出院后的第一份健康声明  " alt="白宫医生公布：川普出院后的第一份健康声明  "></a></p>
+<p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/06/a102957528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国大选已近400万人投票 投票率或创新高 >-009fcc?logoWidth=1" title="美国大选已近400万人投票 投票率或创新高  " alt="美国大选已近400万人投票 投票率或创新高  "></a></p>
+<p><a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/2020/10/06/a102957200.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国FBI解密文件证实：有巨型外星人存在  >-009fcc?logoWidth=1" title="美国FBI解密文件证实：有巨型外星人存在  " alt="美国FBI解密文件证实：有巨型外星人存在  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -261,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://uemdlg368.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?rzota">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?kjkld">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?cacbg">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?lbmlv">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?dinjc">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?xgilj">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ycugs">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?oncyg">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,11 +486,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/uemdlg368/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/uemdlg368/www/master/index.html?e">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uemdlg368/www/blob/master/README.md?w#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/uemdlg368/www/blob/master/README.md?o%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ppcpp" title="分享本平台"></img>
-<br><a href="https://git.io/g9999">https://git.io/g9999</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/ppcpp">https://is.gd/ppcpp</a>
+<p><strong><a href="https://github.com/uemdlg368/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/uemdlg368/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/uemdlg368/www/master/index.html?w">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/uemdlg368/www/blob/master/README.md?u#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/uemdlg368/www/blob/master/README.md?p%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/xbbbb" title="分享本平台"></img>
+<br><a href="https://git.io/cccccc">https://git.io/cccccc</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/xbbbb">https://is.gd/xbbbb</a>
 <br>
 <br>
-<h3><a href="https://uemdlg368.github.io/vd/qr/qr2/#https://github.com/uemdlg368/www/blob/master/README.md?p#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://uemdlg368.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/ppcpp%22%2C%22https://is.gd/rrcrr%22%2C%22https://is.gd/nnnnh%22%2C%22https://is.gd/rnnnn%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://uemdlg368.github.io/vd/qr/qr2/#https://github.com/uemdlg368/www/blob/master/README.md?e#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://uemdlg368.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/xbbbb%22%2C%22https://is.gd/mmmmf%22%2C%22https://is.gd/yyyyf%22%2C%22https://is.gd/zjjjj%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
