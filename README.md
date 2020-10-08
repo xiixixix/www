@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/mvcdye373/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mvcdye373/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yqqqq">git.io/yqqqq</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/pzzzz">git.io/pzzzz</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/mvcdye373/ntdtv/blob/master/gb/2020/10/08/a102958367.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大纪元独家揭秘：中共对韩国“欲擒故纵”   >-009fcc?logoWidth=1" title="大纪元独家揭秘：中共对韩国“欲擒故纵”  " alt="大纪元独家揭秘：中共对韩国“欲擒故纵”  "></a></p>
 <p><a href="https://github.com/mvcdye373/ntdtv/blob/master/gb/2020/10/08/a102958355.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普谈染疫：我因祸得福 中共将付巨大代价  >-009fcc?logoWidth=1" title="川普谈染疫：我因祸得福 中共将付巨大代价  " alt="川普谈染疫：我因祸得福 中共将付巨大代价  "></a></p>
 <p><a href="https://github.com/mvcdye373/ntdtv/blob/master/gb/2020/09/30/a102952537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬卿一句话 美军护台定居          >-009fcc?logoWidth=1" title="蓬卿一句话 美军护台定居  " alt="蓬卿一句话 美军护台定居  "></a></p>
 <p><a href="https://github.com/mvcdye373/ntdtv/blob/master/gb/2020/10/07/a102958228.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台《国安法》修正案一读通过 挥五星旗可罚5万>-009fcc?logoWidth=1" title="台《国安法》修正案一读通过 挥五星旗可罚5万  " alt="台《国安法》修正案一读通过 挥五星旗可罚5万  "></a></p>
 <p><a href="https://github.com/mvcdye373/ntdtv/blob/master/gb/2020/10/07/a102958199.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“国师”再发狂言：中国GDP十年后超美 >-009fcc?logoWidth=1" title="中共“国师”再发狂言：中国GDP十年后超美  " alt="中共“国师”再发狂言：中国GDP十年后超美  "></a></p>
 <p><a href="https://github.com/mvcdye373/ntdtv/blob/master/gb/2020/10/07/a102958169.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/iPhone京东销量居首远超华为 网友嘲“抵>-009fcc?logoWidth=1" title="iPhone京东销量居首远超华为 网友嘲“抵制美货”  " alt="iPhone京东销量居首远超华为 网友嘲“抵制美货”  "></a></p>
-<p><a href="https://github.com/mvcdye373/ntdtv/blob/master/gb/2020/10/05/a102956696.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020美国大选 副总统候选人辩论会（中文同>-009fcc?logoWidth=1" title="2020美国大选 副总统候选人辩论会（中文同声翻译）  " alt="2020美国大选 副总统候选人辩论会（中文同声翻译）  "></a></p>
 <p><a href="https://github.com/mvcdye373/ntdtv/blob/master/gb/2020/10/08/a102958394.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/彭斯：拜登阵营剽窃川普的防疫政策      >-009fcc?logoWidth=1" title="彭斯：拜登阵营剽窃川普的防疫政策  " alt="彭斯：拜登阵营剽窃川普的防疫政策  "></a></p>
 <p><a href="https://github.com/mvcdye373/ntdtv/blob/master/gb/2020/10/08/a102958334.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/密歇根高院废州长限制令 川普欢呼“大胜”  >-009fcc?logoWidth=1" title="密歇根高院废州长限制令 川普欢呼“大胜”  " alt="密歇根高院废州长限制令 川普欢呼“大胜”  "></a></p>
 <p><a href="https://github.com/mvcdye373/ntdtv/blob/master/gb/2020/10/05/a102956083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒从白宫转向 攻陷五角大楼      >-009fcc?logoWidth=1" title="中共病毒从白宫转向 攻陷五角大楼  " alt="中共病毒从白宫转向 攻陷五角大楼  "></a></p>
@@ -40,15 +40,14 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/mvcdye373/ntdtv/blob/master/gb/2020/10/07/a102958139.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞：习近平王岐山关系微妙 习既用王又防他 >-009fcc?logoWidth=1" title="蔡霞：习近平王岐山关系微妙 习既用王又防他  " alt="蔡霞：习近平王岐山关系微妙 习既用王又防他  "></a></p>
 <p><a href="https://github.com/mvcdye373/ntdtv/blob/master/gb/2020/10/08/a102958354.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王岐山大秘落马，习近平会否兔死狗烹？    >-009fcc?logoWidth=1" title="王岐山大秘落马，习近平会否兔死狗烹？  " alt="王岐山大秘落马，习近平会否兔死狗烹？  "></a></p>
-<p><a href="https://github.com/mvcdye373/ntdtv/blob/master/gb/2020/10/07/a102958098.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五中前两文件 反映习的野心和恐惧      >-009fcc?logoWidth=1" title="五中前两文件 反映习的野心和恐惧  " alt="五中前两文件 反映习的野心和恐惧  "></a></p>
 <p><a href="https://github.com/mvcdye373/djy/blob/master/gb/20/10/7/n12459141.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朱利安尼：中共刻意让病毒破坏世界 形同战争 >-009fcc?logoWidth=1" title="朱利安尼：中共刻意让病毒破坏世界 形同战争  " alt="朱利安尼：中共刻意让病毒破坏世界 形同战争  "></a></p>
 <p><a href="https://github.com/mvcdye373/djy/blob/master/gb/20/10/7/n12459444.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前朝鲜驻意大利代理大使已投奔韩国      >-009fcc?logoWidth=1" title="前朝鲜驻意大利代理大使已投奔韩国  " alt="前朝鲜驻意大利代理大使已投奔韩国  "></a></p>
+<p><a href="https://github.com/mvcdye373/ntdtv/blob/master/gb/2020/10/07/a102958098.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五中前两文件 反映习的野心和恐惧      >-009fcc?logoWidth=1" title="五中前两文件 反映习的野心和恐惧  " alt="五中前两文件 反映习的野心和恐惧  "></a></p>
 <p><a href="https://github.com/mvcdye373/ntdtv/blob/master/gb/2020/10/07/a102957753.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/联合国大会火力齐开 39国联合声明谴责中共 >-009fcc?logoWidth=1" title="联合国大会火力齐开 39国联合声明谴责中共  " alt="联合国大会火力齐开 39国联合声明谴责中共  "></a></p>
-<p><a href="https://github.com/mvcdye373/ntdtv/blob/master/gb/2020/10/07/a102958048.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普抛民主党黑料 调查防疫专家福西     >-009fcc?logoWidth=1" title="川普抛民主党黑料 调查防疫专家福西  " alt="川普抛民主党黑料 调查防疫专家福西  "></a></p>
 <p><a href="https://github.com/mvcdye373/djy/blob/master/gb/20/10/7/n12458649.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普战胜病毒出院 中共很无奈        >-009fcc?logoWidth=1" title="川普战胜病毒出院 中共很无奈  " alt="川普战胜病毒出院 中共很无奈  "></a></p>
 <p><a href="https://github.com/mvcdye373/djy/blob/master/gb/20/10/6/n12457762.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国华人：希望川普加速和中共脱钩      >-009fcc?logoWidth=1" title="美国华人：希望川普加速和中共脱钩  " alt="美国华人：希望川普加速和中共脱钩  "></a></p>
+<p><a href="https://github.com/mvcdye373/ntdtv/blob/master/gb/2020/10/07/a102958048.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普抛民主党黑料 调查防疫专家福西     >-009fcc?logoWidth=1" title="川普抛民主党黑料 调查防疫专家福西  " alt="川普抛民主党黑料 调查防疫专家福西  "></a></p>
 <p><a href="https://github.com/mvcdye373/ntdtv/blob/master/gb/2020/10/07/a102958060.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亲历社会主义苦难 原东德人揭其本质     >-009fcc?logoWidth=1" title="亲历社会主义苦难 原东德人揭其本质  " alt="亲历社会主义苦难 原东德人揭其本质  "></a></p>
-<p><a href="https://github.com/mvcdye373/ntdtv/blob/master/gb/2020/10/07/a102958030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民调：川普缅因州第2选区领先8 或决定大选胜>-009fcc?logoWidth=1" title="民调：川普缅因州第2选区领先8 或决定大选胜负  " alt="民调：川普缅因州第2选区领先8 或决定大选胜负  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -260,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://mvcdye373.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?qeavf">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?dzcpg">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?iabea">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?usprw">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?rauea">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ctdhu">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?bbkqo">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?srwnn">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,10 +486,10 @@
 <hr>
 <div align="center">
 <p><strong><a href="https://github.com/mvcdye373/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mvcdye373/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mvcdye373/www/master/index.html?x">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mvcdye373/www/blob/master/README.md?u#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/mvcdye373/www/blob/master/README.md?g%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/u7777" title="分享本平台"></img>
-<br><a href="https://git.io/yqqqq">https://git.io/yqqqq</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/u7777">https://is.gd/u7777</a>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mvcdye373/www/blob/master/README.md?s#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/mvcdye373/www/blob/master/README.md?k%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/nnnnu" title="分享本平台"></img>
+<br><a href="https://git.io/pzzzz">https://git.io/pzzzz</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/nnnnu">https://is.gd/nnnnu</a>
 <br>
 <br>
-<h3><a href="https://mvcdye373.github.io/vd/qr/qr2/#https://github.com/mvcdye373/www/blob/master/README.md?g#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://mvcdye373.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/u7777%22%2C%22https://is.gd/siiii%22%2C%22https://is.gd/pjjjj%22%2C%22https://is.gd/yyyyt%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://mvcdye373.github.io/vd/qr/qr2/#https://github.com/mvcdye373/www/blob/master/README.md?h#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://mvcdye373.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/nnnnu%22%2C%22https://is.gd/uuuue%22%2C%22https://is.gd/uuruu%22%2C%22https://is.gd/yyyye%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
