@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ryrnnu318/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ryrnnu318/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ayyyy">git.io/ayyyy</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ghhhh">git.io/ghhhh</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ryrnnu318/ntdtv/blob/master/gb/2020/10/08/a102958367.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大纪元独家揭秘：中共对韩国“欲擒故纵”   >-009fcc?logoWidth=1" title="大纪元独家揭秘：中共对韩国“欲擒故纵”  " alt="大纪元独家揭秘：中共对韩国“欲擒故纵”  "></a></p>
 <p><a href="https://github.com/ryrnnu318/ntdtv/blob/master/gb/2020/10/08/a102958355.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普谈染疫：我因祸得福 中共将付巨大代价  >-009fcc?logoWidth=1" title="川普谈染疫：我因祸得福 中共将付巨大代价  " alt="川普谈染疫：我因祸得福 中共将付巨大代价  "></a></p>
 <p><a href="https://github.com/ryrnnu318/ntdtv/blob/master/gb/2020/09/30/a102952537.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬卿一句话 美军护台定居          >-009fcc?logoWidth=1" title="蓬卿一句话 美军护台定居  " alt="蓬卿一句话 美军护台定居  "></a></p>
+<p><a href="https://github.com/ryrnnu318/ntdtv/blob/master/gb/2020/10/08/a102958653.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/彭斯副总统辩论表现亮眼 9题赢7题     >-009fcc?logoWidth=1" title="彭斯副总统辩论表现亮眼 9题赢7题  " alt="彭斯副总统辩论表现亮眼 9题赢7题  "></a></p>
 <p><a href="https://github.com/ryrnnu318/ntdtv/blob/master/gb/2020/10/08/a102958598.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/俄野火延烧弹药库 7.5万吨弹药大爆炸(视频>-009fcc?logoWidth=1" title="俄野火延烧弹药库 7.5万吨弹药大爆炸(视频)  " alt="俄野火延烧弹药库 7.5万吨弹药大爆炸(视频)  "></a></p>
 <p><a href="https://github.com/ryrnnu318/ntdtv/blob/master/gb/2020/10/08/a102958588.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/男子沙滩误踩%3F%3F鱼 12厘米毒刺入小腿血流如>-009fcc?logoWidth=1" title="男子沙滩误踩??鱼 12厘米毒刺入小腿血流如柱  " alt="男子沙滩误踩??鱼 12厘米毒刺入小腿血流如柱  "></a></p>
 <p><a href="https://github.com/ryrnnu318/ntdtv/blob/master/gb/2020/10/08/a102958524.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/联合国大会较量内幕：39国抱团 挫败战狼威胁>-009fcc?logoWidth=1" title="联合国大会较量内幕：39国抱团 挫败战狼威胁  " alt="联合国大会较量内幕：39国抱团 挫败战狼威胁  "></a></p>
 <p><a href="https://github.com/ryrnnu318/ntdtv/blob/master/gb/2020/10/08/a102958447.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/彭斯：拜登对中共卑躬屈膝 川普将让美国腾飞 >-009fcc?logoWidth=1" title="彭斯：拜登对中共卑躬屈膝 川普将让美国腾飞  " alt="彭斯：拜登对中共卑躬屈膝 川普将让美国腾飞  "></a></p>
-<p><a href="https://github.com/ryrnnu318/ntdtv/blob/master/gb/2020/10/08/a102958479.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美副总统辩论关键议题 彭斯：不愿看到信仰攻击>-009fcc?logoWidth=1" title="美副总统辩论关键议题 彭斯：不愿看到信仰攻击  " alt="美副总统辩论关键议题 彭斯：不愿看到信仰攻击  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ryrnnu318/djy/blob/master/gb/20/10/7/n12460216.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥台海表态 习武统窗口期被废      >-009fcc?logoWidth=1" title="蓬佩奥台海表态 习武统窗口期被废  " alt="蓬佩奥台海表态 习武统窗口期被废  "></a></p>
 <p><a href="https://github.com/ryrnnu318/djy/blob/master/gb/20/10/7/n12460179.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共军机被驱离罕见喊话 专家：欲把台海内海化>-009fcc?logoWidth=1" title="中共军机被驱离罕见喊话 专家：欲把台海内海化  " alt="中共军机被驱离罕见喊话 专家：欲把台海内海化  "></a></p>
@@ -40,6 +40,7 @@
 <p><a href="https://github.com/ryrnnu318/djy/blob/master/gb/20/10/7/n12460274.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/腾讯中秋免费送华为手机 员工纷纷网上出售  >-009fcc?logoWidth=1" title="腾讯中秋免费送华为手机 员工纷纷网上出售  " alt="腾讯中秋免费送华为手机 员工纷纷网上出售  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ryrnnu318/djy/blob/master/gb/20/10/8/n12461366.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/彭斯辩论轰拜登中共 习打台有顾虑      >-009fcc?logoWidth=1" title="彭斯辩论轰拜登中共 习打台有顾虑  " alt="彭斯辩论轰拜登中共 习打台有顾虑  "></a></p>
+<p><a href="https://github.com/ryrnnu318/ntdtv/blob/master/gb/2020/10/08/a102958353.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“通俄门”黑幕惊天，奥巴马希拉里悬了/拜彭斯>-009fcc?logoWidth=1" title="“通俄门”黑幕惊天，奥巴马希拉里悬了/拜彭斯对决贺锦丽“史上精彩辩论”  " alt="“通俄门”黑幕惊天，奥巴马希拉里悬了/拜彭斯对决贺锦丽“史上精彩辩论”  "></a></p>
 <p><a href="https://github.com/ryrnnu318/ntdtv/blob/master/gb/2020/10/08/a102958512.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国视中共是敌是友？贺锦丽引用拜登“语录” >-009fcc?logoWidth=1" title="美国视中共是敌是友？贺锦丽引用拜登“语录”  " alt="美国视中共是敌是友？贺锦丽引用拜登“语录”  "></a></p>
 <p><a href="https://github.com/ryrnnu318/djy/blob/master/gb/20/10/7/n12459899.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/39国批中共迫害人权 中共威胁连署国代表被曝>-009fcc?logoWidth=1" title="39国批中共迫害人权 中共威胁连署国代表被曝光  " alt="39国批中共迫害人权 中共威胁连署国代表被曝光  "></a></p>
 <p><a href="https://github.com/ryrnnu318/djy/blob/master/gb/20/10/5/n12455352.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/左右交锋 美副总统候选人辩论会       >-009fcc?logoWidth=1" title="左右交锋 美副总统候选人辩论会  " alt="左右交锋 美副总统候选人辩论会  "></a></p>
@@ -259,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://ryrnnu318.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?eifcj">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?oknfo">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?lcjao">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ommbr">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?unmqz">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ugnmu">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?utppa">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?fnqyb">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,11 +486,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/ryrnnu318/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ryrnnu318/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ryrnnu318/www/master/index.html?r">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ryrnnu318/www/blob/master/README.md?c#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ryrnnu318/www/blob/master/README.md?r%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/pxxxx" title="分享本平台"></img>
-<br><a href="https://git.io/ayyyy">https://git.io/ayyyy</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/pxxxx">https://is.gd/pxxxx</a>
+<p><strong><a href="https://github.com/ryrnnu318/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ryrnnu318/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ryrnnu318/www/master/index.html?k">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ryrnnu318/www/blob/master/README.md?w#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ryrnnu318/www/blob/master/README.md?s%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ppdpp" title="分享本平台"></img>
+<br><a href="https://git.io/ghhhh">https://git.io/ghhhh</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/ppdpp">https://is.gd/ppdpp</a>
 <br>
 <br>
-<h3><a href="https://ryrnnu318.github.io/vd/qr/qr2/#https://github.com/ryrnnu318/www/blob/master/README.md?y#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ryrnnu318.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/pxxxx%22%2C%22https://is.gd/zzrzz%22%2C%22https://is.gd/xxxxj%22%2C%22https://is.gd/rrurr%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://ryrnnu318.github.io/vd/qr/qr2/#https://github.com/ryrnnu318/www/blob/master/README.md?h#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ryrnnu318.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/ppdpp%22%2C%22https://is.gd/xxxxm%22%2C%22https://is.gd/z5555%22%2C%22https://is.gd/nbbbb%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
