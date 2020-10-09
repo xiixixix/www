@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ikjcru315/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ikjcru315/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/gpppp">git.io/gpppp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/s3333">git.io/s3333</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/ikjcru315/ntdtv/blob/master/gb/2020/10/09/a102959325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国开始备战？各地建公物仓“过紧日子”   >-009fcc?logoWidth=1" title="中国开始备战？各地建公物仓“过紧日子”  " alt="中国开始备战？各地建公物仓“过紧日子”  "></a></p>
 <p><a href="https://github.com/ikjcru315/ntdtv/blob/master/gb/2020/10/09/a102959247.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美移民新规卡住中共党员 退党查询突增几十倍 >-009fcc?logoWidth=1" title="美移民新规卡住中共党员 退党查询突增几十倍  " alt="美移民新规卡住中共党员 退党查询突增几十倍  "></a></p>
 <p><a href="https://github.com/ikjcru315/ntdtv/blob/master/gb/2020/10/09/a102959810.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美智库：出征美台的中国网军 隶属中共“新军种>-009fcc?logoWidth=1" title="美智库：出征美台的中国网军 隶属中共“新军种”  " alt="美智库：出征美台的中国网军 隶属中共“新军种”  "></a></p>
+<p><a href="https://github.com/ikjcru315/ntdtv/blob/master/gb/2020/10/09/a102959833.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/敲诈也属重罪 纽约华男面临被驱逐出境    >-009fcc?logoWidth=1" title="敲诈也属重罪 纽约华男面临被驱逐出境  " alt="敲诈也属重罪 纽约华男面临被驱逐出境  "></a></p>
 <p><a href="https://github.com/ikjcru315/ntdtv/blob/master/gb/2020/10/09/a102959678.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海访民：没有大纪元等媒体关注 我早就没命了>-009fcc?logoWidth=1" title="上海访民：没有大纪元等媒体关注 我早就没命了  " alt="上海访民：没有大纪元等媒体关注 我早就没命了  "></a></p>
 <p><a href="https://github.com/ikjcru315/ntdtv/blob/master/gb/2020/10/09/a102959715.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：冀周六重返竞选活动 若连任升级美中关税>-009fcc?logoWidth=1" title="川普：冀周六重返竞选活动 若连任升级美中关税战  " alt="川普：冀周六重返竞选活动 若连任升级美中关税战  "></a></p>
 <p><a href="https://github.com/ikjcru315/ntdtv/blob/master/gb/2020/10/09/a102959701.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华人骗华人 两男子谎称买车 洛杉矶车主备胎被>-009fcc?logoWidth=1" title="华人骗华人 两男子谎称买车 洛杉矶车主备胎被偷  " alt="华人骗华人 两男子谎称买车 洛杉矶车主备胎被偷  "></a></p>
-<p><a href="https://github.com/ikjcru315/ntdtv/blob/master/gb/2020/10/09/a102959667.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普周六可公开活动 香港帝苑酒店爆群聚   >-009fcc?logoWidth=1" title="川普周六可公开活动 香港帝苑酒店爆群聚  " alt="川普周六可公开活动 香港帝苑酒店爆群聚  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ikjcru315/djy/blob/master/gb/20/10/8/n12463151.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：红二代四分五裂 习近平为谁保江山？ >-009fcc?logoWidth=1" title="王友群：红二代四分五裂 习近平为谁保江山？  " alt="王友群：红二代四分五裂 习近平为谁保江山？  "></a></p>
 <p><a href="https://github.com/ikjcru315/djy/blob/master/gb/20/10/8/n12462675.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共五中全会：习近平强推“内循环”     >-009fcc?logoWidth=1" title="中共五中全会：习近平强推“内循环”  " alt="中共五中全会：习近平强推“内循环”  "></a></p>
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://ikjcru315.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?avsqn">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?rlyrx">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?mclyp">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?spxir">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?urbvi">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?exuur">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?kopve">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?qyado">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,11 +485,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/ikjcru315/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ikjcru315/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ikjcru315/www/master/index.html?r">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ikjcru315/www/blob/master/README.md?a#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ikjcru315/www/blob/master/README.md?z%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/qqqqj" title="分享本平台"></img>
-<br><a href="https://git.io/gpppp">https://git.io/gpppp</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/qqqqj">https://is.gd/qqqqj</a>
+<p><strong><a href="https://github.com/ikjcru315/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ikjcru315/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ikjcru315/www/master/index.html?g">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ikjcru315/www/blob/master/README.md?v#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ikjcru315/www/blob/master/README.md?v%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/nqqqq" title="分享本平台"></img>
+<br><a href="https://git.io/s3333">https://git.io/s3333</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/nqqqq">https://is.gd/nqqqq</a>
 <br>
 <br>
-<h3><a href="https://ikjcru315.github.io/vd/qr/qr2/#https://github.com/ikjcru315/www/blob/master/README.md?i#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ikjcru315.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/qqqqj%22%2C%22https://is.gd/nnnnq%22%2C%22https://is.gd/ppepp%22%2C%22https://is.gd/sssse%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://ikjcru315.github.io/vd/qr/qr2/#https://github.com/ikjcru315/www/blob/master/README.md?y#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ikjcru315.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/nqqqq%22%2C%22https://is.gd/yytyy%22%2C%22https://is.gd/rrrrm%22%2C%22https://is.gd/rryrr%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
