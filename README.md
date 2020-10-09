@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xobhvg302/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xobhvg302/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/7bbbb">git.io/7bbbb</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/miiii">git.io/miiii</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,7 +20,7 @@
 <p><a href="https://github.com/xobhvg302/ntdtv/blob/master/gb/2020/10/09/a102959329.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球元首第一人 川普以身试药 免费赠送老人 >-009fcc?logoWidth=1" title="全球元首第一人 川普以身试药 免费赠送老人  " alt="全球元首第一人 川普以身试药 免费赠送老人  "></a></p>
 <p><a href="https://github.com/xobhvg302/ntdtv/blob/master/gb/2020/10/09/a102959258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普关键时刻让美军返国 为应对中共做准备  >-009fcc?logoWidth=1" title="川普关键时刻让美军返国 为应对中共做准备  " alt="川普关键时刻让美军返国 为应对中共做准备  "></a></p>
 <p><a href="https://github.com/xobhvg302/ntdtv/blob/master/gb/2020/10/09/a102959247.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美移民新规卡住中共党员 退党查询突增几十倍 >-009fcc?logoWidth=1" title="美移民新规卡住中共党员 退党查询突增几十倍  " alt="美移民新规卡住中共党员 退党查询突增几十倍  "></a></p>
-<p><a href="https://github.com/xobhvg302/ntdtv/blob/master/gb/2020/10/09/a102959390.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/彭斯称有信心嬴大选 但有前题        >-009fcc?logoWidth=1" title="彭斯称有信心嬴大选 但有前题  " alt="彭斯称有信心嬴大选 但有前题  "></a></p>
+<p><a href="https://github.com/xobhvg302/ntdtv/blob/master/gb/2020/10/09/a102959390.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“选举要自由和公平” 彭斯有信心嬴大选   >-009fcc?logoWidth=1" title="“选举要自由和公平” 彭斯有信心嬴大选  " alt="“选举要自由和公平” 彭斯有信心嬴大选  "></a></p>
 <p><a href="https://github.com/xobhvg302/ntdtv/blob/master/gb/2020/10/09/a102959386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/燕京啤酒“十一”惊魂 董事长赵晓东被突然带走>-009fcc?logoWidth=1" title="燕京啤酒“十一”惊魂 董事长赵晓东被突然带走  " alt="燕京啤酒“十一”惊魂 董事长赵晓东被突然带走  "></a></p>
 <p><a href="https://github.com/xobhvg302/ntdtv/blob/master/gb/2020/10/09/a102959366.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/彭斯辩论获兄长大赞：我们全家为他骄傲    >-009fcc?logoWidth=1" title="彭斯辩论获兄长大赞：我们全家为他骄傲  " alt="彭斯辩论获兄长大赞：我们全家为他骄傲  "></a></p>
 <p><a href="https://github.com/xobhvg302/ntdtv/blob/master/gb/2020/10/09/a102959293.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普染疫中共狂欢 美反间谍首长透内情    >-009fcc?logoWidth=1" title="川普染疫中共狂欢 美反间谍首长透内情  " alt="川普染疫中共狂欢 美反间谍首长透内情  "></a></p>
@@ -37,14 +37,15 @@
 <p><a href="https://github.com/xobhvg302/djy/blob/master/gb/20/8/27/n12361718.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/董存瑞炸碉堡另有故事            >-009fcc?logoWidth=1" title="董存瑞炸碉堡另有故事  " alt="董存瑞炸碉堡另有故事  "></a></p>
 <p><a href="https://github.com/xobhvg302/djy/blob/master/gb/20/10/9/n12463982.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：习为保党做最后挣扎          >-009fcc?logoWidth=1" title="分析：习为保党做最后挣扎  " alt="分析：习为保党做最后挣扎  "></a></p>
 <p><a href="https://github.com/xobhvg302/djy/blob/master/gb/20/10/8/n12462767.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美特种机飞经台海 划出一条“海峡中线”   >-009fcc?logoWidth=1" title="美特种机飞经台海 划出一条“海峡中线”  " alt="美特种机飞经台海 划出一条“海峡中线”  "></a></p>
-<p><a href="https://github.com/xobhvg302/djy/blob/master/gb/20/10/8/n12463386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/彭斯兄长称赞副总统辩论中表现        >-009fcc?logoWidth=1" title="彭斯兄长称赞副总统辩论中表现  " alt="彭斯兄长称赞副总统辩论中表现  "></a></p>
+<p><a href="https://github.com/xobhvg302/djy/blob/master/gb/20/10/9/n12463903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/佩洛西能罢免川普？议员促调查拜登      >-009fcc?logoWidth=1" title="佩洛西能罢免川普？议员促调查拜登  " alt="佩洛西能罢免川普？议员促调查拜登  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/xobhvg302/ntdtv/blob/master/gb/2020/10/09/a102959390.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/彭斯称有信心嬴大选 但有前题        >-009fcc?logoWidth=1" title="彭斯称有信心嬴大选 但有前题  " alt="彭斯称有信心嬴大选 但有前题  "></a></p>
+<p><a href="https://github.com/xobhvg302/djy/blob/master/gb/20/10/8/n12463386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/彭斯兄长称赞副总统辩论中表现        >-009fcc?logoWidth=1" title="彭斯兄长称赞副总统辩论中表现  " alt="彭斯兄长称赞副总统辩论中表现  "></a></p>
 <p><a href="https://github.com/xobhvg302/ntdtv/blob/master/gb/2020/10/08/a102959038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：中共抓捕闫丽梦的母亲说明什么？    >-009fcc?logoWidth=1" title="袁斌：中共抓捕闫丽梦的母亲说明什么？  " alt="袁斌：中共抓捕闫丽梦的母亲说明什么？  "></a></p>
 <p><a href="https://github.com/xobhvg302/djy/blob/master/gb/20/10/8/n12462916.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中国前三季度灾害惊人 高层又消失   >-009fcc?logoWidth=1" title="钟原：中国前三季度灾害惊人 高层又消失  " alt="钟原：中国前三季度灾害惊人 高层又消失  "></a></p>
 <p><a href="https://github.com/xobhvg302/djy/blob/master/gb/20/10/8/n12463316.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：为何很多国人以为自己交的税比国外少？ >-009fcc?logoWidth=1" title="袁斌：为何很多国人以为自己交的税比国外少？  " alt="袁斌：为何很多国人以为自己交的税比国外少？  "></a></p>
 <p><a href="https://github.com/xobhvg302/ntdtv/blob/master/gb/2020/10/08/a102958405.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐浩：国民党突然反共 释放四大重要信号   >-009fcc?logoWidth=1" title="唐浩：国民党突然反共 释放四大重要信号  " alt="唐浩：国民党突然反共 释放四大重要信号  "></a></p>
 <p><a href="https://github.com/xobhvg302/djy/blob/master/gb/20/10/8/n12462820.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/迫害法轮功 吉林逾1800人遭厄运（1）  >-009fcc?logoWidth=1" title="迫害法轮功 吉林逾1800人遭厄运（1）  " alt="迫害法轮功 吉林逾1800人遭厄运（1）  "></a></p>
-<p><a href="https://github.com/xobhvg302/djy/blob/master/gb/20/10/9/n12463903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/佩洛西能罢免川普？议员促调查拜登      >-009fcc?logoWidth=1" title="佩洛西能罢免川普？议员促调查拜登  " alt="佩洛西能罢免川普？议员促调查拜登  "></a></p>
 <p><a href="https://github.com/xobhvg302/ntdtv/blob/master/gb/2020/10/09/a102959264.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民主党考虑“非常选项”逼川普让位      >-009fcc?logoWidth=1" title="民主党考虑“非常选项”逼川普让位  " alt="民主党考虑“非常选项”逼川普让位  "></a></p>
 <p><a href="https://github.com/xobhvg302/ntdtv/blob/master/gb/2020/10/08/a102958905.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/睡不着！2好睡穴 想睡就睡 1碗汤 助眠有奇>-009fcc?logoWidth=1" title="睡不着！2好睡穴 想睡就睡 1碗汤 助眠有奇效  " alt="睡不着！2好睡穴 想睡就睡 1碗汤 助眠有奇效  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -258,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://xobhvg302.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?kxtid">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?dsfoh">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ofjpw">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?uzlki">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -304,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?pifnn">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?obnsr">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?yassv">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?tpjel">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -484,11 +485,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/xobhvg302/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xobhvg302/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xobhvg302/www/master/index.html?h">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xobhvg302/www/blob/master/README.md?i#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/xobhvg302/www/blob/master/README.md?o%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ntttt" title="分享本平台"></img>
-<br><a href="https://git.io/7bbbb">https://git.io/7bbbb</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/ntttt">https://is.gd/ntttt</a>
+<p><strong><a href="https://github.com/xobhvg302/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xobhvg302/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xobhvg302/www/master/index.html?o">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xobhvg302/www/blob/master/README.md?f#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/xobhvg302/www/blob/master/README.md?s%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/yyyy6" title="分享本平台"></img>
+<br><a href="https://git.io/miiii">https://git.io/miiii</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/yyyy6">https://is.gd/yyyy6</a>
 <br>
 <br>
-<h3><a href="https://xobhvg302.github.io/vd/qr/qr2/#https://github.com/xobhvg302/www/blob/master/README.md?h#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://xobhvg302.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/ntttt%22%2C%22https://is.gd/nnmnn%22%2C%22https://is.gd/mmmmh%22%2C%22https://is.gd/uuuuuuu%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://xobhvg302.github.io/vd/qr/qr2/#https://github.com/xobhvg302/www/blob/master/README.md?p#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://xobhvg302.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/yyyy6%22%2C%22https://is.gd/nnsnn%22%2C%22https://is.gd/rrfrr%22%2C%22https://is.gd/qqqqf%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
