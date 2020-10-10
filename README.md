@@ -10,13 +10,13 @@
 <div align="center">
 <a target="_blank" href="https://github.com/medbki322/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/medbki322/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/djjjj">git.io/djjjj</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/fffffff">git.io/fffffff</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/medbki322/ntdtv/blob/master/gb/2020/10/10/a102960077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平罕见遭党内非议 警告左转和战狼    >-009fcc?logoWidth=1" title="习近平罕见遭党内非议 警告左转和战狼  " alt="习近平罕见遭党内非议 警告左转和战狼  "></a></p>
 <p><a href="https://github.com/medbki322/ntdtv/blob/master/gb/2020/10/10/a102960030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：美国戳北京死穴 动摇中共军心 威胁习近>-009fcc?logoWidth=1" title="分析：美国戳北京死穴 动摇中共军心 威胁习近平  " alt="分析：美国戳北京死穴 动摇中共军心 威胁习近平  "></a></p>
-<p><a href="https://github.com/medbki322/ntdtv/blob/master/gb/2020/10/10/a102959991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罢免总统 佩洛西为何“明知不可为而为之”？ >-009fcc?logoWidth=1" title="罢免总统 佩洛西为何“明知不可为而为之”？  " alt="罢免总统 佩洛西为何“明知不可为而为之”？  "></a></p>
+<p><a href="https://github.com/medbki322/ntdtv/blob/master/gb/2020/10/10/a102959991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罢免川普总统，佩洛西抛震撼弹药声东击西？第2>-009fcc?logoWidth=1" title="罢免川普总统，佩洛西抛震撼弹药声东击西？第25修正案3大关键  " alt="罢免川普总统，佩洛西抛震撼弹药声东击西？第25修正案3大关键  "></a></p>
 <p><a href="https://github.com/medbki322/ntdtv/blob/master/gb/2020/10/09/a102959781.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传金灿荣为留美儿子举行婚礼 诠释“反美是工作>-009fcc?logoWidth=1" title="传金灿荣为留美儿子举行婚礼 诠释“反美是工作”  " alt="传金灿荣为留美儿子举行婚礼 诠释“反美是工作”  "></a></p>
 <p><a href="https://github.com/medbki322/ntdtv/blob/master/gb/2020/10/09/a102959605.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进否认有子 携年轻男女加拿大机场自拍照曝>-009fcc?logoWidth=1" title="胡锡进否认有子 携年轻男女加拿大机场自拍照曝光  " alt="胡锡进否认有子 携年轻男女加拿大机场自拍照曝光  "></a></p>
 <p><a href="https://github.com/medbki322/ntdtv/blob/master/gb/2020/10/09/a102959435.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/经济困局难倒中南海 习近平再推“内循环”  >-009fcc?logoWidth=1" title="经济困局难倒中南海 习近平再推“内循环”  " alt="经济困局难倒中南海 习近平再推“内循环”  "></a></p>
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://medbki322.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?idejz">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?yovus">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?gkpor">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?fdwbp">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?rhvkt">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?xufyu">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?udmxm">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?rettn">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,11 +485,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/medbki322/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/medbki322/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/medbki322/www/master/index.html?t">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/medbki322/www/blob/master/README.md?f#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/medbki322/www/blob/master/README.md?t%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/yyhyy" title="分享本平台"></img>
-<br><a href="https://git.io/djjjj">https://git.io/djjjj</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/yyhyy">https://is.gd/yyhyy</a>
+<p><strong><a href="https://github.com/medbki322/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/medbki322/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/medbki322/www/master/index.html?m">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/medbki322/www/blob/master/README.md?m#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/medbki322/www/blob/master/README.md?l%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/yyyyp" title="分享本平台"></img>
+<br><a href="https://git.io/fffffff">https://git.io/fffffff</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/yyyyp">https://is.gd/yyyyp</a>
 <br>
 <br>
-<h3><a href="https://medbki322.github.io/vd/qr/qr2/#https://github.com/medbki322/www/blob/master/README.md?a#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://medbki322.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/yyhyy%22%2C%22https://is.gd/ssss8%22%2C%22https://is.gd/xmmmm%22%2C%22https://is.gd/rrirr%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://medbki322.github.io/vd/qr/qr2/#https://github.com/medbki322/www/blob/master/README.md?b#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://medbki322.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/yyyyp%22%2C%22https://is.gd/zzzze%22%2C%22https://is.gd/pzzzz%22%2C%22https://is.gd/yyyy2%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
