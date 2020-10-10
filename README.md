@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/medbki322/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/medbki322/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/zpppp">git.io/zpppp</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jpppp">git.io/jpppp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/medbki322/ntdtv/blob/master/gb/2020/10/10/a102959991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罢免总统 佩洛西为何“明知不可为而为之”？ >-009fcc?logoWidth=1" title="罢免总统 佩洛西为何“明知不可为而为之”？  " alt="罢免总统 佩洛西为何“明知不可为而为之”？  "></a></p>
 <p><a href="https://github.com/medbki322/ntdtv/blob/master/gb/2020/10/09/a102959435.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/经济困局难倒中南海 习近平再推“内循环”  >-009fcc?logoWidth=1" title="经济困局难倒中南海 习近平再推“内循环”  " alt="经济困局难倒中南海 习近平再推“内循环”  "></a></p>
 <p><a href="https://github.com/medbki322/ntdtv/blob/master/gb/2020/10/09/a102959421.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/经济困局难倒中南海 习再推“内循环”    >-009fcc?logoWidth=1" title="经济困局难倒中南海 习再推“内循环”  " alt="经济困局难倒中南海 习再推“内循环”  "></a></p>
 <p><a href="https://github.com/medbki322/ntdtv/blob/master/gb/2020/10/09/a102959386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/燕京啤酒“十一”惊魂 董事长赵晓东被突然带走>-009fcc?logoWidth=1" title="燕京啤酒“十一”惊魂 董事长赵晓东被突然带走  " alt="燕京啤酒“十一”惊魂 董事长赵晓东被突然带走  "></a></p>
 <p><a href="https://github.com/medbki322/ntdtv/blob/master/gb/2020/10/09/a102959355.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平踢开李克强 “十四五”规划无人敢言  >-009fcc?logoWidth=1" title="习近平踢开李克强 “十四五”规划无人敢言  " alt="习近平踢开李克强 “十四五”规划无人敢言  "></a></p>
 <p><a href="https://github.com/medbki322/ntdtv/blob/master/gb/2020/10/09/a102959325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国开始备战？各地建公物仓“过紧日子”   >-009fcc?logoWidth=1" title="中国开始备战？各地建公物仓“过紧日子”  " alt="中国开始备战？各地建公物仓“过紧日子”  "></a></p>
-<p><a href="https://github.com/medbki322/ntdtv/blob/master/gb/2020/10/09/a102959247.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美移民新规卡住中共党员 退党查询突增几十倍 >-009fcc?logoWidth=1" title="美移民新规卡住中共党员 退党查询突增几十倍  " alt="美移民新规卡住中共党员 退党查询突增几十倍  "></a></p>
+<p><a href="https://github.com/medbki322/ntdtv/blob/master/gb/2020/10/09/a102959574.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/染疫并未影响选情 最新民调:川普佛州领先3％>-009fcc?logoWidth=1" title="染疫并未影响选情 最新民调:川普佛州领先3％  " alt="染疫并未影响选情 最新民调:川普佛州领先3％  "></a></p>
 <p><a href="https://github.com/medbki322/ntdtv/blob/master/gb/2020/10/05/a102956083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普亲述病程 一度很凶险 抗体疗法显奇效  >-009fcc?logoWidth=1" title="川普亲述病程 一度很凶险 抗体疗法显奇效  " alt="川普亲述病程 一度很凶险 抗体疗法显奇效  "></a></p>
 <p><a href="https://github.com/medbki322/ntdtv/blob/master/gb/2020/10/09/a102959771.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家揭美骚乱背后推手 2亲中共社会主义组织曝>-009fcc?logoWidth=1" title="专家揭美骚乱背后推手 2亲中共社会主义组织曝光  " alt="专家揭美骚乱背后推手 2亲中共社会主义组织曝光  "></a></p>
 <p><a href="https://github.com/medbki322/ntdtv/blob/master/gb/2020/10/09/a102959905.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美邮递员倾倒选票被抓 威州禁延长选票截止期 >-009fcc?logoWidth=1" title="美邮递员倾倒选票被抓 威州禁延长选票截止期  " alt="美邮递员倾倒选票被抓 威州禁延长选票截止期  "></a></p>
 <p><a href="https://github.com/medbki322/ntdtv/blob/master/gb/2020/10/09/a102959869.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美高院大法官巴雷特提名听证12日启动    >-009fcc?logoWidth=1" title="美高院大法官巴雷特提名听证12日启动  " alt="美高院大法官巴雷特提名听证12日启动  "></a></p>
-<p><a href="https://github.com/medbki322/ntdtv/blob/master/gb/2020/10/09/a102959867.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：两个亲中共团体组织美国骚乱      >-009fcc?logoWidth=1" title="专家：两个亲中共团体组织美国骚乱  " alt="专家：两个亲中共团体组织美国骚乱  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/medbki322/djy/blob/master/gb/20/10/9/n12464558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普若连任 灭共或成未来4年政策主轴    >-009fcc?logoWidth=1" title="川普若连任 灭共或成未来4年政策主轴  " alt="川普若连任 灭共或成未来4年政策主轴  "></a></p>
 <p><a href="https://github.com/medbki322/djy/blob/master/gb/20/10/9/n12465249.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罢免川普 佩洛西成败几何？         >-009fcc?logoWidth=1" title="罢免川普 佩洛西成败几何？  " alt="罢免川普 佩洛西成败几何？  "></a></p>
@@ -39,15 +39,15 @@
 <p><a href="https://github.com/medbki322/djy/blob/master/gb/20/10/9/n12465306.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/仔细听 拜登说的很多话令人担忧       >-009fcc?logoWidth=1" title="仔细听 拜登说的很多话令人担忧  " alt="仔细听 拜登说的很多话令人担忧  "></a></p>
 <p><a href="https://github.com/medbki322/djy/blob/master/gb/20/10/9/n12464918.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈思敏：中国经济“内虚” 北京楼市一叶知秋 >-009fcc?logoWidth=1" title="陈思敏：中国经济“内虚” 北京楼市一叶知秋  " alt="陈思敏：中国经济“内虚” 北京楼市一叶知秋  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/medbki322/ntdtv/blob/master/gb/2020/10/03/a102955325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美宗教大使：中共是最大人权恶棍 如不勇敢面对>-009fcc?logoWidth=1" title="美宗教大使：中共是最大人权恶棍 如不勇敢面对 恶霸会不断找上门  " alt="美宗教大使：中共是最大人权恶棍 如不勇敢面对 恶霸会不断找上门  "></a></p>
-<p><a href="https://github.com/medbki322/ntdtv/blob/master/gb/2020/10/08/a102959095.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦第2份报告出炉：病毒流行是“超限生物战>-009fcc?logoWidth=1" title="闫丽梦第2份报告出炉：病毒流行是“超限生物战”  " alt="闫丽梦第2份报告出炉：病毒流行是“超限生物战”  "></a></p>
-<p><a href="https://github.com/medbki322/ntdtv/blob/master/gb/2020/10/09/a102959305.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/佩洛西提罢免川普 议员促调查拜登      >-009fcc?logoWidth=1" title="佩洛西提罢免川普 议员促调查拜登  " alt="佩洛西提罢免川普 议员促调查拜登  "></a></p>
+<p><a href="https://github.com/medbki322/ntdtv/blob/master/gb/2020/10/09/a102959477.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老外劝退党：退出中共是2020年中国人的自救>-009fcc?logoWidth=1" title="老外劝退党：退出中共是2020年中国人的自救行动  " alt="老外劝退党：退出中共是2020年中国人的自救行动  "></a></p>
+<p><a href="https://github.com/medbki322/ntdtv/blob/master/gb/2020/10/09/a102959803.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/指控传播内容不道德 巴基斯坦宣布禁用TikT>-009fcc?logoWidth=1" title="指控传播内容不道德 巴基斯坦宣布禁用TikTok  " alt="指控传播内容不道德 巴基斯坦宣布禁用TikTok  "></a></p>
 <p><a href="https://github.com/medbki322/djy/blob/master/gb/20/9/26/n12431823.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《林海雪原》杨子荣PK座山雕（下）     >-009fcc?logoWidth=1" title="《林海雪原》杨子荣PK座山雕（下）  " alt="《林海雪原》杨子荣PK座山雕（下）  "></a></p>
 <p><a href="https://github.com/medbki322/djy/blob/master/gb/20/10/8/n12462774.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山西财大百名学生诺如病毒感染        >-009fcc?logoWidth=1" title="山西财大百名学生诺如病毒感染  " alt="山西财大百名学生诺如病毒感染  "></a></p>
-<p><a href="https://github.com/medbki322/ntdtv/blob/master/gb/2020/10/08/a102959194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美副总统辩论设健康陷阱：彭斯绕开 哈里斯野心>-009fcc?logoWidth=1" title="美副总统辩论设健康陷阱：彭斯绕开 哈里斯野心勃勃  " alt="美副总统辩论设健康陷阱：彭斯绕开 哈里斯野心勃勃  "></a></p>
+<p><a href="https://github.com/medbki322/ntdtv/blob/master/gb/2020/10/08/a102959095.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦第2份报告出炉：病毒流行是“超限生物战>-009fcc?logoWidth=1" title="闫丽梦第2份报告出炉：病毒流行是“超限生物战”  " alt="闫丽梦第2份报告出炉：病毒流行是“超限生物战”  "></a></p>
 <p><a href="https://github.com/medbki322/djy/blob/master/gb/20/10/9/n12465319.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈日君：教宗做了“三件扼杀我们教会的事”  >-009fcc?logoWidth=1" title="陈日君：教宗做了“三件扼杀我们教会的事”  " alt="陈日君：教宗做了“三件扼杀我们教会的事”  "></a></p>
 <p><a href="https://github.com/medbki322/djy/blob/master/gb/20/10/9/n12465530.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共称“中国旅游业复苏” 餐饮旅游影视股纷纷>-009fcc?logoWidth=1" title="中共称“中国旅游业复苏” 餐饮旅游影视股纷纷暴跌  " alt="中共称“中国旅游业复苏” 餐饮旅游影视股纷纷暴跌  "></a></p>
-<p><a href="https://github.com/medbki322/ntdtv/blob/master/gb/2020/10/09/a102959293.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普染疫中共狂欢 美反间谍首长透内情    >-009fcc?logoWidth=1" title="川普染疫中共狂欢 美反间谍首长透内情  " alt="川普染疫中共狂欢 美反间谍首长透内情  "></a></p>
+<p><a href="https://github.com/medbki322/ntdtv/blob/master/gb/2020/10/09/a102959305.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/佩洛西提罢免川普 议员促调查拜登      >-009fcc?logoWidth=1" title="佩洛西提罢免川普 议员促调查拜登  " alt="佩洛西提罢免川普 议员促调查拜登  "></a></p>
+<p><a href="https://github.com/medbki322/ntdtv/blob/master/gb/2020/10/09/a102959258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普关键时刻让美军返国 为应对中共做准备  >-009fcc?logoWidth=1" title="川普关键时刻让美军返国 为应对中共做准备  " alt="川普关键时刻让美军返国 为应对中共做准备  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://medbki322.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?jzaed">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ucefw">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?nfvla">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?azxok">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?djhhr">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?uoivy">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?yztik">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?trtwm">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,11 +485,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/medbki322/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/medbki322/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/medbki322/www/master/index.html?k">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/medbki322/www/blob/master/README.md?n#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/medbki322/www/blob/master/README.md?x%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/mmmmt" title="分享本平台"></img>
-<br><a href="https://git.io/zpppp">https://git.io/zpppp</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/mmmmt">https://is.gd/mmmmt</a>
+<p><strong><a href="https://github.com/medbki322/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/medbki322/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/medbki322/www/master/index.html?d">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/medbki322/www/blob/master/README.md?q#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/medbki322/www/blob/master/README.md?g%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/nnnni" title="分享本平台"></img>
+<br><a href="https://git.io/jpppp">https://git.io/jpppp</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/nnnni">https://is.gd/nnnni</a>
 <br>
 <br>
-<h3><a href="https://medbki322.github.io/vd/qr/qr2/#https://github.com/medbki322/www/blob/master/README.md?x#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://medbki322.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/mmmmt%22%2C%22https://is.gd/mmmmi%22%2C%22https://is.gd/ssssj%22%2C%22https://is.gd/ssuss%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://medbki322.github.io/vd/qr/qr2/#https://github.com/medbki322/www/blob/master/README.md?g#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://medbki322.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/nnnni%22%2C%22https://is.gd/xnnnn%22%2C%22https://is.gd/ssiss%22%2C%22https://is.gd/xrrrr%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
