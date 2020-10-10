@@ -10,14 +10,14 @@
 <div align="center">
 <a target="_blank" href="https://github.com/deqalt317/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/deqalt317/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/zgggg">git.io/zgggg</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/seeee">git.io/seeee</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/deqalt317/ntdtv/blob/master/gb/2020/10/10/a102960335.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平遭党内警告 /李克强成被告      >-009fcc?logoWidth=1" title="习近平遭党内警告 /李克强成被告  " alt="习近平遭党内警告 /李克强成被告  "></a></p>
 <p><a href="https://github.com/deqalt317/ntdtv/blob/master/gb/2020/10/10/a102960278.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：巨大迫害正在中国发生 梵蒂冈应严肃对>-009fcc?logoWidth=1" title="蓬佩奥：巨大迫害正在中国发生 梵蒂冈应严肃对待  " alt="蓬佩奥：巨大迫害正在中国发生 梵蒂冈应严肃对待  "></a></p>
 <p><a href="https://github.com/deqalt317/ntdtv/blob/master/gb/2020/10/10/a102960250.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：中共下大订单想让我开心 我讨厌它们  >-009fcc?logoWidth=1" title="川普：中共下大订单想让我开心 我讨厌它们  " alt="川普：中共下大订单想让我开心 我讨厌它们  "></a></p>
-<p><a href="https://github.com/deqalt317/ntdtv/blob/master/gb/2020/10/10/a102960140.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强成被告 王岐山遇麻烦 五中全会较量开始>-009fcc?logoWidth=1" title="李克强成被告 王岐山遇麻烦 五中全会较量开始  " alt="李克强成被告 王岐山遇麻烦 五中全会较量开始  "></a></p>
+<p><a href="https://github.com/deqalt317/ntdtv/blob/master/gb/2020/10/10/a102960140.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强成被告 王岐山遇麻烦 五中全会较量疑开>-009fcc?logoWidth=1" title="李克强成被告 王岐山遇麻烦 五中全会较量疑开始  " alt="李克强成被告 王岐山遇麻烦 五中全会较量疑开始  "></a></p>
 <p><a href="https://github.com/deqalt317/ntdtv/blob/master/gb/2020/10/10/a102960117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文：示弱不会带来和平 愿与北京平等对话(>-009fcc?logoWidth=1" title="蔡英文：示弱不会带来和平 愿与北京平等对话(附全文)  " alt="蔡英文：示弱不会带来和平 愿与北京平等对话(附全文)  "></a></p>
 <p><a href="https://github.com/deqalt317/ntdtv/blob/master/gb/2020/10/10/a102960077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平罕见遭党内非议 警告左转和战狼    >-009fcc?logoWidth=1" title="习近平罕见遭党内非议 警告左转和战狼  " alt="习近平罕见遭党内非议 警告左转和战狼  "></a></p>
 <p><a href="https://github.com/deqalt317/ntdtv/blob/master/gb/2020/10/05/a102956083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普亲述病程 一度很凶险 抗体疗法显奇效  >-009fcc?logoWidth=1" title="川普亲述病程 一度很凶险 抗体疗法显奇效  " alt="川普亲述病程 一度很凶险 抗体疗法显奇效  "></a></p>
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://deqalt317.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?fhffo">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?tuasb">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?fcbiu">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?jhnep">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?xemyv">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?qlogj">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?xkout">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?clovu">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,11 +486,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/deqalt317/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/deqalt317/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/deqalt317/www/master/index.html?y">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/deqalt317/www/blob/master/README.md?t#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/deqalt317/www/blob/master/README.md?t%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/pprpp" title="分享本平台"></img>
-<br><a href="https://git.io/zgggg">https://git.io/zgggg</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/pprpp">https://is.gd/pprpp</a>
+<p><strong><a href="https://github.com/deqalt317/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/deqalt317/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/deqalt317/www/master/index.html?p">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/deqalt317/www/blob/master/README.md?l#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/deqalt317/www/blob/master/README.md?w%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ppepp" title="分享本平台"></img>
+<br><a href="https://git.io/seeee">https://git.io/seeee</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/ppepp">https://is.gd/ppepp</a>
 <br>
 <br>
-<h3><a href="https://deqalt317.github.io/vd/qr/qr2/#https://github.com/deqalt317/www/blob/master/README.md?m#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://deqalt317.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/pprpp%22%2C%22https://is.gd/qqeqq%22%2C%22https://is.gd/u6666%22%2C%22https://is.gd/uueuu%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://deqalt317.github.io/vd/qr/qr2/#https://github.com/deqalt317/www/blob/master/README.md?d#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://deqalt317.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/ppepp%22%2C%22https://is.gd/zzzzr%22%2C%22https://is.gd/sbbbb%22%2C%22https://is.gd/nnnn7%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
