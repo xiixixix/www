@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/deqalt317/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/deqalt317/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cffff">git.io/cffff</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jtttt">git.io/jtttt</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,19 +39,15 @@
 <p><a href="https://github.com/deqalt317/djy/blob/master/gb/20/10/11/n12468620.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：中共正在输掉与印度的另一场战争    >-009fcc?logoWidth=1" title="杨威：中共正在输掉与印度的另一场战争  " alt="杨威：中共正在输掉与印度的另一场战争  "></a></p>
 <p><a href="https://github.com/deqalt317/djy/blob/master/gb/20/10/11/n12468152.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/幽默轻喜剧【雷人咖啡】：韭菜们的后浪梦   >-009fcc?logoWidth=1" title="幽默轻喜剧【雷人咖啡】：韭菜们的后浪梦  " alt="幽默轻喜剧【雷人咖啡】：韭菜们的后浪梦  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/deqalt317/djy/blob/master/gb/20/10/10/n12467256.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/佩洛西为何“罢免”川普？          >-009fcc?logoWidth=1" title="佩洛西为何“罢免”川普？  " alt="佩洛西为何“罢免”川普？  "></a></p>
-<p><a href="https://github.com/deqalt317/djy/blob/master/gb/20/10/11/n12467777.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共内斗血雨腥风 王岐山失宠？       >-009fcc?logoWidth=1" title="中共内斗血雨腥风 王岐山失宠？  " alt="中共内斗血雨腥风 王岐山失宠？  "></a></p>
 <p><a href="https://github.com/deqalt317/ntdtv/blob/master/gb/2020/10/10/a102960659.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉老太怒拆区党委门牌未果 举杖猛砸（视频）>-009fcc?logoWidth=1" title="武汉老太怒拆区党委门牌未果 举杖猛砸（视频）  " alt="武汉老太怒拆区党委门牌未果 举杖猛砸（视频）  "></a></p>
-<p><a href="https://github.com/deqalt317/djy/blob/master/gb/20/10/11/n12467699.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共允许加外交官探视两公民 特鲁多谢川普  >-009fcc?logoWidth=1" title="中共允许加外交官探视两公民 特鲁多谢川普  " alt="中共允许加外交官探视两公民 特鲁多谢川普  "></a></p>
-<p><a href="https://github.com/deqalt317/djy/blob/master/gb/20/10/10/n12467418.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共频扰台真要打？美台组建联盟       >-009fcc?logoWidth=1" title="中共频扰台真要打？美台组建联盟  " alt="中共频扰台真要打？美台组建联盟  "></a></p>
 <p><a href="https://github.com/deqalt317/ntdtv/blob/master/gb/2020/10/11/a102960902.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登如当选，未来可能挺凄惨！        >-009fcc?logoWidth=1" title="拜登如当选，未来可能挺凄惨！  " alt="拜登如当选，未来可能挺凄惨！  "></a></p>
 <p><a href="https://github.com/deqalt317/ntdtv/blob/master/gb/2020/10/11/a102960764.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/彭斯辩论为何被中共切断？蓬佩奥给出答案   >-009fcc?logoWidth=1" title="彭斯辩论为何被中共切断？蓬佩奥给出答案  " alt="彭斯辩论为何被中共切断？蓬佩奥给出答案  "></a></p>
-<p><a href="https://github.com/deqalt317/djy/blob/master/gb/20/10/11/n12467810.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北居民饮水中毒进ICU 疑化学物质泄漏  >-009fcc?logoWidth=1" title="湖北居民饮水中毒进ICU 疑化学物质泄漏  " alt="湖北居民饮水中毒进ICU 疑化学物质泄漏  "></a></p>
-<p><a href="https://github.com/deqalt317/djy/blob/master/gb/20/10/11/n12467610.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/带你翻墙？大陆浏览器Tuber刷爆网络又被封>-009fcc?logoWidth=1" title="带你翻墙？大陆浏览器Tuber刷爆网络又被封  " alt="带你翻墙？大陆浏览器Tuber刷爆网络又被封  "></a></p>
+<p><a href="https://github.com/deqalt317/djy/blob/master/gb/20/10/11/n12467965.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人民币升值会成为避险货币？专家：不可能   >-009fcc?logoWidth=1" title="人民币升值会成为避险货币？专家：不可能  " alt="人民币升值会成为避险货币？专家：不可能  "></a></p>
+<p><a href="https://github.com/deqalt317/djy/blob/master/gb/20/10/11/n12468540.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普谈中共病毒：我有免疫力 不像拜登    >-009fcc?logoWidth=1" title="川普谈中共病毒：我有免疫力 不像拜登  " alt="川普谈中共病毒：我有免疫力 不像拜登  "></a></p>
 <p><a href="https://github.com/deqalt317/ntdtv/blob/master/gb/2020/10/11/a102961055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/轰动美国的奇案：老公出轨秘书小三--原配复仇惊>-009fcc?logoWidth=1" title="轰动美国的奇案：老公出轨秘书小三-原配复仇惊天动地  " alt="轰动美国的奇案：老公出轨秘书小三-原配复仇惊天动地  "></a></p>
 <p><a href="https://github.com/deqalt317/ntdtv/blob/master/gb/2020/10/11/a102960993.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习抓董宏 查中国残联 中共权贵大决裂？   >-009fcc?logoWidth=1" title="习抓董宏 查中国残联 中共权贵大决裂？  " alt="习抓董宏 查中国残联 中共权贵大决裂？  "></a></p>
-<p><a href="https://github.com/deqalt317/djy/blob/master/gb/20/10/11/n12467760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：金正恩罕见落泪 习近平贺电何意？   >-009fcc?logoWidth=1" title="田云：金正恩罕见落泪 习近平贺电何意？  " alt="田云：金正恩罕见落泪 习近平贺电何意？  "></a></p>
-<p><a href="https://github.com/deqalt317/djy/blob/master/gb/20/10/11/n12467727.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张慧东：中共为何造新词“同比恢复”？    >-009fcc?logoWidth=1" title="张慧东：中共为何造新词“同比恢复”？  " alt="张慧东：中共为何造新词“同比恢复”？  "></a></p>
+<p><a href="https://github.com/deqalt317/djy/blob/master/gb/20/10/8/n12460942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭秘大陆敢言网络大V凋零过程        >-009fcc?logoWidth=1" title="揭秘大陆敢言网络大V凋零过程  " alt="揭秘大陆敢言网络大V凋零过程  "></a></p>
+<p><a href="https://github.com/deqalt317/djy/blob/master/gb/20/10/10/n12467199.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：习近平难题无解 李克强再忧就业    >-009fcc?logoWidth=1" title="钟原：习近平难题无解 李克强再忧就业  " alt="钟原：习近平难题无解 李克强再忧就业  "></a></p>
 <p><a href="https://github.com/deqalt317/ntdtv/blob/master/gb/2020/10/11/a102960850.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/入侵马来西亚水域 60名中国人被捕     >-009fcc?logoWidth=1" title="入侵马来西亚水域 60名中国人被捕  " alt="入侵马来西亚水域 60名中国人被捕  "></a></p>
 <p><a href="https://github.com/deqalt317/ntdtv/blob/master/gb/2020/10/10/a102960191.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习推开李：让我来！无人敢提议 十四五规划成皇>-009fcc?logoWidth=1" title="习推开李：让我来！无人敢提议 十四五规划成皇帝新衣  " alt="习推开李：让我来！无人敢提议 十四五规划成皇帝新衣  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -265,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://deqalt317.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?iaydm">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?zrdss">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?vmajq">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?flbbn">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -311,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?mkjbo">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?wowyb">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ejfik">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?piyaa">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -491,11 +487,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/deqalt317/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/deqalt317/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/deqalt317/www/master/index.html?v">高速版平台</a></strong></p>
+<p><strong><a href="https://github.com/deqalt317/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/deqalt317/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/deqalt317/www/master/index.html?s">高速版平台</a></strong></p>
 手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/deqalt317/www/blob/master/README.md?x#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/deqalt317/www/blob/master/README.md?h%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/pptpp" title="分享本平台"></img>
-<br><a href="https://git.io/cffff">https://git.io/cffff</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/pptpp">https://is.gd/pptpp</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/deqalt317/www/blob/master/README.md?n%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/qqqqg" title="分享本平台"></img>
+<br><a href="https://git.io/jtttt">https://git.io/jtttt</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/qqqqg">https://is.gd/qqqqg</a>
 <br>
 <br>
-<h3><a href="https://deqalt317.github.io/vd/qr/qr2/#https://github.com/deqalt317/www/blob/master/README.md?i#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://deqalt317.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/pptpp%22%2C%22https://is.gd/ttktt%22%2C%22https://is.gd/yyyyk%22%2C%22https://is.gd/mnnnn%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://deqalt317.github.io/vd/qr/qr2/#https://github.com/deqalt317/www/blob/master/README.md?q#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://deqalt317.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/qqqqg%22%2C%22https://is.gd/t9999%22%2C%22https://is.gd/nnhnn%22%2C%22https://is.gd/u8888%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
