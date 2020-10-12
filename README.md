@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/eqdwou3731/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/eqdwou3731/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/8bbbb">git.io/8bbbb</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/6666666">git.io/6666666</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -44,10 +44,10 @@
 <p><a href="https://github.com/eqdwou3731/djy/blob/master/gb/20/10/11/n12468421.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/颜丹：真名办理退党证书人数激增的背后    >-009fcc?logoWidth=1" title="颜丹：真名办理退党证书人数激增的背后  " alt="颜丹：真名办理退党证书人数激增的背后  "></a></p>
 <p><a href="https://github.com/eqdwou3731/djy/blob/master/gb/20/10/11/n12468620.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：中共正在输掉与印度的另一场战争    >-009fcc?logoWidth=1" title="杨威：中共正在输掉与印度的另一场战争  " alt="杨威：中共正在输掉与印度的另一场战争  "></a></p>
 <p><a href="https://github.com/eqdwou3731/ntdtv/blob/master/gb/2020/10/10/a102960342.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/消息人士：中南海将地动山摇 董宏顶三个孙力军>-009fcc?logoWidth=1" title="消息人士：中南海将地动山摇 董宏顶三个孙力军  " alt="消息人士：中南海将地动山摇 董宏顶三个孙力军  "></a></p>
-<p><a href="https://github.com/eqdwou3731/ntdtv/blob/master/gb/2020/10/12/a102961306.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视女主持隐身1个月终露面 曾两个字激怒国民>-009fcc?logoWidth=1" title="央视女主持隐身1个月终露面 曾两个字激怒国民党  " alt="央视女主持隐身1个月终露面 曾两个字激怒国民党  "></a></p>
+<p><a href="https://github.com/eqdwou3731/ntdtv/blob/master/gb/2020/10/12/a102961306.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视女主持隐身1个月终露面 曾因两个字激怒国>-009fcc?logoWidth=1" title="央视女主持隐身1个月终露面 曾因两个字激怒国民党  " alt="央视女主持隐身1个月终露面 曾因两个字激怒国民党  "></a></p>
 <p><a href="https://github.com/eqdwou3731/djy/blob/master/gb/20/10/11/n12468636.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外资狂卖A股 八九两月净流出350亿    >-009fcc?logoWidth=1" title="外资狂卖A股 八九两月净流出350亿  " alt="外资狂卖A股 八九两月净流出350亿  "></a></p>
 <p><a href="https://github.com/eqdwou3731/djy/blob/master/gb/20/10/11/n12468534.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美大学孔子学院中方院长遭调查后 陈尸家中  >-009fcc?logoWidth=1" title="美大学孔子学院中方院长遭调查后 陈尸家中  " alt="美大学孔子学院中方院长遭调查后 陈尸家中  "></a></p>
-<p><a href="https://github.com/eqdwou3731/ntdtv/blob/master/gb/2020/10/12/a102961223.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/十一狂欢刚过 山东疫情再起 多地发旅行警告 >-009fcc?logoWidth=1" title="十一狂欢刚过 山东疫情再起 多地发旅行警告  " alt="十一狂欢刚过 山东疫情再起 多地发旅行警告  "></a></p>
+<p><a href="https://github.com/eqdwou3731/ntdtv/blob/master/gb/2020/10/12/a102961223.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/十一长假刚过 山东疫情再起 多地发旅行警告 >-009fcc?logoWidth=1" title="十一长假刚过 山东疫情再起 多地发旅行警告  " alt="十一长假刚过 山东疫情再起 多地发旅行警告  "></a></p>
 <p><a href="https://github.com/eqdwou3731/ntdtv/blob/master/gb/2020/10/10/a102960191.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习推开李：让我来！无人敢提议 十四五规划成皇>-009fcc?logoWidth=1" title="习推开李：让我来！无人敢提议 十四五规划成皇帝新衣  " alt="习推开李：让我来！无人敢提议 十四五规划成皇帝新衣  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://eqdwou3731.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ashcq">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?muxau">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?fqgmk">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?qqbbc">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?iqges">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ziufw">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?hpodw">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?eqbrw">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,11 +486,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/eqdwou3731/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eqdwou3731/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/eqdwou3731/www/master/index.html?w">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eqdwou3731/www/blob/master/README.md?m#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/eqdwou3731/www/blob/master/README.md?m%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/n9999" title="分享本平台"></img>
-<br><a href="https://git.io/8bbbb">https://git.io/8bbbb</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/n9999">https://is.gd/n9999</a>
+<p><strong><a href="https://github.com/eqdwou3731/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/eqdwou3731/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/eqdwou3731/www/master/index.html?m">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/eqdwou3731/www/blob/master/README.md?f#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/eqdwou3731/www/blob/master/README.md?r%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/yyyyz" title="分享本平台"></img>
+<br><a href="https://git.io/6666666">https://git.io/6666666</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/yyyyz">https://is.gd/yyyyz</a>
 <br>
 <br>
-<h3><a href="https://eqdwou3731.github.io/vd/qr/qr2/#https://github.com/eqdwou3731/www/blob/master/README.md?n#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://eqdwou3731.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/n9999%22%2C%22https://is.gd/q8888%22%2C%22https://is.gd/zzzzg%22%2C%22https://is.gd/rrrrj%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://eqdwou3731.github.io/vd/qr/qr2/#https://github.com/eqdwou3731/www/blob/master/README.md?c#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://eqdwou3731.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/yyyyz%22%2C%22https://is.gd/ttttj%22%2C%22https://is.gd/pxxxx%22%2C%22https://is.gd/rrrr3%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
