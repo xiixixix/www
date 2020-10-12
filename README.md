@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/rpoxpl398/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rpoxpl398/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/9hhhh">git.io/9hhhh</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/kkkkkk">git.io/kkkkkk</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/rpoxpl398/ntdtv/blob/master/gb/2020/10/12/a102961286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平南下深圳不太平 提前遭内部高官警告  >-009fcc?logoWidth=1" title="习近平南下深圳不太平 提前遭内部高官警告  " alt="习近平南下深圳不太平 提前遭内部高官警告  "></a></p>
 <p><a href="https://github.com/rpoxpl398/ntdtv/blob/master/gb/2020/10/12/a102961274.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/金正恩含泪道歉引热议 网民纷纷联想习近平  >-009fcc?logoWidth=1" title="金正恩含泪道歉引热议 网民纷纷联想习近平  " alt="金正恩含泪道歉引热议 网民纷纷联想习近平  "></a></p>
 <p><a href="https://github.com/rpoxpl398/ntdtv/blob/master/gb/2020/10/12/a102961252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强案情细节曝光 18年徒刑另有原因   >-009fcc?logoWidth=1" title="任志强案情细节曝光 18年徒刑另有原因  " alt="任志强案情细节曝光 18年徒刑另有原因  "></a></p>
+<p><a href="https://github.com/rpoxpl398/ntdtv/blob/master/gb/2020/10/12/a102961508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“酸汤子”中毒 黑龙江一家7死 2人正抢救 >-009fcc?logoWidth=1" title="“酸汤子”中毒 黑龙江一家7死 2人正抢救  " alt="“酸汤子”中毒 黑龙江一家7死 2人正抢救  "></a></p>
 <p><a href="https://github.com/rpoxpl398/ntdtv/blob/master/gb/2020/10/05/a102956083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：我打败了这个疯狂、可怕的中共病毒   >-009fcc?logoWidth=1" title="川普：我打败了这个疯狂、可怕的中共病毒  " alt="川普：我打败了这个疯狂、可怕的中共病毒  "></a></p>
 <p><a href="https://github.com/rpoxpl398/ntdtv/blob/master/gb/2020/10/12/a102961486.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭中共拘押近2年 加国前外交官不知疫情流行 >-009fcc?logoWidth=1" title="遭中共拘押近2年 加国前外交官不知疫情流行  " alt="遭中共拘押近2年 加国前外交官不知疫情流行  "></a></p>
 <p><a href="https://github.com/rpoxpl398/ntdtv/blob/master/gb/2020/10/12/a102961480.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视“台谍”认罪漏洞百出 陆委会：恶意诬陷 >-009fcc?logoWidth=1" title="央视“台谍”认罪漏洞百出 陆委会：恶意诬陷  " alt="央视“台谍”认罪漏洞百出 陆委会：恶意诬陷  "></a></p>
 <p><a href="https://github.com/rpoxpl398/ntdtv/blob/master/gb/2020/10/12/a102961391.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白俄警方暴打示威者 群众头破血流数百人被捕 >-009fcc?logoWidth=1" title="白俄警方暴打示威者 群众头破血流数百人被捕  " alt="白俄警方暴打示威者 群众头破血流数百人被捕  "></a></p>
-<p><a href="https://github.com/rpoxpl398/ntdtv/blob/master/gb/2020/10/12/a102961346.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/塔吉克斯坦独裁者得票90.9 统治28年势将>-009fcc?logoWidth=1" title="塔吉克斯坦独裁者得票90.9 统治28年势将轻松连任  " alt="塔吉克斯坦独裁者得票90.9 统治28年势将轻松连任  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rpoxpl398/djy/blob/master/gb/20/10/11/n12468504.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共央视突然宣布复播  NBA 网络炸锅  >-009fcc?logoWidth=1" title="中共央视突然宣布复播  NBA 网络炸锅  " alt="中共央视突然宣布复播  NBA 网络炸锅  "></a></p>
 <p><a href="https://github.com/rpoxpl398/djy/blob/master/gb/20/10/12/n12469039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朱利安尼：谨记中共对我们的攻击       >-009fcc?logoWidth=1" title="朱利安尼：谨记中共对我们的攻击  " alt="朱利安尼：谨记中共对我们的攻击  "></a></p>
@@ -262,9 +262,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://rpoxpl398.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?jrvdw">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?usbhd">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ydqcb">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?omare">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -308,8 +308,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?mmban">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?epauq">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?lcxze">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?xnazy">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -488,11 +488,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/rpoxpl398/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rpoxpl398/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rpoxpl398/www/master/index.html?l">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rpoxpl398/www/blob/master/README.md?v#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/rpoxpl398/www/blob/master/README.md?n%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/sqqqq" title="分享本平台"></img>
-<br><a href="https://git.io/9hhhh">https://git.io/9hhhh</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/sqqqq">https://is.gd/sqqqq</a>
+<p><strong><a href="https://github.com/rpoxpl398/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rpoxpl398/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rpoxpl398/www/master/index.html?n">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rpoxpl398/www/blob/master/README.md?k#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/rpoxpl398/www/blob/master/README.md?a%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/uuyuu" title="分享本平台"></img>
+<br><a href="https://git.io/kkkkkk">https://git.io/kkkkkk</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/uuyuu">https://is.gd/uuyuu</a>
 <br>
 <br>
-<h3><a href="https://rpoxpl398.github.io/vd/qr/qr2/#https://github.com/rpoxpl398/www/blob/master/README.md?q#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rpoxpl398.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/sqqqq%22%2C%22https://is.gd/qqxqq%22%2C%22https://is.gd/nnnni%22%2C%22https://is.gd/zzqzz%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://rpoxpl398.github.io/vd/qr/qr2/#https://github.com/rpoxpl398/www/blob/master/README.md?k#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rpoxpl398.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/uuyuu%22%2C%22https://is.gd/mmmmf%22%2C%22https://is.gd/nnnnk%22%2C%22https://is.gd/rrtrr%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
