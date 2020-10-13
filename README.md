@@ -10,21 +10,21 @@
 <div align="center">
 <a target="_blank" href="https://github.com/lpjjeq3080/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/lpjjeq3080/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/xuuuu">git.io/xuuuu</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/8iiii">git.io/8iiii</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/lpjjeq3080/ntdtv/blob/master/gb/2020/10/13/a102962061.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大法官听证会首日，民主党已露败势？川普称更多>-009fcc?logoWidth=1" title="大法官听证会首日，民主党已露败势？川普称更多解密文件将揭示惊人真相  " alt="大法官听证会首日，民主党已露败势？川普称更多解密文件将揭示惊人真相  "></a></p>
 <p><a href="https://github.com/lpjjeq3080/ntdtv/blob/master/gb/2020/10/13/a102962040.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国对台重大军售 最敏感武器曝光      >-009fcc?logoWidth=1" title="美国对台重大军售 最敏感武器曝光  " alt="美国对台重大军售 最敏感武器曝光  "></a></p>
 <p><a href="https://github.com/lpjjeq3080/ntdtv/blob/master/gb/2020/10/13/a102962023.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闫丽梦：疫情是中共“超限战”美顶尖专家深信 >-009fcc?logoWidth=1" title="闫丽梦：疫情是中共“超限战”美顶尖专家深信  " alt="闫丽梦：疫情是中共“超限战”美顶尖专家深信  "></a></p>
 <p><a href="https://github.com/lpjjeq3080/ntdtv/blob/master/gb/2020/10/13/a102962022.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/学者评习近平南巡：一脚踩油门，一脚踩刹车  >-009fcc?logoWidth=1" title="学者评习近平南巡：一脚踩油门，一脚踩刹车  " alt="学者评习近平南巡：一脚踩油门，一脚踩刹车  "></a></p>
 <p><a href="https://github.com/lpjjeq3080/ntdtv/blob/master/gb/2020/10/13/a102962011.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情冲击演艺圈 周星驰将与中国金主打官司  >-009fcc?logoWidth=1" title="疫情冲击演艺圈 周星驰将与中国金主打官司  " alt="疫情冲击演艺圈 周星驰将与中国金主打官司  "></a></p>
 <p><a href="https://github.com/lpjjeq3080/ntdtv/blob/master/gb/2020/10/13/a102961962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平考察潮州 女导游靠太近 保镖出手未果(>-009fcc?logoWidth=1" title="习近平考察潮州 女导游靠太近 保镖出手未果(视频)  " alt="习近平考察潮州 女导游靠太近 保镖出手未果(视频)  "></a></p>
-<p><a href="https://github.com/lpjjeq3080/ntdtv/blob/master/gb/2020/10/12/a102961799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/派出所长：办案就为搞钱 胃口不大只要千把万(>-009fcc?logoWidth=1" title="派出所长：办案就为搞钱 胃口不大只要千把万(录音)  " alt="派出所长：办案就为搞钱 胃口不大只要千把万(录音)  "></a></p>
 <p><a href="https://github.com/lpjjeq3080/ntdtv/blob/master/gb/2020/10/12/a102961876.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新型拍卖理论 两美学者获诺贝尔经济学奖   >-009fcc?logoWidth=1" title="新型拍卖理论 两美学者获诺贝尔经济学奖  " alt="新型拍卖理论 两美学者获诺贝尔经济学奖  "></a></p>
 <p><a href="https://github.com/lpjjeq3080/ntdtv/blob/master/gb/2020/10/05/a102956083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普完全康复 医生宣布连续测试均为阴性   >-009fcc?logoWidth=1" title="川普完全康复 医生宣布连续测试均为阴性  " alt="川普完全康复 医生宣布连续测试均为阴性  "></a></p>
 <p><a href="https://github.com/lpjjeq3080/ntdtv/blob/master/gb/2020/10/12/a102961591.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/丹佛一川普支持者被枪杀 “保安”凶手疑点重重>-009fcc?logoWidth=1" title="丹佛一川普支持者被枪杀 “保安”凶手疑点重重  " alt="丹佛一川普支持者被枪杀 “保安”凶手疑点重重  "></a></p>
 <p><a href="https://github.com/lpjjeq3080/ntdtv/blob/master/gb/2020/10/12/a102961884.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/波特兰再现骚乱 川普促执法部门打击安提法  >-009fcc?logoWidth=1" title="波特兰再现骚乱 川普促执法部门打击安提法  " alt="波特兰再现骚乱 川普促执法部门打击安提法  "></a></p>
-<p><a href="https://github.com/lpjjeq3080/ntdtv/blob/master/gb/2020/10/12/a102961824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/泼墨政府门牌无果换泼漆 疫苗宝宝家长何方美失>-009fcc?logoWidth=1" title="泼墨政府门牌无果换泼漆 疫苗宝宝家长何方美失联  " alt="泼墨政府门牌无果换泼漆 疫苗宝宝家长何方美失联  "></a></p>
+<p><a href="https://github.com/lpjjeq3080/ntdtv/blob/master/gb/2020/10/12/a102961799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/派出所长：办案就为搞钱 胃口不大只要千把万(>-009fcc?logoWidth=1" title="派出所长：办案就为搞钱 胃口不大只要千把万(录音)  " alt="派出所长：办案就为搞钱 胃口不大只要千把万(录音)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/lpjjeq3080/djy/blob/master/gb/20/10/12/n12471175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中南海内斗激烈 人算不如天算    >-009fcc?logoWidth=1" title="王友群：中南海内斗激烈 人算不如天算  " alt="王友群：中南海内斗激烈 人算不如天算  "></a></p>
 <p><a href="https://github.com/lpjjeq3080/djy/blob/master/gb/20/10/12/n12471034.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五中全会前 习频频动作泄2大恐惧      >-009fcc?logoWidth=1" title="五中全会前 习频频动作泄2大恐惧  " alt="五中全会前 习频频动作泄2大恐惧  "></a></p>
@@ -261,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://lpjjeq3080.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?tjwhc">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?inula">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?irhjs">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?aahtx">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?mxisx">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?rnwnv">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?siyni">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?znbnz">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,11 +487,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/lpjjeq3080/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lpjjeq3080/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lpjjeq3080/www/master/index.html?b">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lpjjeq3080/www/blob/master/README.md?y#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/lpjjeq3080/www/blob/master/README.md?v%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/rqqqq" title="分享本平台"></img>
-<br><a href="https://git.io/xuuuu">https://git.io/xuuuu</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/rqqqq">https://is.gd/rqqqq</a>
+<p><strong><a href="https://github.com/lpjjeq3080/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lpjjeq3080/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lpjjeq3080/www/master/index.html?v">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lpjjeq3080/www/blob/master/README.md?d#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/lpjjeq3080/www/blob/master/README.md?u%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ttttp" title="分享本平台"></img>
+<br><a href="https://git.io/8iiii">https://git.io/8iiii</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/ttttp">https://is.gd/ttttp</a>
 <br>
 <br>
-<h3><a href="https://lpjjeq3080.github.io/vd/qr/qr2/#https://github.com/lpjjeq3080/www/blob/master/README.md?o#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://lpjjeq3080.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/rqqqq%22%2C%22https://is.gd/mffff%22%2C%22https://is.gd/yyyyt%22%2C%22https://is.gd/rzzzz%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://lpjjeq3080.github.io/vd/qr/qr2/#https://github.com/lpjjeq3080/www/blob/master/README.md?r#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://lpjjeq3080.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/ttttp%22%2C%22https://is.gd/uuuum%22%2C%22https://is.gd/qjjjj%22%2C%22https://is.gd/xxxxs%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
