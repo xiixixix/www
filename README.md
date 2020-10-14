@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xdluor3301/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xdluor3301/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/555555">git.io/555555</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ixxxx">git.io/ixxxx</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/xdluor3301/ntdtv/blob/master/gb/2020/10/14/a102962854.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共预测秋冬疫情爆发 密件外泄       >-009fcc?logoWidth=1" title="中共预测秋冬疫情爆发 密件外泄  " alt="中共预测秋冬疫情爆发 密件外泄  "></a></p>
 <p><a href="https://github.com/xdluor3301/ntdtv/blob/master/gb/2020/10/14/a102962778.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/任志强涉案2.2亿是怎么算出来的？     >-009fcc?logoWidth=1" title="任志强涉案2.2亿是怎么算出来的？  " alt="任志强涉案2.2亿是怎么算出来的？  "></a></p>
 <p><a href="https://github.com/xdluor3301/ntdtv/blob/master/gb/2020/10/14/a102963117.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最高法院准许提前结束人口普查 川普政府赢得众>-009fcc?logoWidth=1" title="最高法院准许提前结束人口普查 川普政府赢得众院席位分配权  " alt="最高法院准许提前结束人口普查 川普政府赢得众院席位分配权  "></a></p>
-<p><a href="https://github.com/xdluor3301/ntdtv/blob/master/gb/2020/10/14/a102963235.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/里根号航母折返南海 美军机夜巡台海6小时  >-009fcc?logoWidth=1" title="里根号航母折返南海 美军机夜巡台海6小时  " alt="里根号航母折返南海 美军机夜巡台海6小时  "></a></p>
 <p><a href="https://github.com/xdluor3301/ntdtv/blob/master/gb/2020/10/14/a102963272.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遏制中共威胁 美拟对台出售3项重大武器   >-009fcc?logoWidth=1" title="遏制中共威胁 美拟对台出售3项重大武器  " alt="遏制中共威胁 美拟对台出售3项重大武器  "></a></p>
 <p><a href="https://github.com/xdluor3301/ntdtv/blob/master/gb/2020/10/14/a102963267.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/自由之家报告：中国再列侵犯网络自由最严重国家>-009fcc?logoWidth=1" title="自由之家报告：中国再列侵犯网络自由最严重国家  " alt="自由之家报告：中国再列侵犯网络自由最严重国家  "></a></p>
 <p><a href="https://github.com/xdluor3301/ntdtv/blob/master/gb/2020/10/14/a102963200.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英国军情五处处长：未来十年中国威胁最大   >-009fcc?logoWidth=1" title="英国军情五处处长：未来十年中国威胁最大  " alt="英国军情五处处长：未来十年中国威胁最大  "></a></p>
+<p><a href="https://github.com/xdluor3301/ntdtv/blob/master/gb/2020/10/14/a102963194.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南海伤亡演习 预示美中冲突升高       >-009fcc?logoWidth=1" title="南海伤亡演习 预示美中冲突升高  " alt="南海伤亡演习 预示美中冲突升高  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xdluor3301/djy/blob/master/gb/20/10/14/n12474500.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/深圳特区大会 习近平讲话4次咳嗽且3次停顿 >-009fcc?logoWidth=1" title="深圳特区大会 习近平讲话4次咳嗽且3次停顿  " alt="深圳特区大会 习近平讲话4次咳嗽且3次停顿  "></a></p>
 <p><a href="https://github.com/xdluor3301/djy/blob/master/gb/20/10/13/n12473638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：江泽民等将三个硬盘给了美国总统？  >-009fcc?logoWidth=1" title="王友群：江泽民等将三个硬盘给了美国总统？  " alt="王友群：江泽民等将三个硬盘给了美国总统？  "></a></p>
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://xdluor3301.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?qrray">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ohfjy">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?cfowi">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?mzcqn">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?jygrs">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?xaiiv">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?vvdgx">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?qoevm">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,11 +485,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/xdluor3301/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xdluor3301/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xdluor3301/www/master/index.html?f">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xdluor3301/www/blob/master/README.md?k#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/xdluor3301/www/blob/master/README.md?v%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/nnnnc" title="分享本平台"></img>
-<br><a href="https://git.io/555555">https://git.io/555555</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/nnnnc">https://is.gd/nnnnc</a>
+<p><strong><a href="https://github.com/xdluor3301/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xdluor3301/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xdluor3301/www/master/index.html?s">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xdluor3301/www/blob/master/README.md?m#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/xdluor3301/www/blob/master/README.md?d%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/taaaa" title="分享本平台"></img>
+<br><a href="https://git.io/ixxxx">https://git.io/ixxxx</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/taaaa">https://is.gd/taaaa</a>
 <br>
 <br>
-<h3><a href="https://xdluor3301.github.io/vd/qr/qr2/#https://github.com/xdluor3301/www/blob/master/README.md?h#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://xdluor3301.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/nnnnc%22%2C%22https://is.gd/ssjss%22%2C%22https://is.gd/tttte%22%2C%22https://is.gd/nnqnn%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://xdluor3301.github.io/vd/qr/qr2/#https://github.com/xdluor3301/www/blob/master/README.md?s#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://xdluor3301.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/taaaa%22%2C%22https://is.gd/r7777%22%2C%22https://is.gd/zzczz%22%2C%22https://is.gd/u8888%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
