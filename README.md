@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/anghav353/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/anghav353/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/jzzzz">git.io/jzzzz</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/p5555">git.io/p5555</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -26,27 +26,27 @@
 <p><a href="https://github.com/anghav353/ntdtv/blob/master/gb/2020/10/14/a102962842.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共进联合国人权理事会 蓬佩奥严厉谴责   >-009fcc?logoWidth=1" title="中共进联合国人权理事会 蓬佩奥严厉谴责  " alt="中共进联合国人权理事会 蓬佩奥严厉谴责  "></a></p>
 <p><a href="https://github.com/anghav353/ntdtv/blob/master/gb/2020/10/14/a102962837.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/继“莲花”后“浪卡”再直扑 越南灾情扩大  >-009fcc?logoWidth=1" title="继“莲花”后“浪卡”再直扑 越南灾情扩大  " alt="继“莲花”后“浪卡”再直扑 越南灾情扩大  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/anghav353/djy/blob/master/gb/20/10/14/n12474500.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/深圳特区大会 习近平讲话4次咳嗽且3次停顿 >-009fcc?logoWidth=1" title="深圳特区大会 习近平讲话4次咳嗽且3次停顿  " alt="深圳特区大会 习近平讲话4次咳嗽且3次停顿  "></a></p>
 <p><a href="https://github.com/anghav353/djy/blob/master/gb/20/10/13/n12473638.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：江泽民等将三个硬盘给了美国总统？  >-009fcc?logoWidth=1" title="王友群：江泽民等将三个硬盘给了美国总统？  " alt="王友群：江泽民等将三个硬盘给了美国总统？  "></a></p>
 <p><a href="https://github.com/anghav353/djy/blob/master/gb/20/10/13/n12472506.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四方会谈对中共外交军事双打击        >-009fcc?logoWidth=1" title="四方会谈对中共外交军事双打击  " alt="四方会谈对中共外交军事双打击  "></a></p>
 <p><a href="https://github.com/anghav353/djy/blob/master/gb/20/10/13/n12473770.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/百姓免费注射疫苗？ 中共称“自己买单”遭讽 >-009fcc?logoWidth=1" title="百姓免费注射疫苗？ 中共称“自己买单”遭讽  " alt="百姓免费注射疫苗？ 中共称“自己买单”遭讽  "></a></p>
 <p><a href="https://github.com/anghav353/djy/blob/master/gb/20/10/13/n12473630.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习要军队备战 分析：中共攻台可能性与时间  >-009fcc?logoWidth=1" title="习要军队备战 分析：中共攻台可能性与时间  " alt="习要军队备战 分析：中共攻台可能性与时间  "></a></p>
-<p><a href="https://github.com/anghav353/djy/blob/master/gb/20/10/12/n12471175.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中南海内斗激烈 江曾局中设局    >-009fcc?logoWidth=1" title="王友群：中南海内斗激烈 江曾局中设局  " alt="王友群：中南海内斗激烈 江曾局中设局  "></a></p>
+<p><a href="https://github.com/anghav353/djy/blob/master/gb/20/10/6/n12458129.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文件曝中共一带一路输出过剩产能       >-009fcc?logoWidth=1" title="文件曝中共一带一路输出过剩产能  " alt="文件曝中共一带一路输出过剩产能  "></a></p>
 <p><a href="https://github.com/anghav353/djy/blob/master/gb/20/10/13/n12473330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平南巡 加速改革还是刹车？       >-009fcc?logoWidth=1" title="习近平南巡 加速改革还是刹车？  " alt="习近平南巡 加速改革还是刹车？  "></a></p>
-<p><a href="https://github.com/anghav353/djy/blob/master/gb/20/10/13/n12473318.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大学教授充当中共吹鼓手 患癌筹款却遭打压  >-009fcc?logoWidth=1" title="大学教授充当中共吹鼓手 患癌筹款却遭打压  " alt="大学教授充当中共吹鼓手 患癌筹款却遭打压  "></a></p>
 <p><a href="https://github.com/anghav353/djy/blob/master/gb/20/10/11/n12468744.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴雷特提名听证 两党议员激烈辩论      >-009fcc?logoWidth=1" title="巴雷特提名听证 两党议员激烈辩论  " alt="巴雷特提名听证 两党议员激烈辩论  "></a></p>
-<p><a href="https://github.com/anghav353/djy/blob/master/gb/20/10/13/n12473155.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“泼墨女”被软禁 抄习讲话         >-009fcc?logoWidth=1" title="“泼墨女”被软禁 抄习讲话  " alt="“泼墨女”被软禁 抄习讲话  "></a></p>
+<p><a href="https://github.com/anghav353/djy/blob/master/gb/20/10/14/n12474244.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/深圳特区40年会延迟半小时开始 李嘉诚未上榜>-009fcc?logoWidth=1" title="深圳特区40年会延迟半小时开始 李嘉诚未上榜  " alt="深圳特区40年会延迟半小时开始 李嘉诚未上榜  "></a></p>
 <p><a href="https://github.com/anghav353/djy/blob/master/gb/20/10/14/n12474328.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/悲剧 教授患癌筹款遭中共打压        >-009fcc?logoWidth=1" title="悲剧 教授患癌筹款遭中共打压  " alt="悲剧 教授患癌筹款遭中共打压  "></a></p>
-<p><a href="https://github.com/anghav353/djy/blob/master/gb/20/10/13/n12473908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/青岛560万核酸检测 两天无新增感染引质疑 >-009fcc?logoWidth=1" title="青岛560万核酸检测 两天无新增感染引质疑  " alt="青岛560万核酸检测 两天无新增感染引质疑  "></a></p>
-<p><a href="https://github.com/anghav353/djy/blob/master/gb/20/10/13/n12472962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/脸书虚假的事实核对             >-009fcc?logoWidth=1" title="脸书虚假的事实核对  " alt="脸书虚假的事实核对  "></a></p>
+<p><a href="https://github.com/anghav353/djy/blob/master/gb/20/10/13/n12473392.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美大法官确认成风暴中心           >-009fcc?logoWidth=1" title="美大法官确认成风暴中心  " alt="美大法官确认成风暴中心  "></a></p>
+<p><a href="https://github.com/anghav353/djy/blob/master/gb/20/10/13/n12473155.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“泼墨女”被软禁 抄习讲话         >-009fcc?logoWidth=1" title="“泼墨女”被软禁 抄习讲话  " alt="“泼墨女”被软禁 抄习讲话  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/anghav353/ntdtv/blob/master/gb/2020/10/14/a102962752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平南巡怕触霉头？香港股市暂停引猜测   >-009fcc?logoWidth=1" title="习近平南巡怕触霉头？香港股市暂停引猜测  " alt="习近平南巡怕触霉头？香港股市暂停引猜测  "></a></p>
 <p><a href="https://github.com/anghav353/ntdtv/blob/master/gb/2020/10/13/a102962508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传钟南山已抵青岛 甘肃医护千里驰援视频曝光 >-009fcc?logoWidth=1" title="传钟南山已抵青岛 甘肃医护千里驰援视频曝光  " alt="传钟南山已抵青岛 甘肃医护千里驰援视频曝光  "></a></p>
-<p><a href="https://github.com/anghav353/djy/blob/master/gb/20/10/13/n12473548.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/十一游青岛返粤 遭强制隔离         >-009fcc?logoWidth=1" title="十一游青岛返粤 遭强制隔离  " alt="十一游青岛返粤 遭强制隔离  "></a></p>
-<p><a href="https://github.com/anghav353/djy/blob/master/gb/20/10/13/n12473584.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/张菁：发达国家对中国评价负面的根源     >-009fcc?logoWidth=1" title="张菁：发达国家对中国评价负面的根源  " alt="张菁：发达国家对中国评价负面的根源  "></a></p>
+<p><a href="https://github.com/anghav353/djy/blob/master/gb/20/10/14/n12474227.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/希拉里电邮 再曝王立军出逃内幕       >-009fcc?logoWidth=1" title="希拉里电邮 再曝王立军出逃内幕  " alt="希拉里电邮 再曝王立军出逃内幕  "></a></p>
+<p><a href="https://github.com/anghav353/djy/blob/master/gb/20/10/13/n12473908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/青岛560万核酸检测 两天无新增感染引质疑 >-009fcc?logoWidth=1" title="青岛560万核酸检测 两天无新增感染引质疑  " alt="青岛560万核酸检测 两天无新增感染引质疑  "></a></p>
 <p><a href="https://github.com/anghav353/ntdtv/blob/master/gb/2020/10/14/a102962801.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/青岛航班大面积取消 外地纷纷禁止前往    >-009fcc?logoWidth=1" title="青岛航班大面积取消 外地纷纷禁止前往  " alt="青岛航班大面积取消 外地纷纷禁止前往  "></a></p>
 <p><a href="https://github.com/anghav353/ntdtv/blob/master/gb/2020/10/13/a102962103.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡英文喊话示弱？ 马英九一语道破习近平“天机>-009fcc?logoWidth=1" title="蔡英文喊话示弱？ 马英九一语道破习近平“天机”  " alt="蔡英文喊话示弱？ 马英九一语道破习近平“天机”  "></a></p>
-<p><a href="https://github.com/anghav353/djy/blob/master/gb/20/10/13/n12473528.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅批四方会谈是亚洲北约 印媒：怨不得别人 >-009fcc?logoWidth=1" title="王毅批四方会谈是亚洲北约 印媒：怨不得别人  " alt="王毅批四方会谈是亚洲北约 印媒：怨不得别人  "></a></p>
-<p><a href="https://github.com/anghav353/djy/blob/master/gb/20/10/13/n12473483.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共突曝台谍案 美拟售台尖端武器      >-009fcc?logoWidth=1" title="中共突曝台谍案 美拟售台尖端武器  " alt="中共突曝台谍案 美拟售台尖端武器  "></a></p>
+<p><a href="https://github.com/anghav353/djy/blob/master/gb/20/10/13/n12472962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/脸书虚假的事实核对             >-009fcc?logoWidth=1" title="脸书虚假的事实核对  " alt="脸书虚假的事实核对  "></a></p>
+<p><a href="https://github.com/anghav353/djy/blob/master/gb/20/10/13/n12473548.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/十一游青岛返粤 遭强制隔离         >-009fcc?logoWidth=1" title="十一游青岛返粤 遭强制隔离  " alt="十一游青岛返粤 遭强制隔离  "></a></p>
 <p><a href="https://github.com/anghav353/ntdtv/blob/master/gb/2020/10/13/a102962264.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平高调南巡引猜测 疑防五中全会生变   >-009fcc?logoWidth=1" title="习近平高调南巡引猜测 疑防五中全会生变  " alt="习近平高调南巡引猜测 疑防五中全会生变  "></a></p>
 <p><a href="https://github.com/anghav353/ntdtv/blob/master/gb/2020/10/14/a102962776.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美禁共产党员移民 川普获中国民众特别称号  >-009fcc?logoWidth=1" title="美禁共产党员移民 川普获中国民众特别称号  " alt="美禁共产党员移民 川普获中国民众特别称号  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://anghav353.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ermlk">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?jibbl">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?jekev">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?cjijh">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?tpnwv">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?pppvz">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?eoxdg">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?gsgwk">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,11 +486,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/anghav353/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/anghav353/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/anghav353/www/master/index.html?u">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/anghav353/www/blob/master/README.md?i#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/anghav353/www/blob/master/README.md?r%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/qqqqp" title="分享本平台"></img>
-<br><a href="https://git.io/jzzzz">https://git.io/jzzzz</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/qqqqp">https://is.gd/qqqqp</a>
+<p><strong><a href="https://github.com/anghav353/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/anghav353/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/anghav353/www/master/index.html?f">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/anghav353/www/blob/master/README.md?k#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/anghav353/www/blob/master/README.md?p%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/pphpp" title="分享本平台"></img>
+<br><a href="https://git.io/p5555">https://git.io/p5555</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/pphpp">https://is.gd/pphpp</a>
 <br>
 <br>
-<h3><a href="https://anghav353.github.io/vd/qr/qr2/#https://github.com/anghav353/www/blob/master/README.md?u#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://anghav353.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/qqqqp%22%2C%22https://is.gd/r7777%22%2C%22https://is.gd/x7777%22%2C%22https://is.gd/tiiii%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://anghav353.github.io/vd/qr/qr2/#https://github.com/anghav353/www/blob/master/README.md?r#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://anghav353.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/pphpp%22%2C%22https://is.gd/yyyyz%22%2C%22https://is.gd/tffff%22%2C%22https://is.gd/yyyy7%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
