@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/pfnspx389/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/pfnspx389/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/7uuuu">git.io/7uuuu</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yzzzz">git.io/yzzzz</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -39,7 +39,6 @@
 <p><a href="https://github.com/pfnspx389/djy/blob/master/gb/20/10/16/n12479801.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平因咳嗽提前结束南巡？         >-009fcc?logoWidth=1" title="习近平因咳嗽提前结束南巡？  " alt="习近平因咳嗽提前结束南巡？  "></a></p>
 <p><a href="https://github.com/pfnspx389/djy/blob/master/gb/20/10/16/n12479870.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国有粮库腐败案频发 大陆粮食安全堪虞    >-009fcc?logoWidth=1" title="国有粮库腐败案频发 大陆粮食安全堪虞  " alt="国有粮库腐败案频发 大陆粮食安全堪虞  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/pfnspx389/djy/blob/master/gb/20/10/16/n12479903.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美大选 十月惊奇频发 恐持续到明年1月   >-009fcc?logoWidth=1" title="美大选 十月惊奇频发 恐持续到明年1月  " alt="美大选 十月惊奇频发 恐持续到明年1月  "></a></p>
 <p><a href="https://github.com/pfnspx389/ntdtv/blob/master/gb/2020/10/16/a102964476.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/神启预言：川普将灭掉中共 美两任前总统将被捕>-009fcc?logoWidth=1" title="神启预言：川普将灭掉中共 美两任前总统将被捕  " alt="神启预言：川普将灭掉中共 美两任前总统将被捕  "></a></p>
 <p><a href="https://github.com/pfnspx389/djy/blob/master/gb/20/10/15/n12477779.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/洛阳理工爆群体肺结核 当局隐瞒       >-009fcc?logoWidth=1" title="洛阳理工爆群体肺结核 当局隐瞒  " alt="洛阳理工爆群体肺结核 当局隐瞒  "></a></p>
 <p><a href="https://github.com/pfnspx389/djy/blob/master/gb/20/10/15/n12478594.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽邮再曝：拜登儿子代表家人从中国赚钱    >-009fcc?logoWidth=1" title="纽邮再曝：拜登儿子代表家人从中国赚钱  " alt="纽邮再曝：拜登儿子代表家人从中国赚钱  "></a></p>
@@ -260,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://pfnspx389.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?nmyut">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?vgmdq">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?aoddj">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?kllmg">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?rkded">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?hokws">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?gigdt">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?tbpde">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,11 +485,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/pfnspx389/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pfnspx389/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pfnspx389/www/master/index.html?z">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pfnspx389/www/blob/master/README.md?n#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/pfnspx389/www/blob/master/README.md?u%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/s6666" title="分享本平台"></img>
-<br><a href="https://git.io/7uuuu">https://git.io/7uuuu</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/s6666">https://is.gd/s6666</a>
+<p><strong><a href="https://github.com/pfnspx389/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pfnspx389/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pfnspx389/www/master/index.html?m">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pfnspx389/www/blob/master/README.md?j#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/pfnspx389/www/blob/master/README.md?s%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/xqqqq" title="分享本平台"></img>
+<br><a href="https://git.io/yzzzz">https://git.io/yzzzz</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/xqqqq">https://is.gd/xqqqq</a>
 <br>
 <br>
-<h3><a href="https://pfnspx389.github.io/vd/qr/qr2/#https://github.com/pfnspx389/www/blob/master/README.md?a#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://pfnspx389.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/s6666%22%2C%22https://is.gd/ngggg%22%2C%22https://is.gd/rrrrs%22%2C%22https://is.gd/npppp%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://pfnspx389.github.io/vd/qr/qr2/#https://github.com/pfnspx389/www/blob/master/README.md?n#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://pfnspx389.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/xqqqq%22%2C%22https://is.gd/q7777%22%2C%22https://is.gd/nndnn%22%2C%22https://is.gd/teeee%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
