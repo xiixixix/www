@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/pfnspx389/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/pfnspx389/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/3uuuu">git.io/3uuuu</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/n9999">git.io/n9999</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -21,10 +21,10 @@
 <p><a href="https://github.com/pfnspx389/ntdtv/blob/master/gb/2020/10/16/a102964362.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/担心拜登起杀心 店主披露电脑来龙去脉    >-009fcc?logoWidth=1" title="担心拜登起杀心 店主披露电脑来龙去脉  " alt="担心拜登起杀心 店主披露电脑来龙去脉  "></a></p>
 <p><a href="https://github.com/pfnspx389/ntdtv/blob/master/gb/2020/10/16/a102964318.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反川普倾向明显 总统辩论主持人斯库利被停职 >-009fcc?logoWidth=1" title="反川普倾向明显 总统辩论主持人斯库利被停职  " alt="反川普倾向明显 总统辩论主持人斯库利被停职  "></a></p>
 <p><a href="https://github.com/pfnspx389/ntdtv/blob/master/gb/2020/10/16/a102964567.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共不敢武力攻台 专家析两大原因      >-009fcc?logoWidth=1" title="中共不敢武力攻台 专家析两大原因  " alt="中共不敢武力攻台 专家析两大原因  "></a></p>
+<p><a href="https://github.com/pfnspx389/ntdtv/blob/master/gb/2020/10/16/a102964555.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文在寅政府被爆：助朝鲜洗产地 违反联合国制裁>-009fcc?logoWidth=1" title="文在寅政府被爆：助朝鲜洗产地 违反联合国制裁  " alt="文在寅政府被爆：助朝鲜洗产地 违反联合国制裁  "></a></p>
 <p><a href="https://github.com/pfnspx389/ntdtv/blob/master/gb/2020/10/16/a102964563.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/爱荷华州选民：我不会向共产主义屈服     >-009fcc?logoWidth=1" title="爱荷华州选民：我不会向共产主义屈服  " alt="爱荷华州选民：我不会向共产主义屈服  "></a></p>
 <p><a href="https://github.com/pfnspx389/ntdtv/blob/master/gb/2020/10/16/a102964517.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都大学党委书记绝笔控校长后身亡      >-009fcc?logoWidth=1" title="成都大学党委书记绝笔控校长后身亡  " alt="成都大学党委书记绝笔控校长后身亡  "></a></p>
 <p><a href="https://github.com/pfnspx389/ntdtv/blob/master/gb/2020/10/05/a102956083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贺锦丽团队成员染疫 川普称绝不再次封锁   >-009fcc?logoWidth=1" title="贺锦丽团队成员染疫 川普称绝不再次封锁  " alt="贺锦丽团队成员染疫 川普称绝不再次封锁  "></a></p>
-<p><a href="https://github.com/pfnspx389/ntdtv/blob/master/gb/2020/10/16/a102964509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国推纾困法案救经济 川普：让中共买单   >-009fcc?logoWidth=1" title="美国推纾困法案救经济 川普：让中共买单  " alt="美国推纾困法案救经济 川普：让中共买单  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/pfnspx389/djy/blob/master/gb/20/10/15/n12479161.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：美中军力悬殊 中共不敢攻台      >-009fcc?logoWidth=1" title="专家：美中军力悬殊 中共不敢攻台  " alt="专家：美中军力悬殊 中共不敢攻台  "></a></p>
 <p><a href="https://github.com/pfnspx389/djy/blob/master/gb/20/10/16/n12479897.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都大学校长书记内斗 书记死亡官微禁言   >-009fcc?logoWidth=1" title="成都大学校长书记内斗 书记死亡官微禁言  " alt="成都大学校长书记内斗 书记死亡官微禁言  "></a></p>
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://pfnspx389.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?qqpck">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ofajp">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?aofak">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?dcfdl">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?tcsgb">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?xhhnb">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?isrzg">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?muego">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,11 +485,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/pfnspx389/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pfnspx389/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pfnspx389/www/master/index.html?c">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pfnspx389/www/blob/master/README.md?g#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/pfnspx389/www/blob/master/README.md?a%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/udddd" title="分享本平台"></img>
-<br><a href="https://git.io/3uuuu">https://git.io/3uuuu</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/udddd">https://is.gd/udddd</a>
+<p><strong><a href="https://github.com/pfnspx389/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/pfnspx389/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/pfnspx389/www/master/index.html?o">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/pfnspx389/www/blob/master/README.md?d#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/pfnspx389/www/blob/master/README.md?l%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/yyyyq" title="分享本平台"></img>
+<br><a href="https://git.io/n9999">https://git.io/n9999</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/yyyyq">https://is.gd/yyyyq</a>
 <br>
 <br>
-<h3><a href="https://pfnspx389.github.io/vd/qr/qr2/#https://github.com/pfnspx389/www/blob/master/README.md?h#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://pfnspx389.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/udddd%22%2C%22https://is.gd/nnnnk%22%2C%22https://is.gd/ttgtt%22%2C%22https://is.gd/zjjjj%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://pfnspx389.github.io/vd/qr/qr2/#https://github.com/pfnspx389/www/blob/master/README.md?d#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://pfnspx389.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/yyyyq%22%2C%22https://is.gd/nnnn9%22%2C%22https://is.gd/nnnng%22%2C%22https://is.gd/ruuuu%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
