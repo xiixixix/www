@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/epixsx3358/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/epixsx3358/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/bbbbbb">git.io/bbbbbb</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/i6666">git.io/i6666</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/epixsx3358/ntdtv/blob/master/gb/2020/10/17/a102965080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被迫抄李克强作业？北京推出“摆摊”新规   >-009fcc?logoWidth=1" title="被迫抄李克强作业？北京推出“摆摊”新规  " alt="被迫抄李克强作业？北京推出“摆摊”新规  "></a></p>
 <p><a href="https://github.com/epixsx3358/ntdtv/blob/master/gb/2020/10/17/a102965049.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/直接封杀拜登丑闻 推特执行长认错      >-009fcc?logoWidth=1" title="直接封杀拜登丑闻 推特执行长认错  " alt="直接封杀拜登丑闻 推特执行长认错  "></a></p>
 <p><a href="https://github.com/epixsx3358/ntdtv/blob/master/gb/2020/10/17/a102965038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“备战”话音刚落 深圳促储备应急物资 >-009fcc?logoWidth=1" title="习近平“备战”话音刚落 深圳促储备应急物资  " alt="习近平“备战”话音刚落 深圳促储备应急物资  "></a></p>
+<p><a href="https://github.com/epixsx3358/ntdtv/blob/master/gb/2020/10/17/a102965204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登之子又遭举报 牵出中共“第二外交部”  >-009fcc?logoWidth=1" title="拜登之子又遭举报 牵出中共“第二外交部”  " alt="拜登之子又遭举报 牵出中共“第二外交部”  "></a></p>
 <p><a href="https://github.com/epixsx3358/ntdtv/blob/master/gb/2020/10/17/a102965209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美缉毒员凭这句话 揪出墨西哥神秘毒枭要角  >-009fcc?logoWidth=1" title="美缉毒员凭这句话 揪出墨西哥神秘毒枭要角  " alt="美缉毒员凭这句话 揪出墨西哥神秘毒枭要角  "></a></p>
 <p><a href="https://github.com/epixsx3358/ntdtv/blob/master/gb/2020/10/17/a102965167.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：赵立坚“播毒论” 令川普愤怒到了极点 >-009fcc?logoWidth=1" title="美媒：赵立坚“播毒论” 令川普愤怒到了极点  " alt="美媒：赵立坚“播毒论” 令川普愤怒到了极点  "></a></p>
 <p><a href="https://github.com/epixsx3358/ntdtv/blob/master/gb/2020/10/17/a102965088.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拦截全垒打 大联盟：这名中华职棒外野手唬了每>-009fcc?logoWidth=1" title="拦截全垒打 大联盟：这名中华职棒外野手唬了每个人(视频)  " alt="拦截全垒打 大联盟：这名中华职棒外野手唬了每个人(视频)  "></a></p>
 <p><a href="https://github.com/epixsx3358/ntdtv/blob/master/gb/2020/10/17/a102965157.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/芬兰反对港版国安法 中止与香港引渡协议   >-009fcc?logoWidth=1" title="芬兰反对港版国安法 中止与香港引渡协议  " alt="芬兰反对港版国安法 中止与香港引渡协议  "></a></p>
-<p><a href="https://github.com/epixsx3358/ntdtv/blob/master/gb/2020/10/17/a102965133.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/苏州天镜湖惊现“大型生物”禁止游客靠近(视频>-009fcc?logoWidth=1" title="苏州天镜湖惊现“大型生物”禁止游客靠近(视频)  " alt="苏州天镜湖惊现“大型生物”禁止游客靠近(视频)  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/epixsx3358/djy/blob/master/gb/20/10/16/n12481651.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习突返京3大原因 拜登家丑闻连爆      >-009fcc?logoWidth=1" title="习突返京3大原因 拜登家丑闻连爆  " alt="习突返京3大原因 拜登家丑闻连爆  "></a></p>
 <p><a href="https://github.com/epixsx3358/djy/blob/master/gb/20/10/16/n12481229.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟南山又“带货”白云山A股涨停 网络炮轰  >-009fcc?logoWidth=1" title="钟南山又“带货”白云山A股涨停 网络炮轰  " alt="钟南山又“带货”白云山A股涨停 网络炮轰  "></a></p>
@@ -40,6 +40,7 @@
 <p><a href="https://github.com/epixsx3358/djy/blob/master/gb/20/10/16/n12481603.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共大使威胁不得接收港难民 加拿大外长回应 >-009fcc?logoWidth=1" title="中共大使威胁不得接收港难民 加拿大外长回应  " alt="中共大使威胁不得接收港难民 加拿大外长回应  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/epixsx3358/ntdtv/blob/master/gb/2020/10/17/a102965004.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐靖远：亨特“通共门” 背后神秘“大人物”是>-009fcc?logoWidth=1" title="唐靖远：亨特“通共门” 背后神秘“大人物”是谁？  " alt="唐靖远：亨特“通共门” 背后神秘“大人物”是谁？  "></a></p>
+<p><a href="https://github.com/epixsx3358/ntdtv/blob/master/gb/2020/10/17/a102965133.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/苏州天镜湖惊现“大型生物”禁止游客靠近(视频>-009fcc?logoWidth=1" title="苏州天镜湖惊现“大型生物”禁止游客靠近(视频)  " alt="苏州天镜湖惊现“大型生物”禁止游客靠近(视频)  "></a></p>
 <p><a href="https://github.com/epixsx3358/ntdtv/blob/master/gb/2020/10/17/a102965106.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国安顾问警告中共：若武力犯台 必陷险境  >-009fcc?logoWidth=1" title="美国安顾问警告中共：若武力犯台 必陷险境  " alt="美国安顾问警告中共：若武力犯台 必陷险境  "></a></p>
 <p><a href="https://github.com/epixsx3358/ntdtv/blob/master/gb/2020/10/11/a102960760.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一群美军士兵称 在韩战时遭UFO以光线攻击 >-009fcc?logoWidth=1" title="一群美军士兵称 在韩战时遭UFO以光线攻击  " alt="一群美军士兵称 在韩战时遭UFO以光线攻击  "></a></p>
 <p><a href="https://github.com/epixsx3358/djy/blob/master/gb/20/10/9/n12465044.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩战共军战俘 从炮灰到被打成叛徒      >-009fcc?logoWidth=1" title="韩战共军战俘 从炮灰到被打成叛徒  " alt="韩战共军战俘 从炮灰到被打成叛徒  "></a></p>
@@ -261,9 +262,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://epixsx3358.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?xtvws">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?xowmm">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ergiv">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?dbdvb">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +308,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?asspw">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?qctkx">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?jqnkz">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?dsrmq">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,11 +488,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/epixsx3358/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/epixsx3358/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/epixsx3358/www/master/index.html?y">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/epixsx3358/www/blob/master/README.md?l#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/epixsx3358/www/blob/master/README.md?s%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/xxxxj" title="分享本平台"></img>
-<br><a href="https://git.io/bbbbbb">https://git.io/bbbbbb</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/xxxxj">https://is.gd/xxxxj</a>
+<p><strong><a href="https://github.com/epixsx3358/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/epixsx3358/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/epixsx3358/www/master/index.html?a">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/epixsx3358/www/blob/master/README.md?m#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/epixsx3358/www/blob/master/README.md?n%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/uuuuz" title="分享本平台"></img>
+<br><a href="https://git.io/i6666">https://git.io/i6666</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/uuuuz">https://is.gd/uuuuz</a>
 <br>
 <br>
-<h3><a href="https://epixsx3358.github.io/vd/qr/qr2/#https://github.com/epixsx3358/www/blob/master/README.md?l#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://epixsx3358.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/xxxxj%22%2C%22https://is.gd/y9999%22%2C%22https://is.gd/zznzz%22%2C%22https://is.gd/zbbbb%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://epixsx3358.github.io/vd/qr/qr2/#https://github.com/epixsx3358/www/blob/master/README.md?w#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://epixsx3358.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/uuuuz%22%2C%22https://is.gd/xxxxm%22%2C%22https://is.gd/pjjjj%22%2C%22https://is.gd/zzzzs%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
