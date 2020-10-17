@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/lhvhzm364/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/lhvhzm364/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/ayyyy">git.io/ayyyy</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/cpppp">git.io/cpppp</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -19,9 +19,9 @@
 <p><a href="https://github.com/lhvhzm364/ntdtv/blob/master/gb/2020/10/17/a102965158.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登家族腐败连日被起底           >-009fcc?logoWidth=1" title="拜登家族腐败连日被起底  " alt="拜登家族腐败连日被起底  "></a></p>
 <p><a href="https://github.com/lhvhzm364/ntdtv/blob/master/gb/2020/10/17/a102965118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登之子亨特前商业伙伴反水！更多和中共权钱勾>-009fcc?logoWidth=1" title="拜登之子亨特前商业伙伴反水！更多和中共权钱勾兑曝光  " alt="拜登之子亨特前商业伙伴反水！更多和中共权钱勾兑曝光  "></a></p>
 <p><a href="https://github.com/lhvhzm364/ntdtv/blob/master/gb/2020/10/17/a102965080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被迫抄李克强作业？北京推出“摆摊”新规   >-009fcc?logoWidth=1" title="被迫抄李克强作业？北京推出“摆摊”新规  " alt="被迫抄李克强作业？北京推出“摆摊”新规  "></a></p>
+<p><a href="https://github.com/lhvhzm364/ntdtv/blob/master/gb/2020/10/17/a102965375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普选战又一胜利 密歇根州邮寄选票计票延期失>-009fcc?logoWidth=1" title="川普选战又一胜利 密歇根州邮寄选票计票延期失效  " alt="川普选战又一胜利 密歇根州邮寄选票计票延期失效  "></a></p>
 <p><a href="https://github.com/lhvhzm364/ntdtv/blob/master/gb/2020/10/17/a102965360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/丑闻曝光两天后记者终于提问 拜登很生气   >-009fcc?logoWidth=1" title="丑闻曝光两天后记者终于提问 拜登很生气  " alt="丑闻曝光两天后记者终于提问 拜登很生气  "></a></p>
 <p><a href="https://github.com/lhvhzm364/ntdtv/blob/master/gb/2020/10/17/a102965367.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朱利安尼：拜登丑闻直接证据将在大选前10天公>-009fcc?logoWidth=1" title="朱利安尼：拜登丑闻直接证据将在大选前10天公布  " alt="朱利安尼：拜登丑闻直接证据将在大选前10天公布  "></a></p>
-<p><a href="https://github.com/lhvhzm364/ntdtv/blob/master/gb/2020/10/17/a102965390.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共黑手指使？ 攻击保护伞犯嫌坦承收钱办事 >-009fcc?logoWidth=1" title="中共黑手指使？ 攻击保护伞犯嫌坦承收钱办事  " alt="中共黑手指使？ 攻击保护伞犯嫌坦承收钱办事  "></a></p>
 <p><a href="https://github.com/lhvhzm364/ntdtv/blob/master/gb/2020/10/17/a102965361.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/多项法案危及华人 社区要求周本立下台    >-009fcc?logoWidth=1" title="多项法案危及华人 社区要求周本立下台  " alt="多项法案危及华人 社区要求周本立下台  "></a></p>
 <p><a href="https://github.com/lhvhzm364/ntdtv/blob/master/gb/2020/10/17/a102965358.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/二手车陷阱多 在美华人应如何买车      >-009fcc?logoWidth=1" title="二手车陷阱多 在美华人应如何买车  " alt="二手车陷阱多 在美华人应如何买车  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -261,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://lhvhzm364.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?tilyu">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?vhfxk">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?usotl">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?rppds">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?jwbmd">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?plhaq">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?mqtvb">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?famwh">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -488,10 +488,10 @@
 <hr>
 <div align="center">
 <p><strong><a href="https://github.com/lhvhzm364/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/lhvhzm364/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/lhvhzm364/www/master/index.html?d">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lhvhzm364/www/blob/master/README.md?y#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/lhvhzm364/www/blob/master/README.md?v%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/nnnnd" title="分享本平台"></img>
-<br><a href="https://git.io/ayyyy">https://git.io/ayyyy</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/nnnnd">https://is.gd/nnnnd</a>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/lhvhzm364/www/blob/master/README.md?t#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/lhvhzm364/www/blob/master/README.md?r%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/syyyy" title="分享本平台"></img>
+<br><a href="https://git.io/cpppp">https://git.io/cpppp</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/syyyy">https://is.gd/syyyy</a>
 <br>
 <br>
-<h3><a href="https://lhvhzm364.github.io/vd/qr/qr2/#https://github.com/lhvhzm364/www/blob/master/README.md?o#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://lhvhzm364.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/nnnnd%22%2C%22https://is.gd/qqqqd%22%2C%22https://is.gd/szzzz%22%2C%22https://is.gd/mmqmm%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://lhvhzm364.github.io/vd/qr/qr2/#https://github.com/lhvhzm364/www/blob/master/README.md?o#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://lhvhzm364.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/syyyy%22%2C%22https://is.gd/m7777%22%2C%22https://is.gd/ttttz%22%2C%22https://is.gd/ryyyy%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
