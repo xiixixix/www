@@ -10,16 +10,16 @@
 <div align="center">
 <a target="_blank" href="https://github.com/nnpnmf363/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nnpnmf363/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/snnnn">git.io/snnnn</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/yyyyy">git.io/yyyyy</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/nnpnmf363/ntdtv/blob/master/gb/2020/10/18/a102965733.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平南巡老井冒烟 预言兵变之兆      >-009fcc?logoWidth=1" title="习近平南巡老井冒烟 预言兵变之兆  " alt="习近平南巡老井冒烟 预言兵变之兆  "></a></p>
 <p><a href="https://github.com/nnpnmf363/ntdtv/blob/master/gb/2020/10/18/a102965716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/京沪疯抢托福名额 网曝高官子女争相留美   >-009fcc?logoWidth=1" title="京沪疯抢托福名额 网曝高官子女争相留美  " alt="京沪疯抢托福名额 网曝高官子女争相留美  "></a></p>
 <p><a href="https://github.com/nnpnmf363/ntdtv/blob/master/gb/2020/10/17/a102965204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登之子又遭举报 牵出中共“第二外交部”  >-009fcc?logoWidth=1" title="拜登之子又遭举报 牵出中共“第二外交部”  " alt="拜登之子又遭举报 牵出中共“第二外交部”  "></a></p>
 <p><a href="https://github.com/nnpnmf363/ntdtv/blob/master/gb/2020/10/17/a102965217.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“咳嗽”后匆匆回京 外界猜测三大意外 >-009fcc?logoWidth=1" title="习近平“咳嗽”后匆匆回京 外界猜测三大意外  " alt="习近平“咳嗽”后匆匆回京 外界猜测三大意外  "></a></p>
 <p><a href="https://github.com/nnpnmf363/ntdtv/blob/master/gb/2020/10/17/a102965158.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登家族腐败连日被起底           >-009fcc?logoWidth=1" title="拜登家族腐败连日被起底  " alt="拜登家族腐败连日被起底  "></a></p>
-<p><a href="https://github.com/nnpnmf363/ntdtv/blob/master/gb/2020/10/17/a102965118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登之子亨特前商业伙伴反水！更多和中共权钱勾>-009fcc?logoWidth=1" title="拜登之子亨特前商业伙伴反水！更多和中共权钱勾兑曝光  " alt="拜登之子亨特前商业伙伴反水！更多和中共权钱勾兑曝光  "></a></p>
-<p><a href="https://github.com/nnpnmf363/ntdtv/blob/master/gb/2020/10/18/a102965713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/激烈冲突逾700人亡 亚美尼亚和阿塞拜彊同意>-009fcc?logoWidth=1" title="激烈冲突逾700人亡 亚美尼亚和阿塞拜彊同意人道停火  " alt="激烈冲突逾700人亡 亚美尼亚和阿塞拜彊同意人道停火  "></a></p>
+<p><a href="https://github.com/nnpnmf363/ntdtv/blob/master/gb/2020/10/18/a102965713.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/停火仅4分钟 亚美尼亚指控阿塞拜彊发射大炮与>-009fcc?logoWidth=1" title="停火仅4分钟 亚美尼亚指控阿塞拜彊发射大炮与火箭  " alt="停火仅4分钟 亚美尼亚指控阿塞拜彊发射大炮与火箭  "></a></p>
 <p><a href="https://github.com/nnpnmf363/ntdtv/blob/master/gb/2020/10/18/a102965699.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登电脑门是否属实？美参议员要FBI回答六大>-009fcc?logoWidth=1" title="拜登电脑门是否属实？美参议员要FBI回答六大问题  " alt="拜登电脑门是否属实？美参议员要FBI回答六大问题  "></a></p>
 <p><a href="https://github.com/nnpnmf363/ntdtv/blob/master/gb/2020/10/18/a102965683.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共歼--10战机被鸟“击落”37秒画面曝光(>-009fcc?logoWidth=1" title="中共歼-10战机被鸟“击落”37秒画面曝光(视频)  " alt="中共歼-10战机被鸟“击落”37秒画面曝光(视频)  "></a></p>
 <p><a href="https://github.com/nnpnmf363/ntdtv/blob/master/gb/2020/10/05/a102956083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州度假村被封 内江一医院封楼       >-009fcc?logoWidth=1" title="广州度假村被封 内江一医院封楼  " alt="广州度假村被封 内江一医院封楼  "></a></p>
@@ -40,17 +40,17 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nnpnmf363/djy/blob/master/gb/20/10/17/n12483265.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高调反美 北京上海托福考位名额5分钟抢光>-009fcc?logoWidth=1" title="中共高调反美 北京上海托福考位名额5分钟抢光  " alt="中共高调反美 北京上海托福考位名额5分钟抢光  "></a></p>
 <p><a href="https://github.com/nnpnmf363/djy/blob/master/gb/20/10/17/n12483487.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/辽宁69名小学生疑食物中毒 让学生吃两天前的>-009fcc?logoWidth=1" title="辽宁69名小学生疑食物中毒 让学生吃两天前的饭菜  " alt="辽宁69名小学生疑食物中毒 让学生吃两天前的饭菜  "></a></p>
+<p><a href="https://github.com/nnpnmf363/ntdtv/blob/master/gb/2020/10/17/a102965080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被迫抄李克强作业？北京推出“摆摊”新规   >-009fcc?logoWidth=1" title="被迫抄李克强作业？北京推出“摆摊”新规  " alt="被迫抄李克强作业？北京推出“摆摊”新规  "></a></p>
 <p><a href="https://github.com/nnpnmf363/ntdtv/blob/master/gb/2020/10/17/a102965474.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朱利安尼：拜登子与中共特工共用办公室 危及国>-009fcc?logoWidth=1" title="朱利安尼：拜登子与中共特工共用办公室 危及国安  " alt="朱利安尼：拜登子与中共特工共用办公室 危及国安  "></a></p>
 <p><a href="https://github.com/nnpnmf363/ntdtv/blob/master/gb/2020/10/17/a102965608.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登硬盘门 朱利安尼：被掩盖的联邦罪行   >-009fcc?logoWidth=1" title="拜登硬盘门 朱利安尼：被掩盖的联邦罪行  " alt="拜登硬盘门 朱利安尼：被掩盖的联邦罪行  "></a></p>
 <p><a href="https://github.com/nnpnmf363/ntdtv/blob/master/gb/2020/10/17/a102965285.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京上海托福名额5分钟抢光 网民：不跑来不及>-009fcc?logoWidth=1" title="北京上海托福名额5分钟抢光 网民：不跑来不及了  " alt="北京上海托福名额5分钟抢光 网民：不跑来不及了  "></a></p>
-<p><a href="https://github.com/nnpnmf363/ntdtv/blob/master/gb/2020/10/17/a102965186.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平提前回京 网传五中全会高层变动    >-009fcc?logoWidth=1" title="习近平提前回京 网传五中全会高层变动  " alt="习近平提前回京 网传五中全会高层变动  "></a></p>
 <p><a href="https://github.com/nnpnmf363/djy/blob/master/gb/20/10/16/n12481413.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：先帮中共使劲整人后被整死的吴晗   >-009fcc?logoWidth=1" title="王友群：先帮中共使劲整人后被整死的吴晗  " alt="王友群：先帮中共使劲整人后被整死的吴晗  "></a></p>
 <p><a href="https://github.com/nnpnmf363/djy/blob/master/gb/20/10/16/n12481581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亨特第二季通共门 震动美政坛        >-009fcc?logoWidth=1" title="亨特第二季通共门 震动美政坛  " alt="亨特第二季通共门 震动美政坛  "></a></p>
+<p><a href="https://github.com/nnpnmf363/ntdtv/blob/master/gb/2020/10/17/a102965186.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平提前回京 网传五中全会高层变动    >-009fcc?logoWidth=1" title="习近平提前回京 网传五中全会高层变动  " alt="习近平提前回京 网传五中全会高层变动  "></a></p>
 <p><a href="https://github.com/nnpnmf363/ntdtv/blob/master/gb/2020/10/17/a102965479.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《石涛 News》惊爆：朱利安尼手里有10条>-009fcc?logoWidth=1" title="《石涛 News》惊爆：朱利安尼手里有10条绝密信息  " alt="《石涛 News》惊爆：朱利安尼手里有10条绝密信息  "></a></p>
-<p><a href="https://github.com/nnpnmf363/ntdtv/blob/master/gb/2020/10/17/a102965575.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登家族丑闻不绝 小儿子吸毒嫖妓更恋亡兄妻 >-009fcc?logoWidth=1" title="拜登家族丑闻不绝 小儿子吸毒嫖妓更恋亡兄妻  " alt="拜登家族丑闻不绝 小儿子吸毒嫖妓更恋亡兄妻  "></a></p>
 <p><a href="https://github.com/nnpnmf363/djy/blob/master/gb/20/10/17/n12482605.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“打倒中共恶魔”全球征签 超12万人连署  >-009fcc?logoWidth=1" title="“打倒中共恶魔”全球征签 超12万人连署  " alt="“打倒中共恶魔”全球征签 超12万人连署  "></a></p>
 <p><a href="https://github.com/nnpnmf363/djy/blob/master/gb/20/10/17/n12483406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亨特%3F%3F拜登丑闻之外的六大问题       >-009fcc?logoWidth=1" title="亨特??拜登丑闻之外的六大问题  " alt="亨特??拜登丑闻之外的六大问题  "></a></p>
-<p><a href="https://github.com/nnpnmf363/ntdtv/blob/master/gb/2020/10/17/a102965520.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩战共军战俘 从炮灰到被打成叛徒      >-009fcc?logoWidth=1" title="韩战共军战俘 从炮灰到被打成叛徒  " alt="韩战共军战俘 从炮灰到被打成叛徒  "></a></p>
+<p><a href="https://github.com/nnpnmf363/ntdtv/blob/master/gb/2020/10/17/a102965575.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登家族丑闻不绝 小儿子吸毒嫖妓更恋亡兄妻 >-009fcc?logoWidth=1" title="拜登家族丑闻不绝 小儿子吸毒嫖妓更恋亡兄妻  " alt="拜登家族丑闻不绝 小儿子吸毒嫖妓更恋亡兄妻  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -262,9 +262,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://nnpnmf363.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?qgvrz">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?xkenm">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?oaekf">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ulgey">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -308,8 +308,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?iwgje">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?kbxro">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?tldjg">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?occcz">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -489,10 +489,10 @@
 <hr>
 <div align="center">
 <p><strong><a href="https://github.com/nnpnmf363/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nnpnmf363/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nnpnmf363/www/master/index.html?x">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nnpnmf363/www/blob/master/README.md?g#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/nnpnmf363/www/blob/master/README.md?f%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ttttf" title="分享本平台"></img>
-<br><a href="https://git.io/snnnn">https://git.io/snnnn</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/ttttf">https://is.gd/ttttf</a>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nnpnmf363/www/blob/master/README.md?h#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/nnpnmf363/www/blob/master/README.md?y%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/zzrzz" title="分享本平台"></img>
+<br><a href="https://git.io/yyyyy">https://git.io/yyyyy</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/zzrzz">https://is.gd/zzrzz</a>
 <br>
 <br>
-<h3><a href="https://nnpnmf363.github.io/vd/qr/qr2/#https://github.com/nnpnmf363/www/blob/master/README.md?m#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://nnpnmf363.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/ttttf%22%2C%22https://is.gd/xiiii%22%2C%22https://is.gd/rrjrr%22%2C%22https://is.gd/xmmmm%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://nnpnmf363.github.io/vd/qr/qr2/#https://github.com/nnpnmf363/www/blob/master/README.md?a#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://nnpnmf363.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/zzrzz%22%2C%22https://is.gd/uuuu6%22%2C%22https://is.gd/s3333%22%2C%22https://is.gd/mmamm%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
