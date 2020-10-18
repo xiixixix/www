@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/xsksmt389/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xsksmt389/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/8bbbb">git.io/8bbbb</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/n5555">git.io/n5555</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -19,25 +19,27 @@
 <p><a href="https://github.com/xsksmt389/ntdtv/blob/master/gb/2020/10/18/a102965733.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平南巡老井冒烟 预言兵变之兆      >-009fcc?logoWidth=1" title="习近平南巡老井冒烟 预言兵变之兆  " alt="习近平南巡老井冒烟 预言兵变之兆  "></a></p>
 <p><a href="https://github.com/xsksmt389/ntdtv/blob/master/gb/2020/10/18/a102965716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/京沪疯抢托福名额 网曝高官子女争相留美   >-009fcc?logoWidth=1" title="京沪疯抢托福名额 网曝高官子女争相留美  " alt="京沪疯抢托福名额 网曝高官子女争相留美  "></a></p>
 <p><a href="https://github.com/xsksmt389/ntdtv/blob/master/gb/2020/10/17/a102965204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登之子又遭举报 牵出中共“第二外交部”  >-009fcc?logoWidth=1" title="拜登之子又遭举报 牵出中共“第二外交部”  " alt="拜登之子又遭举报 牵出中共“第二外交部”  "></a></p>
+<p><a href="https://github.com/xsksmt389/ntdtv/blob/master/gb/2020/10/18/a102966055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国将从正面战场进攻华为和中兴 财政援助非洲>-009fcc?logoWidth=1" title="美国将从正面战场进攻华为和中兴 财政援助非洲  " alt="美国将从正面战场进攻华为和中兴 财政援助非洲  "></a></p>
 <p><a href="https://github.com/xsksmt389/ntdtv/blob/master/gb/2020/10/18/a102966069.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亨特生意伙伴再爆料 拜登与中共官员私会   >-009fcc?logoWidth=1" title="亨特生意伙伴再爆料 拜登与中共官员私会  " alt="亨特生意伙伴再爆料 拜登与中共官员私会  "></a></p>
 <p><a href="https://github.com/xsksmt389/ntdtv/blob/master/gb/2020/10/18/a102966040.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳报告：中共非法远洋捕鱼威胁全球      >-009fcc?logoWidth=1" title="澳报告：中共非法远洋捕鱼威胁全球  " alt="澳报告：中共非法远洋捕鱼威胁全球  "></a></p>
 <p><a href="https://github.com/xsksmt389/ntdtv/blob/master/gb/2020/10/18/a102966004.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乔治亚州选民：希望川普连任首先应对中共   >-009fcc?logoWidth=1" title="乔治亚州选民：希望川普连任首先应对中共  " alt="乔治亚州选民：希望川普连任首先应对中共  "></a></p>
 <p><a href="https://github.com/xsksmt389/ntdtv/blob/master/gb/2020/10/18/a102965956.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FCC要求司法部等评估 中国联通对美潜在安全>-009fcc?logoWidth=1" title="FCC要求司法部等评估 中国联通对美潜在安全威胁  " alt="FCC要求司法部等评估 中国联通对美潜在安全威胁  "></a></p>
-<p><a href="https://github.com/xsksmt389/ntdtv/blob/master/gb/2020/10/18/a102965906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长年遭迫害 吉林法轮功学员孙群英含冤离世  >-009fcc?logoWidth=1" title="长年遭迫害 吉林法轮功学员孙群英含冤离世  " alt="长年遭迫害 吉林法轮功学员孙群英含冤离世  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/xsksmt389/djy/blob/master/gb/20/10/18/n12484808.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/哈萨克斯坦爆亨特%3F拜登丑闻 涉及克里女儿  >-009fcc?logoWidth=1" title="哈萨克斯坦爆亨特?拜登丑闻 涉及克里女儿  " alt="哈萨克斯坦爆亨特?拜登丑闻 涉及克里女儿  "></a></p>
+<p><a href="https://github.com/xsksmt389/djy/blob/master/gb/20/10/18/n12483748.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习南下强调绝对领导 分析：忧解放军冒进酿祸 >-009fcc?logoWidth=1" title="习南下强调绝对领导 分析：忧解放军冒进酿祸  " alt="习南下强调绝对领导 分析：忧解放军冒进酿祸  "></a></p>
+<p><a href="https://github.com/xsksmt389/djy/blob/master/gb/20/10/18/n12484951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普内华达州演讲 民众提前八小时排队    >-009fcc?logoWidth=1" title="川普内华达州演讲 民众提前八小时排队  " alt="川普内华达州演讲 民众提前八小时排队  "></a></p>
 <p><a href="https://github.com/xsksmt389/djy/blob/master/gb/20/10/17/n12483244.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：缩水的政治局会议再现高层诡异     >-009fcc?logoWidth=1" title="杨威：缩水的政治局会议再现高层诡异  " alt="杨威：缩水的政治局会议再现高层诡异  "></a></p>
-<p><a href="https://github.com/xsksmt389/djy/blob/master/gb/20/10/18/n12483689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亨特“电脑门”三大新进展          >-009fcc?logoWidth=1" title="亨特“电脑门”三大新进展  " alt="亨特“电脑门”三大新进展  "></a></p>
-<p><a href="https://github.com/xsksmt389/djy/blob/master/gb/20/10/18/n12483848.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：电脑门发酵 拜登竞选经理自曝民调不实 >-009fcc?logoWidth=1" title="田云：电脑门发酵 拜登竞选经理自曝民调不实  " alt="田云：电脑门发酵 拜登竞选经理自曝民调不实  "></a></p>
-<p><a href="https://github.com/xsksmt389/djy/blob/master/gb/20/10/17/n12483265.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高调反美 京沪托福考位名额5分钟抢光  >-009fcc?logoWidth=1" title="中共高调反美 京沪托福考位名额5分钟抢光  " alt="中共高调反美 京沪托福考位名额5分钟抢光  "></a></p>
-<p><a href="https://github.com/xsksmt389/djy/blob/master/gb/20/10/17/n12483509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登电脑门 美参议员要FBI回答六大问题  >-009fcc?logoWidth=1" title="拜登电脑门 美参议员要FBI回答六大问题  " alt="拜登电脑门 美参议员要FBI回答六大问题  "></a></p>
-<p><a href="https://github.com/xsksmt389/djy/blob/master/gb/20/10/14/n12474852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/吉林省应对美中贸易战措施曝光        >-009fcc?logoWidth=1" title="吉林省应对美中贸易战措施曝光  " alt="吉林省应对美中贸易战措施曝光  "></a></p>
-<p><a href="https://github.com/xsksmt389/djy/blob/master/gb/20/10/17/n12482605.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“打倒中共恶魔”全球征签 超12万人连署  >-009fcc?logoWidth=1" title="“打倒中共恶魔”全球征签 超12万人连署  " alt="“打倒中共恶魔”全球征签 超12万人连署  "></a></p>
-<p><a href="https://github.com/xsksmt389/djy/blob/master/gb/20/10/16/n12481651.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习突返京或3原因 拜登家丑闻连爆      >-009fcc?logoWidth=1" title="习突返京或3原因 拜登家丑闻连爆  " alt="习突返京或3原因 拜登家丑闻连爆  "></a></p>
-<p><a href="https://github.com/xsksmt389/djy/blob/master/gb/20/10/18/n12483709.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推特拒绝解封纽邮账户 要求删拜登丑闻报导  >-009fcc?logoWidth=1" title="推特拒绝解封纽邮账户 要求删拜登丑闻报导  " alt="推特拒绝解封纽邮账户 要求删拜登丑闻报导  "></a></p>
-<p><a href="https://github.com/xsksmt389/djy/blob/master/gb/20/10/18/n12483904.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习在京露面 分析：暴露诡异之处       >-009fcc?logoWidth=1" title="习在京露面 分析：暴露诡异之处  " alt="习在京露面 分析：暴露诡异之处  "></a></p>
+<p><a href="https://github.com/xsksmt389/djy/blob/master/gb/20/10/18/n12484524.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情期间 大陆“罚款经济”愈发严重     >-009fcc?logoWidth=1" title="疫情期间 大陆“罚款经济”愈发严重  " alt="疫情期间 大陆“罚款经济”愈发严重  "></a></p>
 <p><a href="https://github.com/xsksmt389/djy/blob/master/gb/20/10/18/n12484121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓农：中共的现金外汇储备行将见底     >-009fcc?logoWidth=1" title="程晓农：中共的现金外汇储备行将见底  " alt="程晓农：中共的现金外汇储备行将见底  "></a></p>
-<p><a href="https://github.com/xsksmt389/djy/blob/master/gb/20/10/17/n12482434.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平学毛邓？陷入自相矛盾         >-009fcc?logoWidth=1" title="习近平学毛邓？陷入自相矛盾  " alt="习近平学毛邓？陷入自相矛盾  "></a></p>
+<p><a href="https://github.com/xsksmt389/djy/blob/master/gb/20/10/17/n12483407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美检察官公布密件 再击中目标        >-009fcc?logoWidth=1" title="美检察官公布密件 再击中目标  " alt="美检察官公布密件 再击中目标  "></a></p>
+<p><a href="https://github.com/xsksmt389/djy/blob/master/gb/20/10/16/n12481651.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习突返京或3原因 拜登家丑闻连爆      >-009fcc?logoWidth=1" title="习突返京或3原因 拜登家丑闻连爆  " alt="习突返京或3原因 拜登家丑闻连爆  "></a></p>
+<p><a href="https://github.com/xsksmt389/djy/blob/master/gb/20/10/17/n12482218.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/太平洋海战系列 史上最大规模航母对战    >-009fcc?logoWidth=1" title="太平洋海战系列 史上最大规模航母对战  " alt="太平洋海战系列 史上最大规模航母对战  "></a></p>
+<p><a href="https://github.com/xsksmt389/djy/blob/master/gb/20/10/18/n12483709.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推特拒绝解封纽邮账户 要求删拜登丑闻报导  >-009fcc?logoWidth=1" title="推特拒绝解封纽邮账户 要求删拜登丑闻报导  " alt="推特拒绝解封纽邮账户 要求删拜登丑闻报导  "></a></p>
+<p><a href="https://github.com/xsksmt389/djy/blob/master/gb/20/10/18/n12484144.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京租房市场量价齐跌 租金达两年低位    >-009fcc?logoWidth=1" title="北京租房市场量价齐跌 租金达两年低位  " alt="北京租房市场量价齐跌 租金达两年低位  "></a></p>
+<p><a href="https://github.com/xsksmt389/djy/blob/master/gb/20/10/18/n12484970.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/剑指中国产品 印度警告两大电商违反规定   >-009fcc?logoWidth=1" title="剑指中国产品 印度警告两大电商违反规定  " alt="剑指中国产品 印度警告两大电商违反规定  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/xsksmt389/djy/blob/master/gb/20/10/18/n12483904.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习在京露面 分析：暴露诡异之处       >-009fcc?logoWidth=1" title="习在京露面 分析：暴露诡异之处  " alt="习在京露面 分析：暴露诡异之处  "></a></p>
+<p><a href="https://github.com/xsksmt389/djy/blob/master/gb/20/10/17/n12482434.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平学毛邓？陷入自相矛盾         >-009fcc?logoWidth=1" title="习近平学毛邓？陷入自相矛盾  " alt="习近平学毛邓？陷入自相矛盾  "></a></p>
 <p><a href="https://github.com/xsksmt389/ntdtv/blob/master/gb/2020/10/18/a102965755.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：天降灾异 习近平何不警醒？      >-009fcc?logoWidth=1" title="王赫：天降灾异 习近平何不警醒？  " alt="王赫：天降灾异 习近平何不警醒？  "></a></p>
 <p><a href="https://github.com/xsksmt389/ntdtv/blob/master/gb/2020/10/17/a102965539.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普在威斯康星州发表演讲（同声翻译）    >-009fcc?logoWidth=1" title="川普在威斯康星州发表演讲（同声翻译）  " alt="川普在威斯康星州发表演讲（同声翻译）  "></a></p>
 <p><a href="https://github.com/xsksmt389/djy/blob/master/gb/20/10/17/n12482835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登家再爆通共门 中共渗透联合国      >-009fcc?logoWidth=1" title="拜登家再爆通共门 中共渗透联合国  " alt="拜登家再爆通共门 中共渗透联合国  "></a></p>
@@ -259,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://xsksmt389.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?giuds">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?bsajq">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?tpbiz">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?debgc">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?izfcv">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?yiwak">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?sqsry">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?dzbha">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,11 +487,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/xsksmt389/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xsksmt389/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xsksmt389/www/master/index.html?j">高速版平台</a></strong></p>
+<p><strong><a href="https://github.com/xsksmt389/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xsksmt389/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xsksmt389/www/master/index.html?p">高速版平台</a></strong></p>
 手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xsksmt389/www/blob/master/README.md?x#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/xsksmt389/www/blob/master/README.md?u%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/mmsmm" title="分享本平台"></img>
-<br><a href="https://git.io/8bbbb">https://git.io/8bbbb</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/mmsmm">https://is.gd/mmsmm</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/xsksmt389/www/blob/master/README.md?y%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/nkkkk" title="分享本平台"></img>
+<br><a href="https://git.io/n5555">https://git.io/n5555</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/nkkkk">https://is.gd/nkkkk</a>
 <br>
 <br>
-<h3><a href="https://xsksmt389.github.io/vd/qr/qr2/#https://github.com/xsksmt389/www/blob/master/README.md?o#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://xsksmt389.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/mmsmm%22%2C%22https://is.gd/ttctt%22%2C%22https://is.gd/urrrr%22%2C%22https://is.gd/ppfpp%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://xsksmt389.github.io/vd/qr/qr2/#https://github.com/xsksmt389/www/blob/master/README.md?u#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://xsksmt389.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/nkkkk%22%2C%22https://is.gd/yynyy%22%2C%22https://is.gd/nnnnf%22%2C%22https://is.gd/zztzz%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
