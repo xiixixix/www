@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/ytbnya3541/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ytbnya3541/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/h7777">git.io/h7777</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/edddd">git.io/edddd</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -23,7 +23,7 @@
 <p><a href="https://github.com/ytbnya3541/ntdtv/blob/master/gb/2020/10/18/a102965797.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华人倒戈支持川普 海内外自由派吐心声    >-009fcc?logoWidth=1" title="华人倒戈支持川普 海内外自由派吐心声  " alt="华人倒戈支持川普 海内外自由派吐心声  "></a></p>
 <p><a href="https://github.com/ytbnya3541/ntdtv/blob/master/gb/2020/10/18/a102965791.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登丑闻又一桩 知情人点出“大人物”    >-009fcc?logoWidth=1" title="拜登丑闻又一桩 知情人点出“大人物”  " alt="拜登丑闻又一桩 知情人点出“大人物”  "></a></p>
 <p><a href="https://github.com/ytbnya3541/ntdtv/blob/master/gb/2020/10/18/a102965762.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五中全会前气氛诡谲 大外宣盘点“陨落的大佬”>-009fcc?logoWidth=1" title="五中全会前气氛诡谲 大外宣盘点“陨落的大佬”  " alt="五中全会前气氛诡谲 大外宣盘点“陨落的大佬”  "></a></p>
-<p><a href="https://github.com/ytbnya3541/ntdtv/blob/master/gb/2020/10/18/a102965683.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共歼--10战机被鸟“击落”37秒画面曝光(>-009fcc?logoWidth=1" title="中共歼-10战机被鸟“击落”37秒画面曝光(视频)  " alt="中共歼-10战机被鸟“击落”37秒画面曝光(视频)  "></a></p>
+<p><a href="https://github.com/ytbnya3541/ntdtv/blob/master/gb/2020/10/18/a102965699.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登电脑门六大问题 美参议员要FBI回答  >-009fcc?logoWidth=1" title="拜登电脑门六大问题 美参议员要FBI回答  " alt="拜登电脑门六大问题 美参议员要FBI回答  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ytbnya3541/djy/blob/master/gb/20/10/17/n12483244.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：缩水的政治局会议再现高层诡异     >-009fcc?logoWidth=1" title="杨威：缩水的政治局会议再现高层诡异  " alt="杨威：缩水的政治局会议再现高层诡异  "></a></p>
 <p><a href="https://github.com/ytbnya3541/djy/blob/master/gb/20/10/18/n12483689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亨特“电脑门”三大新进展          >-009fcc?logoWidth=1" title="亨特“电脑门”三大新进展  " alt="亨特“电脑门”三大新进展  "></a></p>
@@ -261,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://ytbnya3541.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?lyrrm">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?rshzt">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?vdcsc">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?xaqwt">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?wefdq">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?knvwc">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?thdtq">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?udzss">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -488,10 +488,10 @@
 <hr>
 <div align="center">
 <p><strong><a href="https://github.com/ytbnya3541/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ytbnya3541/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ytbnya3541/www/master/index.html?c">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ytbnya3541/www/blob/master/README.md?e#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ytbnya3541/www/blob/master/README.md?f%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/s5555" title="分享本平台"></img>
-<br><a href="https://git.io/h7777">https://git.io/h7777</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/s5555">https://is.gd/s5555</a>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ytbnya3541/www/blob/master/README.md?r#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ytbnya3541/www/blob/master/README.md?y%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/xpppp" title="分享本平台"></img>
+<br><a href="https://git.io/edddd">https://git.io/edddd</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/xpppp">https://is.gd/xpppp</a>
 <br>
 <br>
-<h3><a href="https://ytbnya3541.github.io/vd/qr/qr2/#https://github.com/ytbnya3541/www/blob/master/README.md?b#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ytbnya3541.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/s5555%22%2C%22https://is.gd/yssss%22%2C%22https://is.gd/uuquu%22%2C%22https://is.gd/yyyyb%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://ytbnya3541.github.io/vd/qr/qr2/#https://github.com/ytbnya3541/www/blob/master/README.md?k#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ytbnya3541.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/xpppp%22%2C%22https://is.gd/t5555%22%2C%22https://is.gd/ppkpp%22%2C%22https://is.gd/pppph%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
