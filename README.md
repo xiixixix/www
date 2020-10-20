@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/jpmljf3654/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jpmljf3654/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/58888">git.io/58888</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/eeeeeee">git.io/eeeeeee</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/jpmljf3654/ntdtv/blob/master/gb/2020/10/20/a102967211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁六家中企及两中国人 蓬佩奥发警告   >-009fcc?logoWidth=1" title="美制裁六家中企及两中国人 蓬佩奥发警告  " alt="美制裁六家中企及两中国人 蓬佩奥发警告  "></a></p>
 <p><a href="https://github.com/jpmljf3654/ntdtv/blob/master/gb/2020/10/20/a102967121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平高调纪念抗美援朝 法媒：中方真的胜了吗>-009fcc?logoWidth=1" title="习近平高调纪念抗美援朝 法媒：中方真的胜了吗？  " alt="习近平高调纪念抗美援朝 法媒：中方真的胜了吗？  "></a></p>
 <p><a href="https://github.com/jpmljf3654/ntdtv/blob/master/gb/2020/10/20/a102967126.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江泽民，曾庆红，孟建柱出手了？       >-009fcc?logoWidth=1" title="江泽民，曾庆红，孟建柱出手了？  " alt="江泽民，曾庆红，孟建柱出手了？  "></a></p>
+<p><a href="https://github.com/jpmljf3654/ntdtv/blob/master/gb/2020/10/20/a102967424.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/研究揭提税将损美国经济 歌手看拜登数据转挺川>-009fcc?logoWidth=1" title="研究揭提税将损美国经济 歌手看拜登数据转挺川普  " alt="研究揭提税将损美国经济 歌手看拜登数据转挺川普  "></a></p>
+<p><a href="https://github.com/jpmljf3654/ntdtv/blob/master/gb/2020/10/20/a102967724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共高调纪念朝鲜战争 谎言中的虚张声势？  >-009fcc?logoWidth=1" title="中共高调纪念朝鲜战争 谎言中的虚张声势？  " alt="中共高调纪念朝鲜战争 谎言中的虚张声势？  "></a></p>
+<p><a href="https://github.com/jpmljf3654/ntdtv/blob/master/gb/2020/10/20/a102967716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共19届五中全会前 两大党媒人事异动   >-009fcc?logoWidth=1" title="中共19届五中全会前 两大党媒人事异动  " alt="中共19届五中全会前 两大党媒人事异动  "></a></p>
+<p><a href="https://github.com/jpmljf3654/ntdtv/blob/master/gb/2020/10/20/a102967711.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/历史性访问 阿联酋官方代表团到访以色列   >-009fcc?logoWidth=1" title="历史性访问 阿联酋官方代表团到访以色列  " alt="历史性访问 阿联酋官方代表团到访以色列  "></a></p>
 <p><a href="https://github.com/jpmljf3654/ntdtv/blob/master/gb/2020/10/20/a102967677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共统计局发2文总结前3季经济 2套数据相互>-009fcc?logoWidth=1" title="中共统计局发2文总结前3季经济 2套数据相互否定  " alt="中共统计局发2文总结前3季经济 2套数据相互否定  "></a></p>
-<p><a href="https://github.com/jpmljf3654/ntdtv/blob/master/gb/2020/10/20/a102967654.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/央视播军机“驱离外机现场视频” 小粉红直呼骗>-009fcc?logoWidth=1" title="央视播军机“驱离外机现场视频” 小粉红直呼骗人  " alt="央视播军机“驱离外机现场视频” 小粉红直呼骗人  "></a></p>
-<p><a href="https://github.com/jpmljf3654/ntdtv/blob/master/gb/2020/10/20/a102967644.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新研究揭拜登加税后果：家庭收入将降6500 >-009fcc?logoWidth=1" title="新研究揭拜登加税后果：家庭收入将降6500  " alt="新研究揭拜登加税后果：家庭收入将降6500  "></a></p>
-<p><a href="https://github.com/jpmljf3654/ntdtv/blob/master/gb/2020/10/20/a102967640.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/班农：亨特醉酒送修记不清 曝光前连问几家维修>-009fcc?logoWidth=1" title="班农：亨特醉酒送修记不清 曝光前连问几家维修店  " alt="班农：亨特醉酒送修记不清 曝光前连问几家维修店  "></a></p>
-<p><a href="https://github.com/jpmljf3654/ntdtv/blob/master/gb/2020/10/20/a102967583.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美司法部起诉谷歌 指控排挤竞争对手     >-009fcc?logoWidth=1" title="美司法部起诉谷歌 指控排挤竞争对手  " alt="美司法部起诉谷歌 指控排挤竞争对手  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jpmljf3654/djy/blob/master/gb/20/10/20/n12487940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：江泽民、曾庆红在“下一盘大棋”？  >-009fcc?logoWidth=1" title="王友群：江泽民、曾庆红在“下一盘大棋”？  " alt="王友群：江泽民、曾庆红在“下一盘大棋”？  "></a></p>
 <p><a href="https://github.com/jpmljf3654/djy/blob/master/gb/20/10/20/n12488244.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/连降两级 花旗将小米手机评级降至“卖出”  >-009fcc?logoWidth=1" title="连降两级 花旗将小米手机评级降至“卖出”  " alt="连降两级 花旗将小米手机评级降至“卖出”  "></a></p>
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://jpmljf3654.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?xzqcb">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?wvdnq">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?crlxb">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?hkrld">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?rjxhn">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?gaiam">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?mreye">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?uemtj">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,10 +486,10 @@
 <hr>
 <div align="center">
 <p><strong><a href="https://github.com/jpmljf3654/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jpmljf3654/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jpmljf3654/www/master/index.html?n">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jpmljf3654/www/blob/master/README.md?f#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/jpmljf3654/www/blob/master/README.md?l%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/yyyyj" title="分享本平台"></img>
-<br><a href="https://git.io/58888">https://git.io/58888</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/yyyyj">https://is.gd/yyyyj</a>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jpmljf3654/www/blob/master/README.md?y#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/jpmljf3654/www/blob/master/README.md?n%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/rrirr" title="分享本平台"></img>
+<br><a href="https://git.io/eeeeeee">https://git.io/eeeeeee</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/rrirr">https://is.gd/rrirr</a>
 <br>
 <br>
-<h3><a href="https://jpmljf3654.github.io/vd/qr/qr2/#https://github.com/jpmljf3654/www/blob/master/README.md?f#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://jpmljf3654.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/yyyyj%22%2C%22https://is.gd/y8888%22%2C%22https://is.gd/qquqq%22%2C%22https://is.gd/zzzzn%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://jpmljf3654.github.io/vd/qr/qr2/#https://github.com/jpmljf3654/www/blob/master/README.md?s#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://jpmljf3654.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/rrirr%22%2C%22https://is.gd/nnnn5%22%2C%22https://is.gd/udddd%22%2C%22https://is.gd/nncnn%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
