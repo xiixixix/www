@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/kztpea348/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/kztpea348/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/ncccc">git.io/ncccc</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/aaaac">git.io/aaaac</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102966945.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/3台电脑？亨特“小伙伴”交出2万6千封邮件 >-009fcc?logoWidth=1" title="3台电脑？亨特“小伙伴”交出2万6千封邮件 拜登阵营坍塌？  " alt="3台电脑？亨特“小伙伴”交出2万6千封邮件 拜登阵营坍塌？  "></a></p>
 <p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/19/a102966385.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五中全会要动中南海大人物？/川普模仿拜登 笑>-009fcc?logoWidth=1" title="五中全会要动中南海大人物？/川普模仿拜登 笑翻华人网民  " alt="五中全会要动中南海大人物？/川普模仿拜登 笑翻华人网民  "></a></p>
 <p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/19/a102966388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登疑向中共泄密 导致30名CIA特工遭处决>-009fcc?logoWidth=1" title="拜登疑向中共泄密 导致30名CIA特工遭处决  " alt="拜登疑向中共泄密 导致30名CIA特工遭处决  "></a></p>
+<p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102967188.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/斥拜登丑闻“令人作呕” 朱利安尼：后续还有更>-009fcc?logoWidth=1" title="斥拜登丑闻“令人作呕” 朱利安尼：后续还有更多  " alt="斥拜登丑闻“令人作呕” 朱利安尼：后续还有更多  "></a></p>
 <p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102967201.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/与伊朗交易 中国6实体2人列美国务院黑名单 >-009fcc?logoWidth=1" title="与伊朗交易 中国6实体2人列美国务院黑名单  " alt="与伊朗交易 中国6实体2人列美国务院黑名单  "></a></p>
 <p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102967162.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/越南土石流夷平军营 22官兵罹难含2将领  >-009fcc?logoWidth=1" title="越南土石流夷平军营 22官兵罹难含2将领  " alt="越南土石流夷平军营 22官兵罹难含2将领  "></a></p>
 <p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102967163.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惊见2000多年前“巨猫” 纳斯卡线再现神秘>-009fcc?logoWidth=1" title="惊见2000多年前“巨猫” 纳斯卡线再现神秘地画  " alt="惊见2000多年前“巨猫” 纳斯卡线再现神秘地画  "></a></p>
 <p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102967122.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/梁锦祥：拜登丑闻曝中共靠香港漂白      >-009fcc?logoWidth=1" title="梁锦祥：拜登丑闻曝中共靠香港漂白  " alt="梁锦祥：拜登丑闻曝中共靠香港漂白  "></a></p>
-<p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102967121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平高调纪念抗美援朝 法媒：中方真的胜了吗>-009fcc?logoWidth=1" title="习近平高调纪念抗美援朝 法媒：中方真的胜了吗？  " alt="习近平高调纪念抗美援朝 法媒：中方真的胜了吗？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/kztpea348/djy/blob/master/gb/20/10/20/n12487940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：江泽民、曾庆红在“下一盘大棋”？  >-009fcc?logoWidth=1" title="王友群：江泽民、曾庆红在“下一盘大棋”？  " alt="王友群：江泽民、曾庆红在“下一盘大棋”？  "></a></p>
 <p><a href="https://github.com/kztpea348/djy/blob/master/gb/20/10/20/n12487956.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朱利安尼欲起诉拜登 称或面临风险      >-009fcc?logoWidth=1" title="朱利安尼欲起诉拜登 称或面临风险  " alt="朱利安尼欲起诉拜登 称或面临风险  "></a></p>
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://kztpea348.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?pzmbt">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?bvzqq">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?leepu">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?giroz">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?hkeaa">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?kujcy">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?jazsa">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?duhza">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,11 +486,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/kztpea348/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kztpea348/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/kztpea348/www/master/index.html?i">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kztpea348/www/blob/master/README.md?c#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/kztpea348/www/blob/master/README.md?t%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/nnnnnnnn" title="分享本平台"></img>
-<br><a href="https://git.io/ncccc">https://git.io/ncccc</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/nnnnnnnn">https://is.gd/nnnnnnnn</a>
+<p><strong><a href="https://github.com/kztpea348/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kztpea348/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/kztpea348/www/master/index.html?r">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kztpea348/www/blob/master/README.md?i#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/kztpea348/www/blob/master/README.md?d%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/yyyyj" title="分享本平台"></img>
+<br><a href="https://git.io/aaaac">https://git.io/aaaac</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/yyyyj">https://is.gd/yyyyj</a>
 <br>
 <br>
-<h3><a href="https://kztpea348.github.io/vd/qr/qr2/#https://github.com/kztpea348/www/blob/master/README.md?c#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://kztpea348.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/nnnnnnnn%22%2C%22https://is.gd/rrnrr%22%2C%22https://is.gd/qqqqj%22%2C%22https://is.gd/sstss%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://kztpea348.github.io/vd/qr/qr2/#https://github.com/kztpea348/www/blob/master/README.md?s#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://kztpea348.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/yyyyj%22%2C%22https://is.gd/nnnn9%22%2C%22https://is.gd/ppppi%22%2C%22https://is.gd/qnnnn%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
