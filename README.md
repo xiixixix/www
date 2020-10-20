@@ -10,7 +10,7 @@
 <div align="center">
 <a target="_blank" href="https://github.com/sjgjny386/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/sjgjny386/www/master/t/www.jpg"></a><br>
 <p><details><summary>个别情况打不开或没显示图片，刷新一下。持续收看请<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
-建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/qiiii">git.io/qiiii</a><br>  
+建议用海外浏览器打开本平台，同时收藏网址:&nbsp;&nbsp;<a href="https://git.io/mnnnn">git.io/mnnnn</a><br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/sjgjny386/ntdtv/blob/master/gb/2020/10/19/a102966388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登疑向中共泄密 导致30名CIA特工遭处决>-009fcc?logoWidth=1" title="拜登疑向中共泄密 导致30名CIA特工遭处决  " alt="拜登疑向中共泄密 导致30名CIA特工遭处决  "></a></p>
 <p><a href="https://github.com/sjgjny386/ntdtv/blob/master/gb/2020/10/19/a102966306.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五中全会前异象频现 江泽民老家上万螃蟹上岸 >-009fcc?logoWidth=1" title="五中全会前异象频现 江泽民老家上万螃蟹上岸  " alt="五中全会前异象频现 江泽民老家上万螃蟹上岸  "></a></p>
 <p><a href="https://github.com/sjgjny386/ntdtv/blob/master/gb/2020/10/19/a102966293.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五中全会人事卡位战打响？传新华社社长换人  >-009fcc?logoWidth=1" title="五中全会人事卡位战打响？传新华社社长换人  " alt="五中全会人事卡位战打响？传新华社社长换人  "></a></p>
+<p><a href="https://github.com/sjgjny386/ntdtv/blob/master/gb/2020/10/20/a102967038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗列中共七宗罪：这笔账必有到期的一天  >-009fcc?logoWidth=1" title="纳瓦罗列中共七宗罪：这笔账必有到期的一天  " alt="纳瓦罗列中共七宗罪：这笔账必有到期的一天  "></a></p>
 <p><a href="https://github.com/sjgjny386/ntdtv/blob/master/gb/2020/10/20/a102966993.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“酸汤子”中毒事件 黑龙江唯一幸存者也去世 >-009fcc?logoWidth=1" title="“酸汤子”中毒事件 黑龙江唯一幸存者也去世  " alt="“酸汤子”中毒事件 黑龙江唯一幸存者也去世  "></a></p>
 <p><a href="https://github.com/sjgjny386/ntdtv/blob/master/gb/2020/10/19/a102966587.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新生婴儿未睁开眼先扯医生口罩 逾10万人按赞>-009fcc?logoWidth=1" title="新生婴儿未睁开眼先扯医生口罩 逾10万人按赞  " alt="新生婴儿未睁开眼先扯医生口罩 逾10万人按赞  "></a></p>
 <p><a href="https://github.com/sjgjny386/ntdtv/blob/master/gb/2020/10/19/a102966143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又甩锅？青岛称冷冻鳕鱼外包装验出病毒    >-009fcc?logoWidth=1" title="又甩锅？青岛称冷冻鳕鱼外包装验出病毒  " alt="又甩锅？青岛称冷冻鳕鱼外包装验出病毒  "></a></p>
 <p><a href="https://github.com/sjgjny386/ntdtv/blob/master/gb/2020/10/19/a102966821.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国维权人士厦门举横幅 要中共下台     >-009fcc?logoWidth=1" title="中国维权人士厦门举横幅 要中共下台  " alt="中国维权人士厦门举横幅 要中共下台  "></a></p>
-<p><a href="https://github.com/sjgjny386/ntdtv/blob/master/gb/2020/10/19/a102966934.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都大学毛书记之死 背后涉高层利益之争%3F  >-009fcc?logoWidth=1" title="成都大学毛书记之死 背后涉高层利益之争?  " alt="成都大学毛书记之死 背后涉高层利益之争?  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/sjgjny386/djy/blob/master/gb/20/10/19/n12486819.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民众厦门举横幅要中共下台          >-009fcc?logoWidth=1" title="民众厦门举横幅要中共下台  " alt="民众厦门举横幅要中共下台  "></a></p>
 <p><a href="https://github.com/sjgjny386/djy/blob/master/gb/20/10/19/n12485538.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽时围川普救拜登 中共五中换人？      >-009fcc?logoWidth=1" title="纽时围川普救拜登 中共五中换人？  " alt="纽时围川普救拜登 中共五中换人？  "></a></p>
@@ -39,14 +39,16 @@
 <p><a href="https://github.com/sjgjny386/djy/blob/master/gb/20/10/19/n12487059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一带一路遭毛思想打击            >-009fcc?logoWidth=1" title="一带一路遭毛思想打击  " alt="一带一路遭毛思想打击  "></a></p>
 <p><a href="https://github.com/sjgjny386/djy/blob/master/gb/20/10/19/n12487211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登的烫手山芋：扩充最高法院        >-009fcc?logoWidth=1" title="拜登的烫手山芋：扩充最高法院  " alt="拜登的烫手山芋：扩充最高法院  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/sjgjny386/ntdtv/blob/master/gb/2020/10/19/a102966813.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登女婿大量投资中国  吹捧中共为“抗疫”表>-009fcc?logoWidth=1" title="拜登女婿大量投资中国  吹捧中共为“抗疫”表率  " alt="拜登女婿大量投资中国  吹捧中共为“抗疫”表率  "></a></p>
 <p><a href="https://github.com/sjgjny386/ntdtv/blob/master/gb/2020/10/19/a102966577.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曝拜登子遗弃电脑原因 朱利安尼：证据涉多个家>-009fcc?logoWidth=1" title="曝拜登子遗弃电脑原因 朱利安尼：证据涉多个家族  " alt="曝拜登子遗弃电脑原因 朱利安尼：证据涉多个家族  "></a></p>
 <p><a href="https://github.com/sjgjny386/ntdtv/blob/master/gb/2020/10/19/a102966485.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普模仿拜登 笑翻华人网民(视频)     >-009fcc?logoWidth=1" title="川普模仿拜登 笑翻华人网民(视频)  " alt="川普模仿拜登 笑翻华人网民(视频)  "></a></p>
-<p><a href="https://github.com/sjgjny386/ntdtv/blob/master/gb/2020/10/19/a102966386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟南山“卖药”再遇难堪 人民日报批板蓝根无效>-009fcc?logoWidth=1" title="钟南山“卖药”再遇难堪 人民日报批板蓝根无效  " alt="钟南山“卖药”再遇难堪 人民日报批板蓝根无效  "></a></p>
+<p><a href="https://github.com/sjgjny386/ntdtv/blob/master/gb/2020/10/19/a102966168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王岐山命运难料 新林彪事件恐现       >-009fcc?logoWidth=1" title="王岐山命运难料 新林彪事件恐现  " alt="王岐山命运难料 新林彪事件恐现  "></a></p>
 <p><a href="https://github.com/sjgjny386/djy/blob/master/gb/20/10/18/n12484121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/程晓农：中共的现金外汇储备行将见底     >-009fcc?logoWidth=1" title="程晓农：中共的现金外汇储备行将见底  " alt="程晓农：中共的现金外汇储备行将见底  "></a></p>
 <p><a href="https://github.com/sjgjny386/djy/blob/master/gb/20/10/18/n12484951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普内华达州演讲：重大选择来临       >-009fcc?logoWidth=1" title="川普内华达州演讲：重大选择来临  " alt="川普内华达州演讲：重大选择来临  "></a></p>
+<p><a href="https://github.com/sjgjny386/ntdtv/blob/master/gb/2020/10/19/a102966724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朱利安尼曝获拜登儿电脑过程 维修店主备4份自>-009fcc?logoWidth=1" title="朱利安尼曝获拜登儿电脑过程 维修店主备4份自保  " alt="朱利安尼曝获拜登儿电脑过程 维修店主备4份自保  "></a></p>
 <p><a href="https://github.com/sjgjny386/djy/blob/master/gb/20/10/19/n12487474.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/优胜教育爆雷 逾千家长老师维权       >-009fcc?logoWidth=1" title="优胜教育爆雷 逾千家长老师维权  " alt="优胜教育爆雷 逾千家长老师维权  "></a></p>
 <p><a href="https://github.com/sjgjny386/djy/blob/master/gb/20/10/19/n12487611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：习近平再称韩战胜利 到底谁赢了    >-009fcc?logoWidth=1" title="沈舟：习近平再称韩战胜利 到底谁赢了  " alt="沈舟：习近平再称韩战胜利 到底谁赢了  "></a></p>
-<p><a href="https://github.com/sjgjny386/ntdtv/blob/master/gb/2020/10/19/a102966168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王岐山命运难料 新林彪事件恐现       >-009fcc?logoWidth=1" title="王岐山命运难料 新林彪事件恐现  " alt="王岐山命运难料 新林彪事件恐现  "></a></p>
+<p><a href="https://github.com/sjgjny386/ntdtv/blob/master/gb/2020/10/19/a102966386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟南山“卖药”再遇难堪 人民日报批板蓝根无效>-009fcc?logoWidth=1" title="钟南山“卖药”再遇难堪 人民日报批板蓝根无效  " alt="钟南山“卖药”再遇难堪 人民日报批板蓝根无效  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -258,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://sjgjny386.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?cpkvq">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?qnnuh">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?boqcx">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?xjqap">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -304,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?youik">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?fcrkn">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?szgib">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?jgosi">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -484,11 +486,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/sjgjny386/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/sjgjny386/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/sjgjny386/www/master/index.html?l">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/sjgjny386/www/blob/master/README.md?v#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/sjgjny386/www/blob/master/README.md?w%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/xxkxx" title="分享本平台"></img>
-<br><a href="https://git.io/qiiii">https://git.io/qiiii</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/xxkxx">https://is.gd/xxkxx</a>
+<p><strong><a href="https://github.com/sjgjny386/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/sjgjny386/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/sjgjny386/www/master/index.html?b">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/sjgjny386/www/blob/master/README.md?l#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/sjgjny386/www/blob/master/README.md?e%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ptttt" title="分享本平台"></img>
+<br><a href="https://git.io/mnnnn">https://git.io/mnnnn</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/ptttt">https://is.gd/ptttt</a>
 <br>
 <br>
-<h3><a href="https://sjgjny386.github.io/vd/qr/qr2/#https://github.com/sjgjny386/www/blob/master/README.md?p#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://sjgjny386.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/xxkxx%22%2C%22https://is.gd/uuuu5%22%2C%22https://is.gd/sgggg%22%2C%22https://is.gd/rrrr9%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://sjgjny386.github.io/vd/qr/qr2/#https://github.com/sjgjny386/www/blob/master/README.md?a#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://sjgjny386.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/ptttt%22%2C%22https://is.gd/mxxxx%22%2C%22https://is.gd/rrrrp%22%2C%22https://is.gd/n6666%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
