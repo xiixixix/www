@@ -9,17 +9,17 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/kztpea348/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/kztpea348/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/aaaap">git.io/aaaap</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/32222">git.io/32222</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102967211.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁六家中企及两中国人 蓬佩奥发警告   >-009fcc?logoWidth=1" title="美制裁六家中企及两中国人 蓬佩奥发警告  " alt="美制裁六家中企及两中国人 蓬佩奥发警告  "></a></p>
+<p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102967121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平高调纪念抗美援朝 法媒：中方真的胜了吗>-009fcc?logoWidth=1" title="习近平高调纪念抗美援朝 法媒：中方真的胜了吗？  " alt="习近平高调纪念抗美援朝 法媒：中方真的胜了吗？  "></a></p>
+<p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102967126.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江泽民，曾庆红，孟建柱出手了？       >-009fcc?logoWidth=1" title="江泽民，曾庆红，孟建柱出手了？  " alt="江泽民，曾庆红，孟建柱出手了？  "></a></p>
 <p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102967110.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亨特笔电门 与评拜登大势已去        >-009fcc?logoWidth=1" title="亨特笔电门 与评拜登大势已去  " alt="亨特笔电门 与评拜登大势已去  "></a></p>
-<p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102967055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第三次总统辩论再生变故 川普团队：主题偏向拜>-009fcc?logoWidth=1" title="第三次总统辩论再生变故 川普团队：主题偏向拜登  " alt="第三次总统辩论再生变故 川普团队：主题偏向拜登  "></a></p>
-<p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102967010.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平加速左转 三份密件四次讲话曝光    >-009fcc?logoWidth=1" title="习近平加速左转 三份密件四次讲话曝光  " alt="习近平加速左转 三份密件四次讲话曝光  "></a></p>
-<p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102966945.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/3台电脑？亨特“小伙伴”交出2万6千封邮件 >-009fcc?logoWidth=1" title="3台电脑？亨特“小伙伴”交出2万6千封邮件 拜登阵营坍塌？  " alt="3台电脑？亨特“小伙伴”交出2万6千封邮件 拜登阵营坍塌？  "></a></p>
-<p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/19/a102966385.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五中全会要动中南海大人物？/川普模仿拜登 笑>-009fcc?logoWidth=1" title="五中全会要动中南海大人物？/川普模仿拜登 笑翻华人网民  " alt="五中全会要动中南海大人物？/川普模仿拜登 笑翻华人网民  "></a></p>
+<p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102967096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暗算川普？百出“8645”朱利安尼欲起诉拜登>-009fcc?logoWidth=1" title="暗算川普？百出“8645”朱利安尼欲起诉拜登  " alt="暗算川普？百出“8645”朱利安尼欲起诉拜登  "></a></p>
+<p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102967077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：成都大学书记之死 撕破高校权斗腐败黑幕>-009fcc?logoWidth=1" title="美媒：成都大学书记之死 撕破高校权斗腐败黑幕  " alt="美媒：成都大学书记之死 撕破高校权斗腐败黑幕  "></a></p>
 <p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102967249.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京罕见爆发群体抗议 维权者高喊“还钱”  >-009fcc?logoWidth=1" title="北京罕见爆发群体抗议 维权者高喊“还钱”  " alt="北京罕见爆发群体抗议 维权者高喊“还钱”  "></a></p>
 <p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102967248.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/神启预言：川普成功连任 带领美国人战胜病毒 >-009fcc?logoWidth=1" title="神启预言：川普成功连任 带领美国人战胜病毒  " alt="神启预言：川普成功连任 带领美国人战胜病毒  "></a></p>
 <p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102967188.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/斥拜登丑闻“令人作呕” 朱利安尼：后续还有更>-009fcc?logoWidth=1" title="斥拜登丑闻“令人作呕” 朱利安尼：后续还有更多  " alt="斥拜登丑闻“令人作呕” 朱利安尼：后续还有更多  "></a></p>
@@ -39,16 +39,15 @@
 <p><a href="https://github.com/kztpea348/djy/blob/master/gb/20/10/19/n12487448.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专访《蚕食美国》制片人           >-009fcc?logoWidth=1" title="专访《蚕食美国》制片人  " alt="专访《蚕食美国》制片人  "></a></p>
 <p><a href="https://github.com/kztpea348/djy/blob/master/gb/20/10/20/n12487770.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登家丑闻4连爆 中共人质外交       >-009fcc?logoWidth=1" title="拜登家丑闻4连爆 中共人质外交  " alt="拜登家丑闻4连爆 中共人质外交  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102967096.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/暗算川普？百出“8645”朱利安尼欲起诉拜登>-009fcc?logoWidth=1" title="暗算川普？百出“8645”朱利安尼欲起诉拜登  " alt="暗算川普？百出“8645”朱利安尼欲起诉拜登  "></a></p>
-<p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102967126.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江泽民，曾庆红，孟建柱出手了？       >-009fcc?logoWidth=1" title="江泽民，曾庆红，孟建柱出手了？  " alt="江泽民，曾庆红，孟建柱出手了？  "></a></p>
 <p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/19/a102966773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥梵蒂冈演讲：中共取下神像 换上毛习照片>-009fcc?logoWidth=1" title="蓬佩奥梵蒂冈演讲：中共取下神像 换上毛习照片  " alt="蓬佩奥梵蒂冈演讲：中共取下神像 换上毛习照片  "></a></p>
-<p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/19/a102966931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登电脑门背后是谁在导演？难道预言正在应验中>-009fcc?logoWidth=1" title="拜登电脑门背后是谁在导演？难道预言正在应验中？  " alt="拜登电脑门背后是谁在导演？难道预言正在应验中？  "></a></p>
 <p><a href="https://github.com/kztpea348/djy/blob/master/gb/20/10/19/n12487480.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战狼变流氓 中共忙部署打台湾？       >-009fcc?logoWidth=1" title="战狼变流氓 中共忙部署打台湾？  " alt="战狼变流氓 中共忙部署打台湾？  "></a></p>
 <p><a href="https://github.com/kztpea348/djy/blob/master/gb/20/10/19/n12485959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/派送费急降又欠薪 大陆多地快递员集体罢工  >-009fcc?logoWidth=1" title="派送费急降又欠薪 大陆多地快递员集体罢工  " alt="派送费急降又欠薪 大陆多地快递员集体罢工  "></a></p>
-<p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102967137.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一带一路遭毛思想打击            >-009fcc?logoWidth=1" title="一带一路遭毛思想打击  " alt="一带一路遭毛思想打击  "></a></p>
+<p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102966945.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/3台电脑？亨特“小伙伴”交出2万6千封邮件 >-009fcc?logoWidth=1" title="3台电脑？亨特“小伙伴”交出2万6千封邮件 拜登阵营坍塌？  " alt="3台电脑？亨特“小伙伴”交出2万6千封邮件 拜登阵营坍塌？  "></a></p>
+<p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102967038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗列中共七宗罪：这笔账必有到期的一天  >-009fcc?logoWidth=1" title="纳瓦罗列中共七宗罪：这笔账必有到期的一天  " alt="纳瓦罗列中共七宗罪：这笔账必有到期的一天  "></a></p>
 <p><a href="https://github.com/kztpea348/djy/blob/master/gb/20/10/19/n12486447.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北省长王晓东“隐身” 传中风住院     >-009fcc?logoWidth=1" title="湖北省长王晓东“隐身” 传中风住院  " alt="湖北省长王晓东“隐身” 传中风住院  "></a></p>
 <p><a href="https://github.com/kztpea348/djy/blob/master/gb/20/10/20/n12487933.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中石油前职员杀前雇主夫妇等4人后跳楼身亡  >-009fcc?logoWidth=1" title="中石油前职员杀前雇主夫妇等4人后跳楼身亡  " alt="中石油前职员杀前雇主夫妇等4人后跳楼身亡  "></a></p>
-<p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102967038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗列中共七宗罪：这笔账必有到期的一天  >-009fcc?logoWidth=1" title="纳瓦罗列中共七宗罪：这笔账必有到期的一天  " alt="纳瓦罗列中共七宗罪：这笔账必有到期的一天  "></a></p>
+<p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/19/a102966385.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五中全会要动中南海大人物？/川普模仿拜登 笑>-009fcc?logoWidth=1" title="五中全会要动中南海大人物？/川普模仿拜登 笑翻华人网民  " alt="五中全会要动中南海大人物？/川普模仿拜登 笑翻华人网民  "></a></p>
+<p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/19/a102966931.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登电脑门背后是谁在导演？难道预言正在应验中>-009fcc?logoWidth=1" title="拜登电脑门背后是谁在导演？难道预言正在应验中？  " alt="拜登电脑门背后是谁在导演？难道预言正在应验中？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -260,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://kztpea348.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?iudge">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?iistn">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?xjsnf">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?tlrqh">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?jnqtz">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ejtsx">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?oouhz">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?yclik">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,11 +485,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/kztpea348/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kztpea348/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/kztpea348/www/master/index.html?c">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kztpea348/www/blob/master/README.md?v#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/kztpea348/www/blob/master/README.md?j%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ppcpp" title="分享本平台"></img>
-<br><a href="https://git.io/aaaap">https://git.io/aaaap</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/ppcpp">https://is.gd/ppcpp</a>
+<p><strong><a href="https://github.com/kztpea348/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kztpea348/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/kztpea348/www/master/index.html?g">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kztpea348/www/blob/master/README.md?j#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/kztpea348/www/blob/master/README.md?e%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/prrrr" title="分享本平台"></img>
+<br><a href="https://git.io/32222">https://git.io/32222</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/prrrr">https://is.gd/prrrr</a>
 <br>
 <br>
-<h3><a href="https://kztpea348.github.io/vd/qr/qr2/#https://github.com/kztpea348/www/blob/master/README.md?o#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://kztpea348.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/ppcpp%22%2C%22https://is.gd/zzzzt%22%2C%22https://is.gd/tnnnn%22%2C%22https://is.gd/zzezz%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://kztpea348.github.io/vd/qr/qr2/#https://github.com/kztpea348/www/blob/master/README.md?k#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://kztpea348.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/prrrr%22%2C%22https://is.gd/ummmm%22%2C%22https://is.gd/mzzzz%22%2C%22https://is.gd/qqfqq%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
