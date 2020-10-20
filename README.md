@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/kztpea348/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/kztpea348/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/ygggg">git.io/ygggg</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/ujjjj">git.io/ujjjj</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -20,19 +20,19 @@
 <p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/19/a102966385.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五中全会要动中南海大人物？/川普模仿拜登 笑>-009fcc?logoWidth=1" title="五中全会要动中南海大人物？/川普模仿拜登 笑翻华人网民  " alt="五中全会要动中南海大人物？/川普模仿拜登 笑翻华人网民  "></a></p>
 <p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/19/a102966388.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登疑向中共泄密 导致30名CIA特工遭处决>-009fcc?logoWidth=1" title="拜登疑向中共泄密 导致30名CIA特工遭处决  " alt="拜登疑向中共泄密 导致30名CIA特工遭处决  "></a></p>
 <p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/19/a102966306.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五中全会前异象频现 江泽民老家上万螃蟹上岸 >-009fcc?logoWidth=1" title="五中全会前异象频现 江泽民老家上万螃蟹上岸  " alt="五中全会前异象频现 江泽民老家上万螃蟹上岸  "></a></p>
+<p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102967098.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国第一夫人康复 周二将与川普出席竞选活动 >-009fcc?logoWidth=1" title="美国第一夫人康复 周二将与川普出席竞选活动  " alt="美国第一夫人康复 周二将与川普出席竞选活动  "></a></p>
 <p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102967068.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/牵制中共 美日印澳11月联合海上军演    >-009fcc?logoWidth=1" title="牵制中共 美日印澳11月联合海上军演  " alt="牵制中共 美日印澳11月联合海上军演  "></a></p>
 <p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102967077.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：成都大学书记之死 撕破高校权斗腐败黑幕>-009fcc?logoWidth=1" title="美媒：成都大学书记之死 撕破高校权斗腐败黑幕  " alt="美媒：成都大学书记之死 撕破高校权斗腐败黑幕  "></a></p>
 <p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102967055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/第三次总统辩论再生变故 川普团队：主题偏向拜>-009fcc?logoWidth=1" title="第三次总统辩论再生变故 川普团队：主题偏向拜登  " alt="第三次总统辩论再生变故 川普团队：主题偏向拜登  "></a></p>
 <p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102967013.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江泽民老家数万螃蟹密集上岸         >-009fcc?logoWidth=1" title="江泽民老家数万螃蟹密集上岸  " alt="江泽民老家数万螃蟹密集上岸  "></a></p>
-<p><a href="https://github.com/kztpea348/ntdtv/blob/master/gb/2020/10/20/a102967038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗列中共七宗罪：这笔账必有到期的一天  >-009fcc?logoWidth=1" title="纳瓦罗列中共七宗罪：这笔账必有到期的一天  " alt="纳瓦罗列中共七宗罪：这笔账必有到期的一天  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/kztpea348/djy/blob/master/gb/20/10/19/n12486819.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民众厦门举横幅要中共下台          >-009fcc?logoWidth=1" title="民众厦门举横幅要中共下台  " alt="民众厦门举横幅要中共下台  "></a></p>
-<p><a href="https://github.com/kztpea348/djy/blob/master/gb/20/10/19/n12485538.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽时围川普救拜登 中共五中换人？      >-009fcc?logoWidth=1" title="纽时围川普救拜登 中共五中换人？  " alt="纽时围川普救拜登 中共五中换人？  "></a></p>
-<p><a href="https://github.com/kztpea348/djy/blob/master/gb/20/10/19/n12487611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：习近平再称韩战胜利 到底谁赢了    >-009fcc?logoWidth=1" title="沈舟：习近平再称韩战胜利 到底谁赢了  " alt="沈舟：习近平再称韩战胜利 到底谁赢了  "></a></p>
-<p><a href="https://github.com/kztpea348/djy/blob/master/gb/20/10/19/n12487059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一带一路遭毛思想打击            >-009fcc?logoWidth=1" title="一带一路遭毛思想打击  " alt="一带一路遭毛思想打击  "></a></p>
+<p><a href="https://github.com/kztpea348/djy/blob/master/gb/20/10/19/n12487474.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/优胜教育爆雷 逾千家长老师维权       >-009fcc?logoWidth=1" title="优胜教育爆雷 逾千家长老师维权  " alt="优胜教育爆雷 逾千家长老师维权  "></a></p>
+<p><a href="https://github.com/kztpea348/djy/blob/master/gb/20/10/20/n12487770.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登家丑闻4连爆 中共人质外交       >-009fcc?logoWidth=1" title="拜登家丑闻4连爆 中共人质外交  " alt="拜登家丑闻4连爆 中共人质外交  "></a></p>
 <p><a href="https://github.com/kztpea348/djy/blob/master/gb/20/10/19/n12487480.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战狼变流氓 中共忙部署打台湾？       >-009fcc?logoWidth=1" title="战狼变流氓 中共忙部署打台湾？  " alt="战狼变流氓 中共忙部署打台湾？  "></a></p>
+<p><a href="https://github.com/kztpea348/djy/blob/master/gb/20/10/19/n12487611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：习近平再称韩战胜利 到底谁赢了    >-009fcc?logoWidth=1" title="沈舟：习近平再称韩战胜利 到底谁赢了  " alt="沈舟：习近平再称韩战胜利 到底谁赢了  "></a></p>
+<p><a href="https://github.com/kztpea348/djy/blob/master/gb/20/10/20/n12487956.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朱利安尼欲起诉拜登 称或面临风险      >-009fcc?logoWidth=1" title="朱利安尼欲起诉拜登 称或面临风险  " alt="朱利安尼欲起诉拜登 称或面临风险  "></a></p>
 <p><a href="https://github.com/kztpea348/djy/blob/master/gb/20/10/17/n12482843.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/严控意识形态 习近平左转三节点       >-009fcc?logoWidth=1" title="严控意识形态 习近平左转三节点  " alt="严控意识形态 习近平左转三节点  "></a></p>
-<p><a href="https://github.com/kztpea348/djy/blob/master/gb/20/10/19/n12486465.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/印方证实逮捕并拘禁中共士兵“将按程序送回” >-009fcc?logoWidth=1" title="印方证实逮捕并拘禁中共士兵“将按程序送回”  " alt="印方证实逮捕并拘禁中共士兵“将按程序送回”  "></a></p>
+<p><a href="https://github.com/kztpea348/djy/blob/master/gb/20/10/19/n12486727.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/奥巴马领导下没有过经济繁荣         >-009fcc?logoWidth=1" title="奥巴马领导下没有过经济繁荣  " alt="奥巴马领导下没有过经济繁荣  "></a></p>
 <p><a href="https://github.com/kztpea348/djy/blob/master/gb/20/10/16/n12481651.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习突返京或3原因 拜登家丑闻连爆      >-009fcc?logoWidth=1" title="习突返京或3原因 拜登家丑闻连爆  " alt="习突返京或3原因 拜登家丑闻连爆  "></a></p>
 <p><a href="https://github.com/kztpea348/djy/blob/master/gb/20/10/20/n12487884.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北高院副院长在办公室自杀身亡       >-009fcc?logoWidth=1" title="湖北高院副院长在办公室自杀身亡  " alt="湖北高院副院长在办公室自杀身亡  "></a></p>
 <p><a href="https://github.com/kztpea348/djy/blob/master/gb/20/10/19/n12485959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/派送费急降又欠薪 大陆多地快递员集体罢工  >-009fcc?logoWidth=1" title="派送费急降又欠薪 大陆多地快递员集体罢工  " alt="派送费急降又欠薪 大陆多地快递员集体罢工  "></a></p>
@@ -262,9 +262,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://kztpea348.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?sblfd">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?epqph">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?jkpkg">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ksjqq">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -308,8 +308,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?engpc">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?qbgnx">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?cwyul">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?pkkpc">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -489,10 +489,10 @@
 <hr>
 <div align="center">
 <p><strong><a href="https://github.com/kztpea348/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kztpea348/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/kztpea348/www/master/index.html?y">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kztpea348/www/blob/master/README.md?f#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/kztpea348/www/blob/master/README.md?a%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/rrrr2" title="分享本平台"></img>
-<br><a href="https://git.io/ygggg">https://git.io/ygggg</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/rrrr2">https://is.gd/rrrr2</a>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kztpea348/www/blob/master/README.md?s#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/kztpea348/www/blob/master/README.md?p%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/yyyy3" title="分享本平台"></img>
+<br><a href="https://git.io/ujjjj">https://git.io/ujjjj</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/yyyy3">https://is.gd/yyyy3</a>
 <br>
 <br>
-<h3><a href="https://kztpea348.github.io/vd/qr/qr2/#https://github.com/kztpea348/www/blob/master/README.md?a#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://kztpea348.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/rrrr2%22%2C%22https://is.gd/ssbss%22%2C%22https://is.gd/ztttt%22%2C%22https://is.gd/qqyqq%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://kztpea348.github.io/vd/qr/qr2/#https://github.com/kztpea348/www/blob/master/README.md?j#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://kztpea348.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/yyyy3%22%2C%22https://is.gd/yyyyh%22%2C%22https://is.gd/zz2zz%22%2C%22https://is.gd/rrrrk%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
