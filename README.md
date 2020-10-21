@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/tiprjf3222/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tiprjf3222/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/brrrr">git.io/brrrr</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/77777777">git.io/77777777</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -40,17 +40,16 @@
 <p><a href="https://github.com/tiprjf3222/djy/blob/master/gb/20/10/20/n12489240.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共党媒 两大报社撤换社长         >-009fcc?logoWidth=1" title="中共党媒 两大报社撤换社长  " alt="中共党媒 两大报社撤换社长  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tiprjf3222/ntdtv/blob/master/gb/2020/10/21/a102967923.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平王岐山突然同框出镜 川普胜负看十个指标>-009fcc?logoWidth=1" title="习近平王岐山突然同框出镜 川普胜负看十个指标  " alt="习近平王岐山突然同框出镜 川普胜负看十个指标  "></a></p>
-<p><a href="https://github.com/tiprjf3222/ntdtv/blob/master/gb/2020/10/20/a102967762.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美助理国务卿：对中共活摘器官已展开调查   >-009fcc?logoWidth=1" title="美助理国务卿：对中共活摘器官已展开调查  " alt="美助理国务卿：对中共活摘器官已展开调查  "></a></p>
 <p><a href="https://github.com/tiprjf3222/djy/blob/master/gb/20/10/20/n12489240.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两大报社换社长 庹震任人民日报社长   >-009fcc?logoWidth=1" title="中共两大报社换社长 庹震任人民日报社长  " alt="中共两大报社换社长 庹震任人民日报社长  "></a></p>
+<p><a href="https://github.com/tiprjf3222/ntdtv/blob/master/gb/2020/10/20/a102967762.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美助理国务卿：对中共活摘器官已展开调查   >-009fcc?logoWidth=1" title="美助理国务卿：对中共活摘器官已展开调查  " alt="美助理国务卿：对中共活摘器官已展开调查  "></a></p>
 <p><a href="https://github.com/tiprjf3222/ntdtv/blob/master/gb/2020/10/19/a102966872.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一部影片，告诉你今天美国社会乱象及拜登腐败门>-009fcc?logoWidth=1" title="一部影片，告诉你今天美国社会乱象及拜登腐败门源于何处  " alt="一部影片，告诉你今天美国社会乱象及拜登腐败门源于何处  "></a></p>
 <p><a href="https://github.com/tiprjf3222/djy/blob/master/gb/20/10/20/n12487884.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北高院副院长在办公室自杀身亡       >-009fcc?logoWidth=1" title="湖北高院副院长在办公室自杀身亡  " alt="湖北高院副院长在办公室自杀身亡  "></a></p>
 <p><a href="https://github.com/tiprjf3222/djy/blob/master/gb/20/10/20/n12489876.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普谈大选：美国梦和社会主义地狱间选择   >-009fcc?logoWidth=1" title="川普谈大选：美国梦和社会主义地狱间选择  " alt="川普谈大选：美国梦和社会主义地狱间选择  "></a></p>
 <p><a href="https://github.com/tiprjf3222/ntdtv/blob/master/gb/2020/10/20/a102967352.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/芯片烂尾 习近平砸钱出事 发改委紧急发声  >-009fcc?logoWidth=1" title="芯片烂尾 习近平砸钱出事 发改委紧急发声  " alt="芯片烂尾 习近平砸钱出事 发改委紧急发声  "></a></p>
-<p><a href="https://github.com/tiprjf3222/ntdtv/blob/master/gb/2020/10/20/a102967294.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/耿潇男被正式批捕 中国社会不满日增     >-009fcc?logoWidth=1" title="耿潇男被正式批捕 中国社会不满日增  " alt="耿潇男被正式批捕 中国社会不满日增  "></a></p>
 <p><a href="https://github.com/tiprjf3222/djy/blob/master/gb/20/10/20/n12489305.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“造芯热”烂尾遍地 业界高管揭颓势   >-009fcc?logoWidth=1" title="中共“造芯热”烂尾遍地 业界高管揭颓势  " alt="中共“造芯热”烂尾遍地 业界高管揭颓势  "></a></p>
 <p><a href="https://github.com/tiprjf3222/djy/blob/master/gb/20/10/21/n12490099.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普总统的疫情应对和科学          >-009fcc?logoWidth=1" title="川普总统的疫情应对和科学  " alt="川普总统的疫情应对和科学  "></a></p>
+<p><a href="https://github.com/tiprjf3222/ntdtv/blob/master/gb/2020/10/20/a102967294.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/耿潇男被正式批捕 中国社会不满日增     >-009fcc?logoWidth=1" title="耿潇男被正式批捕 中国社会不满日增  " alt="耿潇男被正式批捕 中国社会不满日增  "></a></p>
 <p><a href="https://github.com/tiprjf3222/ntdtv/blob/master/gb/2020/10/20/a102967612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中石油前员工举报贪腐屡遭报复 连杀4人后自杀>-009fcc?logoWidth=1" title="中石油前员工举报贪腐屡遭报复 连杀4人后自杀  " alt="中石油前员工举报贪腐屡遭报复 连杀4人后自杀  "></a></p>
-<p><a href="https://github.com/tiprjf3222/ntdtv/blob/master/gb/2020/10/21/a102967884.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/5国财富版图及美版太子党的中国梦      >-009fcc?logoWidth=1" title="5国财富版图及美版太子党的中国梦  " alt="5国财富版图及美版太子党的中国梦  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -262,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://tiprjf3222.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?hctiw">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?wqhak">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?zqhig">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?jltna">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -308,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?tmqvq">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?vhqjb">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?wjenr">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?fxviv">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -488,11 +487,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/tiprjf3222/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tiprjf3222/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tiprjf3222/www/master/index.html?y">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tiprjf3222/www/blob/master/README.md?v#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/tiprjf3222/www/blob/master/README.md?y%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/u8888" title="分享本平台"></img>
-<br><a href="https://git.io/brrrr">https://git.io/brrrr</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/u8888">https://is.gd/u8888</a>
+<p><strong><a href="https://github.com/tiprjf3222/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tiprjf3222/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tiprjf3222/www/master/index.html?u">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tiprjf3222/www/blob/master/README.md?y#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/tiprjf3222/www/blob/master/README.md?a%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/r6666" title="分享本平台"></img>
+<br><a href="https://git.io/77777777">https://git.io/77777777</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/r6666">https://is.gd/r6666</a>
 <br>
 <br>
-<h3><a href="https://tiprjf3222.github.io/vd/qr/qr2/#https://github.com/tiprjf3222/www/blob/master/README.md?l#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://tiprjf3222.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/u8888%22%2C%22https://is.gd/qhhhh%22%2C%22https://is.gd/pppp6%22%2C%22https://is.gd/qkkkk%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://tiprjf3222.github.io/vd/qr/qr2/#https://github.com/tiprjf3222/www/blob/master/README.md?e#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://tiprjf3222.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/r6666%22%2C%22https://is.gd/nkkkk%22%2C%22https://is.gd/qqqqy%22%2C%22https://is.gd/pnnnn%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
