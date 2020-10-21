@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/outgam354/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/outgam354/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/bbbbc">git.io/bbbbc</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/y9999">git.io/y9999</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -23,8 +23,8 @@
 <p><a href="https://github.com/outgam354/ntdtv/blob/master/gb/2020/10/21/a102968571.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/媒体再爆拜登家族与中共关系证据       >-009fcc?logoWidth=1" title="媒体再爆拜登家族与中共关系证据  " alt="媒体再爆拜登家族与中共关系证据  "></a></p>
 <p><a href="https://github.com/outgam354/ntdtv/blob/master/gb/2020/10/21/a102968474.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美参院跨党提案加强美台关系 要求升级驻台机构>-009fcc?logoWidth=1" title="美参院跨党提案加强美台关系 要求升级驻台机构  " alt="美参院跨党提案加强美台关系 要求升级驻台机构  "></a></p>
 <p><a href="https://github.com/outgam354/ntdtv/blob/master/gb/2020/10/21/a102968551.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/生产阿片药物贻害全球 普渡制药认罪和解   >-009fcc?logoWidth=1" title="生产阿片药物贻害全球 普渡制药认罪和解  " alt="生产阿片药物贻害全球 普渡制药认罪和解  "></a></p>
+<p><a href="https://github.com/outgam354/ntdtv/blob/master/gb/2020/10/21/a102968521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙古突发火灾 玉米地燃成“火海”     >-009fcc?logoWidth=1" title="内蒙古突发火灾 玉米地燃成“火海”  " alt="内蒙古突发火灾 玉米地燃成“火海”  "></a></p>
 <p><a href="https://github.com/outgam354/ntdtv/blob/master/gb/2020/10/21/a102968493.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共公布《国防法》修订草案 增加主动开战条件>-009fcc?logoWidth=1" title="中共公布《国防法》修订草案 增加主动开战条件  " alt="中共公布《国防法》修订草案 增加主动开战条件  "></a></p>
-<p><a href="https://github.com/outgam354/ntdtv/blob/master/gb/2020/10/21/a102968486.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国制裁 牵出中共在港“白手套”      >-009fcc?logoWidth=1" title="美国制裁 牵出中共在港“白手套”  " alt="美国制裁 牵出中共在港“白手套”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/outgam354/djy/blob/master/gb/20/10/20/n12489579.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：王岐山将被打倒？林彪事件将重演？  >-009fcc?logoWidth=1" title="王友群：王岐山将被打倒？林彪事件将重演？  " alt="王友群：王岐山将被打倒？林彪事件将重演？  "></a></p>
 <p><a href="https://github.com/outgam354/djy/blob/master/gb/20/10/21/n12490151.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亨特与未成年女童色情照 朱利安尼已报警   >-009fcc?logoWidth=1" title="亨特与未成年女童色情照 朱利安尼已报警  " alt="亨特与未成年女童色情照 朱利安尼已报警  "></a></p>
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://outgam354.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ohpbc">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ypwol">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?aekxo">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?jxfgi">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?afldw">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?awggs">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?vyeyi">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?qzote">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,11 +485,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/outgam354/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/outgam354/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/outgam354/www/master/index.html?f">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/outgam354/www/blob/master/README.md?z#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/outgam354/www/blob/master/README.md?r%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/tttty" title="分享本平台"></img>
-<br><a href="https://git.io/bbbbc">https://git.io/bbbbc</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/tttty">https://is.gd/tttty</a>
+<p><strong><a href="https://github.com/outgam354/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/outgam354/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/outgam354/www/master/index.html?v">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/outgam354/www/blob/master/README.md?d#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/outgam354/www/blob/master/README.md?f%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/yymyy" title="分享本平台"></img>
+<br><a href="https://git.io/y9999">https://git.io/y9999</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/yymyy">https://is.gd/yymyy</a>
 <br>
 <br>
-<h3><a href="https://outgam354.github.io/vd/qr/qr2/#https://github.com/outgam354/www/blob/master/README.md?p#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://outgam354.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/tttty%22%2C%22https://is.gd/zzzzf%22%2C%22https://is.gd/qqzqq%22%2C%22https://is.gd/ttttd%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://outgam354.github.io/vd/qr/qr2/#https://github.com/outgam354/www/blob/master/README.md?t#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://outgam354.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/yymyy%22%2C%22https://is.gd/xxhxx%22%2C%22https://is.gd/zkkkk%22%2C%22https://is.gd/qqkqq%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
