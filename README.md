@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/outgam354/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/outgam354/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/ccccc">git.io/ccccc</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/cpppp">git.io/cpppp</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/outgam354/ntdtv/blob/master/gb/2020/10/21/a102968053.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内幕：拜登家族与习近平之间 不得不说的故事 >-009fcc?logoWidth=1" title="内幕：拜登家族与习近平之间 不得不说的故事  " alt="内幕：拜登家族与习近平之间 不得不说的故事  "></a></p>
 <p><a href="https://github.com/outgam354/ntdtv/blob/master/gb/2020/10/21/a102968038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平加紧调动人马 五中全会前风声鹤唳   >-009fcc?logoWidth=1" title="习近平加紧调动人马 五中全会前风声鹤唳  " alt="习近平加紧调动人马 五中全会前风声鹤唳  "></a></p>
 <p><a href="https://github.com/outgam354/ntdtv/blob/master/gb/2020/10/21/a102967957.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“拜家子”与女童色情照 朱利安尼已送交警局 >-009fcc?logoWidth=1" title="“拜家子”与女童色情照 朱利安尼已送交警局  " alt="“拜家子”与女童色情照 朱利安尼已送交警局  "></a></p>
+<p><a href="https://github.com/outgam354/ntdtv/blob/master/gb/2020/10/21/a102968344.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国务卿蓬佩奥举行新闻发布会        >-009fcc?logoWidth=1" title="美国务卿蓬佩奥举行新闻发布会  " alt="美国务卿蓬佩奥举行新闻发布会  "></a></p>
 <p><a href="https://github.com/outgam354/ntdtv/blob/master/gb/2020/10/21/a102968311.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/提供2.6万封电邮后 亨特前商业伙伴从监狱转>-009fcc?logoWidth=1" title="提供2.6万封电邮后 亨特前商业伙伴从监狱转移  " alt="提供2.6万封电邮后 亨特前商业伙伴从监狱转移  "></a></p>
 <p><a href="https://github.com/outgam354/ntdtv/blob/master/gb/2020/10/18/a102965885.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/参与迫害法轮功 上海75人遭厄运 公检法居多>-009fcc?logoWidth=1" title="参与迫害法轮功 上海75人遭厄运 公检法居多  " alt="参与迫害法轮功 上海75人遭厄运 公检法居多  "></a></p>
 <p><a href="https://github.com/outgam354/ntdtv/blob/master/gb/2020/10/20/a102967677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共统计局发文总结前3季经济 2年数据前后矛>-009fcc?logoWidth=1" title="中共统计局发文总结前3季经济 2年数据前后矛盾  " alt="中共统计局发文总结前3季经济 2年数据前后矛盾  "></a></p>
-<p><a href="https://github.com/outgam354/ntdtv/blob/master/gb/2020/10/19/a102966143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/青岛疫情被政治扑灭？“全阴性”背后藏重大隐患>-009fcc?logoWidth=1" title="青岛疫情被政治扑灭？“全阴性”背后藏重大隐患  " alt="青岛疫情被政治扑灭？“全阴性”背后藏重大隐患  "></a></p>
-<p><a href="https://github.com/outgam354/ntdtv/blob/master/gb/2020/10/21/a102968133.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/想生女儿意外迎来5胞胎 她照完超音波哭了1小>-009fcc?logoWidth=1" title="想生女儿意外迎来5胞胎 她照完超音波哭了1小时  " alt="想生女儿意外迎来5胞胎 她照完超音波哭了1小时  "></a></p>
+<p><a href="https://github.com/outgam354/ntdtv/blob/master/gb/2020/10/21/a102968219.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“权贵劫掠经济”剥削压迫百姓      >-009fcc?logoWidth=1" title="中共“权贵劫掠经济”剥削压迫百姓  " alt="中共“权贵劫掠经济”剥削压迫百姓  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/outgam354/djy/blob/master/gb/20/10/21/n12490151.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亨特与未成年女童色情照 朱利安尼已报警   >-009fcc?logoWidth=1" title="亨特与未成年女童色情照 朱利安尼已报警  " alt="亨特与未成年女童色情照 朱利安尼已报警  "></a></p>
 <p><a href="https://github.com/outgam354/djy/blob/master/gb/20/10/20/n12487902.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登家拿下的几笔中国十亿大单        >-009fcc?logoWidth=1" title="拜登家拿下的几笔中国十亿大单  " alt="拜登家拿下的几笔中国十亿大单  "></a></p>
@@ -41,14 +41,13 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/outgam354/ntdtv/blob/master/gb/2020/10/20/a102967126.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江泽民，曾庆红，孟建柱出手了？       >-009fcc?logoWidth=1" title="江泽民，曾庆红，孟建柱出手了？  " alt="江泽民，曾庆红，孟建柱出手了？  "></a></p>
 <p><a href="https://github.com/outgam354/ntdtv/blob/master/gb/2020/10/16/a102964372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普拜登终场辩论 精彩可期         >-009fcc?logoWidth=1" title="川普拜登终场辩论 精彩可期  " alt="川普拜登终场辩论 精彩可期  "></a></p>
-<p><a href="https://github.com/outgam354/ntdtv/blob/master/gb/2020/10/21/a102968121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亨特·拜登和中共的台湾牵线人        >-009fcc?logoWidth=1" title="亨特·拜登和中共的台湾牵线人  " alt="亨特·拜登和中共的台湾牵线人  "></a></p>
 <p><a href="https://github.com/outgam354/djy/blob/master/gb/20/10/20/n12489978.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普拜登冲刺 美遏制中共有15牌      >-009fcc?logoWidth=1" title="川普拜登冲刺 美遏制中共有15牌  " alt="川普拜登冲刺 美遏制中共有15牌  "></a></p>
 <p><a href="https://github.com/outgam354/djy/blob/master/gb/20/10/21/n12490382.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平两因素决定攻台时间表？        >-009fcc?logoWidth=1" title="习近平两因素决定攻台时间表？  " alt="习近平两因素决定攻台时间表？  "></a></p>
+<p><a href="https://github.com/outgam354/ntdtv/blob/master/gb/2020/10/21/a102968121.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亨特·拜登和中共的台湾牵线人        >-009fcc?logoWidth=1" title="亨特·拜登和中共的台湾牵线人  " alt="亨特·拜登和中共的台湾牵线人  "></a></p>
 <p><a href="https://github.com/outgam354/ntdtv/blob/master/gb/2020/10/21/a102967814.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“战狼”变“疯狗” 习磨刀“东风17” 2个>-009fcc?logoWidth=1" title="“战狼”变“疯狗” 习磨刀“东风17” 2个原因决定攻台时间表？  " alt="“战狼”变“疯狗” 习磨刀“东风17” 2个原因决定攻台时间表？  "></a></p>
 <p><a href="https://github.com/outgam354/djy/blob/master/gb/20/10/21/n12490614.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/开盘6天就爆雷 爱尚破骗子底线       >-009fcc?logoWidth=1" title="开盘6天就爆雷 爱尚破骗子底线  " alt="开盘6天就爆雷 爱尚破骗子底线  "></a></p>
 <p><a href="https://github.com/outgam354/djy/blob/master/gb/20/10/21/n12490348.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普胜负看十指标 拜登选前隐身       >-009fcc?logoWidth=1" title="川普胜负看十指标 拜登选前隐身  " alt="川普胜负看十指标 拜登选前隐身  "></a></p>
 <p><a href="https://github.com/outgam354/ntdtv/blob/master/gb/2020/10/21/a102968066.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/老井冒烟预言应验？四川今发生4.6级地震  >-009fcc?logoWidth=1" title="老井冒烟预言应验？四川今发生4.6级地震  " alt="老井冒烟预言应验？四川今发生4.6级地震  "></a></p>
-<p><a href="https://github.com/outgam354/ntdtv/blob/master/gb/2020/10/21/a102967953.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/心肌梗塞7大征兆别轻忽！原因、症状和自救方法>-009fcc?logoWidth=1" title="心肌梗塞7大征兆别轻忽！原因、症状和自救方法全图解  " alt="心肌梗塞7大征兆别轻忽！原因、症状和自救方法全图解  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -260,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://outgam354.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?rnvra">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ecqpa">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?hxdqn">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?mthvc">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ssivy">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?dgbgn">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?gilpq">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?nwade">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,11 +485,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/outgam354/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/outgam354/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/outgam354/www/master/index.html?i">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/outgam354/www/blob/master/README.md?h#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/outgam354/www/blob/master/README.md?p%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ssssx" title="分享本平台"></img>
-<br><a href="https://git.io/ccccc">https://git.io/ccccc</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/ssssx">https://is.gd/ssssx</a>
+<p><strong><a href="https://github.com/outgam354/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/outgam354/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/outgam354/www/master/index.html?l">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/outgam354/www/blob/master/README.md?u#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/outgam354/www/blob/master/README.md?v%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/qqgqq" title="分享本平台"></img>
+<br><a href="https://git.io/cpppp">https://git.io/cpppp</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/qqgqq">https://is.gd/qqgqq</a>
 <br>
 <br>
-<h3><a href="https://outgam354.github.io/vd/qr/qr2/#https://github.com/outgam354/www/blob/master/README.md?u#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://outgam354.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/ssssx%22%2C%22https://is.gd/zzzzb%22%2C%22https://is.gd/ttytt%22%2C%22https://is.gd/ppppf%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://outgam354.github.io/vd/qr/qr2/#https://github.com/outgam354/www/blob/master/README.md?n#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://outgam354.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/qqgqq%22%2C%22https://is.gd/mmmm9%22%2C%22https://is.gd/zaaaa%22%2C%22https://is.gd/ttutt%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
