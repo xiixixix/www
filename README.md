@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/tiprjf3222/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tiprjf3222/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/k2222">git.io/k2222</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/u6666">git.io/u6666</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/tiprjf3222/ntdtv/blob/master/gb/2020/10/21/a102967926.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普促司法调查拜登家族丑闻         >-009fcc?logoWidth=1" title="川普促司法调查拜登家族丑闻  " alt="川普促司法调查拜登家族丑闻  "></a></p>
 <p><a href="https://github.com/tiprjf3222/ntdtv/blob/master/gb/2020/10/21/a102967876.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五中全会临近 中共两大喉舌换社长      >-009fcc?logoWidth=1" title="五中全会临近 中共两大喉舌换社长  " alt="五中全会临近 中共两大喉舌换社长  "></a></p>
 <p><a href="https://github.com/tiprjf3222/ntdtv/blob/master/gb/2020/10/21/a102967859.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习警告赵乐际周强？五中全会前王林清罕见发声 >-009fcc?logoWidth=1" title="习警告赵乐际周强？五中全会前王林清罕见发声  " alt="习警告赵乐际周强？五中全会前王林清罕见发声  "></a></p>
+<p><a href="https://github.com/tiprjf3222/ntdtv/blob/master/gb/2020/10/21/a102968020.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/青岛疫情被政治扑灭？“全阴性”背后藏重大隐患>-009fcc?logoWidth=1" title="青岛疫情被政治扑灭？“全阴性”背后藏重大隐患  " alt="青岛疫情被政治扑灭？“全阴性”背后藏重大隐患  "></a></p>
 <p><a href="https://github.com/tiprjf3222/ntdtv/blob/master/gb/2020/10/21/a102967960.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/五中全会前夕 中共高官密集落马       >-009fcc?logoWidth=1" title="五中全会前夕 中共高官密集落马  " alt="五中全会前夕 中共高官密集落马  "></a></p>
 <p><a href="https://github.com/tiprjf3222/ntdtv/blob/master/gb/2020/10/21/a102967860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情冲击 国泰航空大裁员 港龙即日起停运  >-009fcc?logoWidth=1" title="疫情冲击 国泰航空大裁员 港龙即日起停运  " alt="疫情冲击 国泰航空大裁员 港龙即日起停运  "></a></p>
 <p><a href="https://github.com/tiprjf3222/ntdtv/blob/master/gb/2020/10/16/a102964372.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普拜登终场辩论 精彩可期         >-009fcc?logoWidth=1" title="川普拜登终场辩论 精彩可期  " alt="川普拜登终场辩论 精彩可期  "></a></p>
 <p><a href="https://github.com/tiprjf3222/ntdtv/blob/master/gb/2020/10/21/a102967861.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国制裁香港公司 牵出中国神秘“白手套”  >-009fcc?logoWidth=1" title="美国制裁香港公司 牵出中国神秘“白手套”  " alt="美国制裁香港公司 牵出中国神秘“白手套”  "></a></p>
-<p><a href="https://github.com/tiprjf3222/ntdtv/blob/master/gb/2020/10/21/a102967850.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京爆发群体抗议              >-009fcc?logoWidth=1" title="北京爆发群体抗议  " alt="北京爆发群体抗议  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tiprjf3222/djy/blob/master/gb/20/10/21/n12490151.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亨特与未成年女童色情照 朱利安尼已报警   >-009fcc?logoWidth=1" title="亨特与未成年女童色情照 朱利安尼已报警  " alt="亨特与未成年女童色情照 朱利安尼已报警  "></a></p>
 <p><a href="https://github.com/tiprjf3222/djy/blob/master/gb/20/10/20/n12487902.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登家拿下的几笔中国十亿大单        >-009fcc?logoWidth=1" title="拜登家拿下的几笔中国十亿大单  " alt="拜登家拿下的几笔中国十亿大单  "></a></p>
@@ -35,9 +35,9 @@
 <p><a href="https://github.com/tiprjf3222/djy/blob/master/gb/20/10/19/n12487531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李辰：“华尔街之王”和中共的关系      >-009fcc?logoWidth=1" title="李辰：“华尔街之王”和中共的关系  " alt="李辰：“华尔街之王”和中共的关系  "></a></p>
 <p><a href="https://github.com/tiprjf3222/djy/blob/master/gb/20/10/16/n12481651.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习突返京或3原因 拜登家丑闻连爆      >-009fcc?logoWidth=1" title="习突返京或3原因 拜登家丑闻连爆  " alt="习突返京或3原因 拜登家丑闻连爆  "></a></p>
 <p><a href="https://github.com/tiprjf3222/djy/blob/master/gb/20/10/21/n12489911.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/希拉里“电邮门”里的中国信息 （1）    >-009fcc?logoWidth=1" title="希拉里“电邮门”里的中国信息 （1）  " alt="希拉里“电邮门”里的中国信息 （1）  "></a></p>
+<p><a href="https://github.com/tiprjf3222/djy/blob/master/gb/20/10/21/n12490774.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疑越南战斗机与中共军机对峙 最近仅十几米  >-009fcc?logoWidth=1" title="疑越南战斗机与中共军机对峙 最近仅十几米  " alt="疑越南战斗机与中共军机对峙 最近仅十几米  "></a></p>
 <p><a href="https://github.com/tiprjf3222/djy/blob/master/gb/20/10/21/n12490291.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登子与女童色情资料被交警局        >-009fcc?logoWidth=1" title="拜登子与女童色情资料被交警局  " alt="拜登子与女童色情资料被交警局  "></a></p>
 <p><a href="https://github.com/tiprjf3222/djy/blob/master/gb/20/10/21/n12490348.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普胜负看十指标 拜登选前隐身       >-009fcc?logoWidth=1" title="川普胜负看十指标 拜登选前隐身  " alt="川普胜负看十指标 拜登选前隐身  "></a></p>
-<p><a href="https://github.com/tiprjf3222/djy/blob/master/gb/20/10/20/n12489240.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共党媒 两大报社撤换社长         >-009fcc?logoWidth=1" title="中共党媒 两大报社撤换社长  " alt="中共党媒 两大报社撤换社长  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tiprjf3222/ntdtv/blob/master/gb/2020/10/21/a102967923.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平王岐山突然同框出镜 川普胜负看十个指标>-009fcc?logoWidth=1" title="习近平王岐山突然同框出镜 川普胜负看十个指标  " alt="习近平王岐山突然同框出镜 川普胜负看十个指标  "></a></p>
 <p><a href="https://github.com/tiprjf3222/djy/blob/master/gb/20/10/20/n12489240.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两大报社换社长 庹震任人民日报社长   >-009fcc?logoWidth=1" title="中共两大报社换社长 庹震任人民日报社长  " alt="中共两大报社换社长 庹震任人民日报社长  "></a></p>
@@ -261,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://tiprjf3222.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?avmqm">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?jrvbf">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?guabt">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?zxgos">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?hlpnn">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?uymry">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?zlxrj">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?unmsc">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,11 +487,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/tiprjf3222/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tiprjf3222/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tiprjf3222/www/master/index.html?y">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tiprjf3222/www/blob/master/README.md?p#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/tiprjf3222/www/blob/master/README.md?e%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/pkkkk" title="分享本平台"></img>
-<br><a href="https://git.io/k2222">https://git.io/k2222</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/pkkkk">https://is.gd/pkkkk</a>
+<p><strong><a href="https://github.com/tiprjf3222/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tiprjf3222/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tiprjf3222/www/master/index.html?e">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tiprjf3222/www/blob/master/README.md?n#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/tiprjf3222/www/blob/master/README.md?w%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/mmmm2" title="分享本平台"></img>
+<br><a href="https://git.io/u6666">https://git.io/u6666</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/mmmm2">https://is.gd/mmmm2</a>
 <br>
 <br>
-<h3><a href="https://tiprjf3222.github.io/vd/qr/qr2/#https://github.com/tiprjf3222/www/blob/master/README.md?w#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://tiprjf3222.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/pkkkk%22%2C%22https://is.gd/22y22%22%2C%22https://is.gd/uuuu6%22%2C%22https://is.gd/rmmmm%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://tiprjf3222.github.io/vd/qr/qr2/#https://github.com/tiprjf3222/www/blob/master/README.md?l#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://tiprjf3222.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/mmmm2%22%2C%22https://is.gd/rrrrx%22%2C%22https://is.gd/xzzzz%22%2C%22https://is.gd/zztzz%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
