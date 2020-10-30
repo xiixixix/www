@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/kcypup330/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/kcypup330/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/h8888">git.io/h8888</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/f3333">git.io/f3333</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/kcypup330/ntdtv/blob/master/gb/2020/10/30/a102975097.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王沪宁罕见卸下一职 中共最高智囊机构换人  >-009fcc?logoWidth=1" title="王沪宁罕见卸下一职 中共最高智囊机构换人  " alt="王沪宁罕见卸下一职 中共最高智囊机构换人  "></a></p>
 <p><a href="https://github.com/kcypup330/ntdtv/blob/master/gb/2020/10/30/a102975044.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国疫情四起 山东青岛再爆院内感染     >-009fcc?logoWidth=1" title="中国疫情四起 山东青岛再爆院内感染  " alt="中国疫情四起 山东青岛再爆院内感染  "></a></p>
 <p><a href="https://github.com/kcypup330/ntdtv/blob/master/gb/2020/10/30/a102975016.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平要超邓小平 五中全会打破30多年惯例 >-009fcc?logoWidth=1" title="习近平要超邓小平 五中全会打破30多年惯例  " alt="习近平要超邓小平 五中全会打破30多年惯例  "></a></p>
+<p><a href="https://github.com/kcypup330/ntdtv/blob/master/gb/2020/10/30/a102975556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/同日同城造势 川普演讲风和日丽 拜登风雨交加>-009fcc?logoWidth=1" title="同日同城造势 川普演讲风和日丽 拜登风雨交加  " alt="同日同城造势 川普演讲风和日丽 拜登风雨交加  "></a></p>
 <p><a href="https://github.com/kcypup330/ntdtv/blob/master/gb/2020/10/30/a102975511.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/费城消防员工会投票 全美多数警察支持川普连任>-009fcc?logoWidth=1" title="费城消防员工会投票 全美多数警察支持川普连任  " alt="费城消防员工会投票 全美多数警察支持川普连任  "></a></p>
+<p><a href="https://github.com/kcypup330/ntdtv/blob/master/gb/2020/10/30/a102975573.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大湾区建设没吸引力？七成企业拟迁厂     >-009fcc?logoWidth=1" title="大湾区建设没吸引力？七成企业拟迁厂  " alt="大湾区建设没吸引力？七成企业拟迁厂  "></a></p>
+<p><a href="https://github.com/kcypup330/ntdtv/blob/master/gb/2020/10/30/a102975567.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“千年大计”狠折腾 雄安新区再遭强拆  >-009fcc?logoWidth=1" title="中共“千年大计”狠折腾 雄安新区再遭强拆  " alt="中共“千年大计”狠折腾 雄安新区再遭强拆  "></a></p>
 <p><a href="https://github.com/kcypup330/ntdtv/blob/master/gb/2020/10/30/a102975513.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普在密歇根州发表演讲（同声翻译）     >-009fcc?logoWidth=1" title="川普在密歇根州发表演讲（同声翻译）  " alt="川普在密歇根州发表演讲（同声翻译）  "></a></p>
-<p><a href="https://github.com/kcypup330/ntdtv/blob/master/gb/2020/10/30/a102975469.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/橙县山火新进展 蓝岭大火有望2周扑灭    >-009fcc?logoWidth=1" title="橙县山火新进展 蓝岭大火有望2周扑灭  " alt="橙县山火新进展 蓝岭大火有望2周扑灭  "></a></p>
-<p><a href="https://github.com/kcypup330/ntdtv/blob/master/gb/2020/10/30/a102975361.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/又一非裔说唱歌手挺川普 3400万追随者潜力>-009fcc?logoWidth=1" title="又一非裔说唱歌手挺川普 3400万追随者潜力巨大  " alt="又一非裔说唱歌手挺川普 3400万追随者潜力巨大  "></a></p>
-<p><a href="https://github.com/kcypup330/ntdtv/blob/master/gb/2020/10/30/a102975445.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020年法轮功学员被迫害致命危案例    >-009fcc?logoWidth=1" title="2020年法轮功学员被迫害致命危案例  " alt="2020年法轮功学员被迫害致命危案例  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/kcypup330/djy/blob/master/gb/20/10/30/n12512274.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：王岐山放狠话 庚子年还有大事？   >-009fcc?logoWidth=1" title="王友群：王岐山放狠话 庚子年还有大事？  " alt="王友群：王岐山放狠话 庚子年还有大事？  "></a></p>
 <p><a href="https://github.com/kcypup330/djy/blob/master/gb/20/10/16/n12481113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普拜登问鼎白宫 6大摇摆州战况详解    >-009fcc?logoWidth=1" title="川普拜登问鼎白宫 6大摇摆州战况详解  " alt="川普拜登问鼎白宫 6大摇摆州战况详解  "></a></p>
@@ -262,9 +262,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://kcypup330.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?vjnfx">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?firxh">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?wamlp">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?myckq">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -308,8 +308,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?aphir">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?oodnm">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ghmnc">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?qhduz">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -489,10 +489,10 @@
 <hr>
 <div align="center">
 <p><strong><a href="https://github.com/kcypup330/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/kcypup330/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/kcypup330/www/master/index.html?y">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kcypup330/www/blob/master/README.md?u#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/kcypup330/www/blob/master/README.md?k%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/qssss" title="分享本平台"></img>
-<br><a href="https://git.io/h8888">https://git.io/h8888</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/qssss">https://is.gd/qssss</a>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/kcypup330/www/blob/master/README.md?a#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/kcypup330/www/blob/master/README.md?d%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/r8888" title="分享本平台"></img>
+<br><a href="https://git.io/f3333">https://git.io/f3333</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/r8888">https://is.gd/r8888</a>
 <br>
 <br>
-<h3><a href="https://kcypup330.github.io/vd/qr/qr2/#https://github.com/kcypup330/www/blob/master/README.md?v#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://kcypup330.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/qssss%22%2C%22https://is.gd/n5555%22%2C%22https://is.gd/mmamm%22%2C%22https://is.gd/tbbbb%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://kcypup330.github.io/vd/qr/qr2/#https://github.com/kcypup330/www/blob/master/README.md?k#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://kcypup330.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/r8888%22%2C%22https://is.gd/pp6pp%22%2C%22https://is.gd/tttts%22%2C%22https://is.gd/nqqqq%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
