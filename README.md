@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/rmxaqt314/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/rmxaqt314/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/gssss">git.io/gssss</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/dgggg">git.io/dgggg</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -19,11 +19,11 @@
 <p><a href="https://github.com/rmxaqt314/ntdtv/blob/master/gb/2020/11/06/a102980447.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/云南数万人罢市抗议 遭数千公安镇压抓人(视频>-009fcc?logoWidth=1" title="云南数万人罢市抗议 遭数千公安镇压抓人(视频)  " alt="云南数万人罢市抗议 遭数千公安镇压抓人(视频)  "></a></p>
 <p><a href="https://github.com/rmxaqt314/ntdtv/blob/master/gb/2020/11/06/a102980439.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平清洗政法系？督察组赴6省确保“绝对领导>-009fcc?logoWidth=1" title="习近平清洗政法系？督察组赴6省确保“绝对领导”  " alt="习近平清洗政法系？督察组赴6省确保“绝对领导”  "></a></p>
 <p><a href="https://github.com/rmxaqt314/ntdtv/blob/master/gb/2020/11/06/a102980325.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登赢北京笑？他直通中共三代党魁 儿在华发大>-009fcc?logoWidth=1" title="拜登赢北京笑？他直通中共三代党魁 儿在华发大财  " alt="拜登赢北京笑？他直通中共三代党魁 儿在华发大财  "></a></p>
+<p><a href="https://github.com/rmxaqt314/ntdtv/blob/master/gb/2020/11/06/a102980802.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/质疑密歇根选举欺诈 共和党参议员候选人拒绝认>-009fcc?logoWidth=1" title="质疑密歇根选举欺诈 共和党参议员候选人拒绝认输  " alt="质疑密歇根选举欺诈 共和党参议员候选人拒绝认输  "></a></p>
 <p><a href="https://github.com/rmxaqt314/ntdtv/blob/master/gb/2020/11/06/a102980822.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南方公园释旧片 暗示大选作弊及中共干预(视频>-009fcc?logoWidth=1" title="南方公园释旧片 暗示大选作弊及中共干预(视频)  " alt="南方公园释旧片 暗示大选作弊及中共干预(视频)  "></a></p>
 <p><a href="https://github.com/rmxaqt314/ntdtv/blob/master/gb/2020/11/06/a102980757.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/费城不执行法院令坚拒监票员 川普阵营再提告无>-009fcc?logoWidth=1" title="费城不执行法院令坚拒监票员 川普阵营再提告无果  " alt="费城不执行法院令坚拒监票员 川普阵营再提告无果  "></a></p>
 <p><a href="https://github.com/rmxaqt314/ntdtv/blob/master/gb/2020/11/06/a102980778.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大选后首次演讲 川普：不能因大选舞弊使美国蒙>-009fcc?logoWidth=1" title="大选后首次演讲 川普：不能因大选舞弊使美国蒙羞  " alt="大选后首次演讲 川普：不能因大选舞弊使美国蒙羞  "></a></p>
 <p><a href="https://github.com/rmxaqt314/ntdtv/blob/master/gb/2020/11/06/a102980716.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭美大选舞弊 大纪元新唐人推特一度受限   >-009fcc?logoWidth=1" title="揭美大选舞弊 大纪元新唐人推特一度受限  " alt="揭美大选舞弊 大纪元新唐人推特一度受限  "></a></p>
-<p><a href="https://github.com/rmxaqt314/ntdtv/blob/master/gb/2020/11/06/a102980729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/三大媒体断川普演说直播 议员质疑开票速度  >-009fcc?logoWidth=1" title="三大媒体断川普演说直播 议员质疑开票速度  " alt="三大媒体断川普演说直播 议员质疑开票速度  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/rmxaqt314/djy/blob/master/gb/20/11/5/n12528289.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：美国大选陷入胶着 神秘预言透玄机？ >-009fcc?logoWidth=1" title="王友群：美国大选陷入胶着 神秘预言透玄机？  " alt="王友群：美国大选陷入胶着 神秘预言透玄机？  "></a></p>
 <p><a href="https://github.com/rmxaqt314/djy/blob/master/gb/20/11/5/n12527779.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国大选现乱局 专家分析深层原因      >-009fcc?logoWidth=1" title="美国大选现乱局 专家分析深层原因  " alt="美国大选现乱局 专家分析深层原因  "></a></p>
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://rmxaqt314.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?vumvm">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?jvmcw">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?dnjwi">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?iusin">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?vqfbo">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?lsqwv">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?amfrt">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?tshzi">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,11 +485,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/rmxaqt314/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rmxaqt314/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rmxaqt314/www/master/index.html?j">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rmxaqt314/www/blob/master/README.md?w#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/rmxaqt314/www/blob/master/README.md?x%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/xeeee" title="分享本平台"></img>
-<br><a href="https://git.io/gssss">https://git.io/gssss</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/xeeee">https://is.gd/xeeee</a>
+<p><strong><a href="https://github.com/rmxaqt314/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/rmxaqt314/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/rmxaqt314/www/master/index.html?c">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/rmxaqt314/www/blob/master/README.md?n#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/rmxaqt314/www/blob/master/README.md?m%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/n6666" title="分享本平台"></img>
+<br><a href="https://git.io/dgggg">https://git.io/dgggg</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/n6666">https://is.gd/n6666</a>
 <br>
 <br>
-<h3><a href="https://rmxaqt314.github.io/vd/qr/qr2/#https://github.com/rmxaqt314/www/blob/master/README.md?z#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rmxaqt314.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/xeeee%22%2C%22https://is.gd/qdddd%22%2C%22https://is.gd/ttctt%22%2C%22https://is.gd/rgggg%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://rmxaqt314.github.io/vd/qr/qr2/#https://github.com/rmxaqt314/www/blob/master/README.md?v#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://rmxaqt314.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/n6666%22%2C%22https://is.gd/uuuuuuu%22%2C%22https://is.gd/qqeqq%22%2C%22https://is.gd/xgggg%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
