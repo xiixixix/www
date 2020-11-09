@@ -9,22 +9,22 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/timdok351/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/timdok351/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/6jjjj">git.io/6jjjj</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/sdddd">git.io/sdddd</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
 <p><a href="https://github.com/timdok351/ntdtv/blob/master/gb/2020/11/09/a102982631.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/马云被整牵出大佬/风水师预测美国大选    >-009fcc?logoWidth=1" title="马云被整牵出大佬/风水师预测美国大选  " alt="马云被整牵出大佬/风水师预测美国大选  "></a></p>
+<p><a href="https://github.com/timdok351/ntdtv/blob/master/gb/2020/11/09/a102982648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中纪委列第一通奸女官 被捕时双腿发软    >-009fcc?logoWidth=1" title="中纪委列第一通奸女官 被捕时双腿发软  " alt="中纪委列第一通奸女官 被捕时双腿发软  "></a></p>
 <p><a href="https://github.com/timdok351/ntdtv/blob/master/gb/2020/11/09/a102982553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：民主党特工揭露选票欺诈五步曲     >-009fcc?logoWidth=1" title="美媒：民主党特工揭露选票欺诈五步曲  " alt="美媒：民主党特工揭露选票欺诈五步曲  "></a></p>
 <p><a href="https://github.com/timdok351/ntdtv/blob/master/gb/2020/11/09/a102982522.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/风水师预测美国大选：正神排兵布阵助川普   >-009fcc?logoWidth=1" title="风水师预测美国大选：正神排兵布阵助川普  " alt="风水师预测美国大选：正神排兵布阵助川普  "></a></p>
 <p><a href="https://github.com/timdok351/ntdtv/blob/master/gb/2020/11/09/a102982470.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谁是总统由媒体宣布？川普怒斥“浊流媒体”  >-009fcc?logoWidth=1" title="谁是总统由媒体宣布？川普怒斥“浊流媒体”  " alt="谁是总统由媒体宣布？川普怒斥“浊流媒体”  "></a></p>
 <p><a href="https://github.com/timdok351/ntdtv/blob/master/gb/2020/11/09/a102982468.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/知情人：红二代盼中国变天 压倒性支持川普  >-009fcc?logoWidth=1" title="知情人：红二代盼中国变天 压倒性支持川普  " alt="知情人：红二代盼中国变天 压倒性支持川普  "></a></p>
-<p><a href="https://github.com/timdok351/ntdtv/blob/master/gb/2020/11/09/a102982455.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京附近再爆疫情 天津进入战时状态     >-009fcc?logoWidth=1" title="北京附近再爆疫情 天津进入战时状态  " alt="北京附近再爆疫情 天津进入战时状态  "></a></p>
 <p><a href="https://github.com/timdok351/ntdtv/blob/master/gb/2020/11/08/a102982303.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平为何不向拜登道贺？港媒：怕川普神经刀 >-009fcc?logoWidth=1" title="习近平为何不向拜登道贺？港媒：怕川普神经刀  " alt="习近平为何不向拜登道贺？港媒：怕川普神经刀  "></a></p>
 <p><a href="https://github.com/timdok351/ntdtv/blob/master/gb/2020/11/09/a102982686.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉一学校食堂“用脚洗菜” 影片疯传    >-009fcc?logoWidth=1" title="武汉一学校食堂“用脚洗菜” 影片疯传  " alt="武汉一学校食堂“用脚洗菜” 影片疯传  "></a></p>
 <p><a href="https://github.com/timdok351/ntdtv/blob/master/gb/2020/11/09/a102982650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内华达举报人描述：拜登阵营围着货车伪造选票 >-009fcc?logoWidth=1" title="内华达举报人描述：拜登阵营围着货车伪造选票  " alt="内华达举报人描述：拜登阵营围着货车伪造选票  "></a></p>
-<p><a href="https://github.com/timdok351/ntdtv/blob/master/gb/2020/11/09/a102982648.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中纪委列第一通奸女官 被捕时双腿发软    >-009fcc?logoWidth=1" title="中纪委列第一通奸女官 被捕时双腿发软  " alt="中纪委列第一通奸女官 被捕时双腿发软  "></a></p>
 <p><a href="https://github.com/timdok351/ntdtv/blob/master/gb/2020/11/09/a102982598.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普团队开设举报热线 TikTok用户提供假>-009fcc?logoWidth=1" title="川普团队开设举报热线 TikTok用户提供假信息  " alt="川普团队开设举报热线 TikTok用户提供假信息  "></a></p>
+<p><a href="https://github.com/timdok351/ntdtv/blob/master/gb/2020/11/09/a102982606.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/麦塔斯：应对中共 国际移植协会需改七原则  >-009fcc?logoWidth=1" title="麦塔斯：应对中共 国际移植协会需改七原则  " alt="麦塔斯：应对中共 国际移植协会需改七原则  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/timdok351/djy/blob/master/gb/20/11/8/n12534746.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李洪志先生在大纪元发表《大选》       >-009fcc?logoWidth=1" title="李洪志先生在大纪元发表《大选》  " alt="李洪志先生在大纪元发表《大选》  "></a></p>
 <p><a href="https://github.com/timdok351/djy/blob/master/gb/20/11/8/n12533787.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/保守联盟：死人在克拉克县投票        >-009fcc?logoWidth=1" title="保守联盟：死人在克拉克县投票  " alt="保守联盟：死人在克拉克县投票  "></a></p>
@@ -40,14 +40,14 @@
 <p><a href="https://github.com/timdok351/djy/blob/master/gb/20/11/8/n12534408.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美联邦最高法院前集会 民众要求停止窃选   >-009fcc?logoWidth=1" title="美联邦最高法院前集会 民众要求停止窃选  " alt="美联邦最高法院前集会 民众要求停止窃选  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/timdok351/djy/blob/master/gb/20/11/9/n12535311.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天津新增病例进入战时状态 涉事货物流向3地区>-009fcc?logoWidth=1" title="天津新增病例进入战时状态 涉事货物流向3地区  " alt="天津新增病例进入战时状态 涉事货物流向3地区  "></a></p>
-<p><a href="https://github.com/timdok351/ntdtv/blob/master/gb/2020/11/09/a102982724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一场精心策划的“政变”？          >-009fcc?logoWidth=1" title="一场精心策划的“政变”？  " alt="一场精心策划的“政变”？  "></a></p>
 <p><a href="https://github.com/timdok351/djy/blob/master/gb/20/11/8/n12534059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员：宾州4天 从未见过如此糟的选举过程 >-009fcc?logoWidth=1" title="美议员：宾州4天 从未见过如此糟的选举过程  " alt="美议员：宾州4天 从未见过如此糟的选举过程  "></a></p>
 <p><a href="https://github.com/timdok351/djy/blob/master/gb/20/11/8/n12534680.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈破空：2020美国大选只有一个主角    >-009fcc?logoWidth=1" title="陈破空：2020美国大选只有一个主角  " alt="陈破空：2020美国大选只有一个主角  "></a></p>
-<p><a href="https://github.com/timdok351/ntdtv/blob/master/gb/2020/11/09/a102982508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《推背图》预言 全球灾难何时了？      >-009fcc?logoWidth=1" title="《推背图》预言 全球灾难何时了？  " alt="《推背图》预言 全球灾难何时了？  "></a></p>
+<p><a href="https://github.com/timdok351/ntdtv/blob/master/gb/2020/11/09/a102982724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一场精心策划的“政变”？          >-009fcc?logoWidth=1" title="一场精心策划的“政变”？  " alt="一场精心策划的“政变”？  "></a></p>
+<p><a href="https://github.com/timdok351/ntdtv/blob/master/gb/2020/11/09/a102982741.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/苏联解体 戈氏及叶利钦也无奈接受      >-009fcc?logoWidth=1" title="苏联解体 戈氏及叶利钦也无奈接受  " alt="苏联解体 戈氏及叶利钦也无奈接受  "></a></p>
 <p><a href="https://github.com/timdok351/djy/blob/master/gb/20/11/8/n12534180.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/好莱坞名流拒拜登胜选 吁扣除非法选票    >-009fcc?logoWidth=1" title="好莱坞名流拒拜登胜选 吁扣除非法选票  " alt="好莱坞名流拒拜登胜选 吁扣除非法选票  "></a></p>
 <p><a href="https://github.com/timdok351/djy/blob/master/gb/20/11/8/n12533429.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：正邪激战 美国大选舞弊的深层原因   >-009fcc?logoWidth=1" title="田云：正邪激战 美国大选舞弊的深层原因  " alt="田云：正邪激战 美国大选舞弊的深层原因  "></a></p>
+<p><a href="https://github.com/timdok351/ntdtv/blob/master/gb/2020/11/09/a102982508.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《推背图》预言 全球灾难何时了？      >-009fcc?logoWidth=1" title="《推背图》预言 全球灾难何时了？  " alt="《推背图》预言 全球灾难何时了？  "></a></p>
 <p><a href="https://github.com/timdok351/ntdtv/blob/master/gb/2020/11/09/a102982502.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美重量级议员力挺川普诉讼：法院必须审核   >-009fcc?logoWidth=1" title="美重量级议员力挺川普诉讼：法院必须审核  " alt="美重量级议员力挺川普诉讼：法院必须审核  "></a></p>
-<p><a href="https://github.com/timdok351/ntdtv/blob/master/gb/2020/11/09/a102982677.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：美国大选是试金石 三个事实不容忽视  >-009fcc?logoWidth=1" title="田云：美国大选是试金石 三个事实不容忽视  " alt="田云：美国大选是试金石 三个事实不容忽视  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://timdok351.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?zpowt">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?onmfl">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?eothf">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?pjscu">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?crtkv">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ujals">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ombys">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ezgws">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -416,12 +416,12 @@
 <p><strong>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年的腥风血雨，二十多年的凌辱折磨，岁月飞逝，历史见证，迫害善良原本就是违背道义不得民心的...</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;99年中共因法轮功修炼人数超过党员而疯狂镇压，不惜制造一个个谎言，导演天安门自焚案栽赃法轮功，对坚持信仰的学员绑架抄家，用尽酷刑，导致数以百万计的家破人亡、妻离子散！然而中共高估了自己的造假宣传。各国政府纷纷谴责中共暴行，高度肯定法轮功提升道德、净化心灵、强身健体的卓越成效。在国内，声援法轮功的事件此起彼伏。成千上万人为被非法抓捕的学员请愿，演绎了不畏强权反迫害的一幕又一幕。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年过去了。如今法轮功“真善忍”普世价值观，超越民族文化，洪传世界一百多个国家，仅台湾就有八十万人修炼，其主要著作被译成四十多种文字，举世赞誉！而中共江泽民却因罪恶迫害，在海内外被数百万人联署举报，被二十多万人实名起诉。在这场对善良打压中，中共把法制、道德伦理都推向崩溃边缘。民心丧尽、天怒人怨!人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="http://111.249.1.37/UmhjM" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="http://219.85.109.63/UmhjM" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
 </details>
 
 <div align="center">
 <img src="https://raw.githubusercontent.com/timdok351/www/master/t/01.jpg">
-<h1><strong><a href="http://111.249.1.37/UmhjM" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
+<h1><strong><a href="http://219.85.109.63/UmhjM" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/timdok351/www/master/t/03.jpg"><br>
@@ -481,15 +481,15 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;于中共无所不在的欺骗洗脑与暴力胁迫下，有多少人放弃了诚实宽厚、仁爱谦和的道德底线，变得见风使舵、落井下石，甚至为一己之私而无恶不作。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;稍微盘点中共的罪恶，让人感到心情无比的沉重。了解了中共，才明白什么叫做罪恶滔天，罄竹难书。</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="http://111.249.1.37/UmhjM" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="http://219.85.109.63/UmhjM" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/timdok351/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/timdok351/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/timdok351/www/master/index.html?a">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/timdok351/www/blob/master/README.md?p#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/timdok351/www/blob/master/README.md?g%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/yyyyz" title="分享本平台"></img>
-<br><a href="https://git.io/6jjjj">https://git.io/6jjjj</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/yyyyz">https://is.gd/yyyyz</a>
+<p><strong><a href="https://github.com/timdok351/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/timdok351/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/timdok351/www/master/index.html?j">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/timdok351/www/blob/master/README.md?b#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/timdok351/www/blob/master/README.md?d%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/zhhhh" title="分享本平台"></img>
+<br><a href="https://git.io/sdddd">https://git.io/sdddd</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/zhhhh">https://is.gd/zhhhh</a>
 <br>
 <br>
-<h3><a href="https://timdok351.github.io/vd/qr/qr2/#https://github.com/timdok351/www/blob/master/README.md?n#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://timdok351.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/yyyyz%22%2C%22https://is.gd/uuuuc%22%2C%22https://is.gd/ttztt%22%2C%22https://is.gd/nnnnd%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://timdok351.github.io/vd/qr/qr2/#https://github.com/timdok351/www/blob/master/README.md?x#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://timdok351.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/zhhhh%22%2C%22https://is.gd/xxxx6%22%2C%22https://is.gd/yqqqq%22%2C%22https://is.gd/xx6xx%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
