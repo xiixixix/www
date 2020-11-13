@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/myjazr3374/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/myjazr3374/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/ddddx">git.io/ddddx</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/aaaay">git.io/aaaay</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -29,25 +29,24 @@
 <p><a href="https://github.com/myjazr3374/djy/blob/master/gb/20/11/11/n12542739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/薄熙来余孽落马 泄中共网攻机密       >-009fcc?logoWidth=1" title="薄熙来余孽落马 泄中共网攻机密  " alt="薄熙来余孽落马 泄中共网攻机密  "></a></p>
 <p><a href="https://github.com/myjazr3374/djy/blob/master/gb/20/11/12/n12544594.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闹剧！大慈恩寺僧侣要与“习思想保持一致”  >-009fcc?logoWidth=1" title="闹剧！大慈恩寺僧侣要与“习思想保持一致”  " alt="闹剧！大慈恩寺僧侣要与“习思想保持一致”  "></a></p>
 <p><a href="https://github.com/myjazr3374/djy/blob/master/gb/20/11/13/n12546320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传习亲自叫停蚂蚁集团公开上市案       >-009fcc?logoWidth=1" title="传习亲自叫停蚂蚁集团公开上市案  " alt="传习亲自叫停蚂蚁集团公开上市案  "></a></p>
+<p><a href="https://github.com/myjazr3374/djy/blob/master/gb/20/11/13/n12546237.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网民曝北京信访局万人上访 打卡成网红语言  >-009fcc?logoWidth=1" title="网民曝北京信访局万人上访 打卡成网红语言  " alt="网民曝北京信访局万人上访 打卡成网红语言  "></a></p>
 <p><a href="https://github.com/myjazr3374/djy/blob/master/gb/20/11/12/n12544407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邮寄选票拒绝率仅0.03 美媒列大选4大疑点>-009fcc?logoWidth=1" title="邮寄选票拒绝率仅0.03 美媒列大选4大疑点  " alt="邮寄选票拒绝率仅0.03 美媒列大选4大疑点  "></a></p>
-<p><a href="https://github.com/myjazr3374/djy/blob/master/gb/20/11/13/n12546260.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蛋壳公寓北京再有数百人维权 发生肢体冲突  >-009fcc?logoWidth=1" title="蛋壳公寓北京再有数百人维权 发生肢体冲突  " alt="蛋壳公寓北京再有数百人维权 发生肢体冲突  "></a></p>
 <p><a href="https://github.com/myjazr3374/djy/blob/master/gb/20/11/12/n12545280.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/报刊类下载量第一 英文大纪元APP爆红   >-009fcc?logoWidth=1" title="报刊类下载量第一 英文大纪元APP爆红  " alt="报刊类下载量第一 英文大纪元APP爆红  "></a></p>
 <p><a href="https://github.com/myjazr3374/djy/blob/master/gb/20/11/13/n12545846.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：党媒文章忽提川普剩余任期又突然下架  >-009fcc?logoWidth=1" title="钟原：党媒文章忽提川普剩余任期又突然下架  " alt="钟原：党媒文章忽提川普剩余任期又突然下架  "></a></p>
 <p><a href="https://github.com/myjazr3374/djy/blob/master/gb/20/11/5/n12528154.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孔子学院败走 一带一路连遭重挫       >-009fcc?logoWidth=1" title="孔子学院败走 一带一路连遭重挫  " alt="孔子学院败走 一带一路连遭重挫  "></a></p>
-<p><a href="https://github.com/myjazr3374/djy/blob/master/gb/20/11/12/n12545338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登忙进白宫？川普反击力道猛        >-009fcc?logoWidth=1" title="拜登忙进白宫？川普反击力道猛  " alt="拜登忙进白宫？川普反击力道猛  "></a></p>
 <p><a href="https://github.com/myjazr3374/djy/blob/master/gb/20/11/13/n12545682.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共网安“吹哨人”爆猛料          >-009fcc?logoWidth=1" title="中共网安“吹哨人”爆猛料  " alt="中共网安“吹哨人”爆猛料  "></a></p>
+<p><a href="https://github.com/myjazr3374/djy/blob/master/gb/20/11/12/n12545338.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登忙进白宫？川普反击力道猛        >-009fcc?logoWidth=1" title="拜登忙进白宫？川普反击力道猛  " alt="拜登忙进白宫？川普反击力道猛  "></a></p>
+<p><a href="https://github.com/myjazr3374/djy/blob/master/gb/20/11/13/n12546260.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蛋壳公寓北京再有数百人维权 发生肢体冲突  >-009fcc?logoWidth=1" title="蛋壳公寓北京再有数百人维权 发生肢体冲突  " alt="蛋壳公寓北京再有数百人维权 发生肢体冲突  "></a></p>
 <p><a href="https://github.com/myjazr3374/djy/blob/master/gb/20/11/11/n12542497.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专访程晓农：美大选马克思主义当道 媒体成喉舌>-009fcc?logoWidth=1" title="专访程晓农：美大选马克思主义当道 媒体成喉舌  " alt="专访程晓农：美大选马克思主义当道 媒体成喉舌  "></a></p>
-<p><a href="https://github.com/myjazr3374/djy/blob/master/gb/20/11/12/n12544683.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连近两百人遭厄运 都曾迫害法轮功（7）  >-009fcc?logoWidth=1" title="大连近两百人遭厄运 都曾迫害法轮功（7）  " alt="大连近两百人遭厄运 都曾迫害法轮功（7）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/myjazr3374/ntdtv/blob/master/gb/2020/11/13/a102985740.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京知情官员：习近平亲自拍板 阻止蚂蚁上市 >-009fcc?logoWidth=1" title="北京知情官员：习近平亲自拍板 阻止蚂蚁上市  " alt="北京知情官员：习近平亲自拍板 阻止蚂蚁上市  "></a></p>
 <p><a href="https://github.com/myjazr3374/ntdtv/blob/master/gb/2020/11/13/a102985799.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/祸不单行 出席葬礼突翻车 福建车祸9死5伤 >-009fcc?logoWidth=1" title="祸不单行 出席葬礼突翻车 福建车祸9死5伤  " alt="祸不单行 出席葬礼突翻车 福建车祸9死5伤  "></a></p>
+<p><a href="https://github.com/myjazr3374/djy/blob/master/gb/20/11/12/n12544683.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连近两百人遭厄运 都曾迫害法轮功（7）  >-009fcc?logoWidth=1" title="大连近两百人遭厄运 都曾迫害法轮功（7）  " alt="大连近两百人遭厄运 都曾迫害法轮功（7）  "></a></p>
 <p><a href="https://github.com/myjazr3374/djy/blob/master/gb/20/11/12/n12544999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/总统律师指中共是真正敌人 借投票机操控大选 >-009fcc?logoWidth=1" title="总统律师指中共是真正敌人 借投票机操控大选  " alt="总统律师指中共是真正敌人 借投票机操控大选  "></a></p>
 <p><a href="https://github.com/myjazr3374/ntdtv/blob/master/gb/2020/11/13/a102985725.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/格雷厄姆：内华达疑数百万选票未签名验证   >-009fcc?logoWidth=1" title="格雷厄姆：内华达疑数百万选票未签名验证  " alt="格雷厄姆：内华达疑数百万选票未签名验证  "></a></p>
-<p><a href="https://github.com/myjazr3374/ntdtv/blob/master/gb/2020/11/13/a102985689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/薄熙来余党投案牵出中共黑客网攻机密     >-009fcc?logoWidth=1" title="薄熙来余党投案牵出中共黑客网攻机密  " alt="薄熙来余党投案牵出中共黑客网攻机密  "></a></p>
-<p><a href="https://github.com/myjazr3374/djy/blob/master/gb/20/11/13/n12546237.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网民曝北京信访局万人上访 打卡成网红语言  >-009fcc?logoWidth=1" title="网民曝北京信访局万人上访 打卡成网红语言  " alt="网民曝北京信访局万人上访 打卡成网红语言  "></a></p>
 <p><a href="https://github.com/myjazr3374/djy/blob/master/gb/20/11/13/n12545671.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普宾州初胜 五角大楼悍将上位       >-009fcc?logoWidth=1" title="川普宾州初胜 五角大楼悍将上位  " alt="川普宾州初胜 五角大楼悍将上位  "></a></p>
+<p><a href="https://github.com/myjazr3374/ntdtv/blob/master/gb/2020/11/13/a102985689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/薄熙来余党投案牵出中共黑客网攻机密     >-009fcc?logoWidth=1" title="薄熙来余党投案牵出中共黑客网攻机密  " alt="薄熙来余党投案牵出中共黑客网攻机密  "></a></p>
 <p><a href="https://github.com/myjazr3374/ntdtv/blob/master/gb/2020/11/13/a102985658.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/计票软件舞弊：川普270万选票被删 43.5>-009fcc?logoWidth=1" title="计票软件舞弊：川普270万选票被删 43.5万票转给拜登  " alt="计票软件舞弊：川普270万选票被删 43.5万票转给拜登  "></a></p>
-<p><a href="https://github.com/myjazr3374/ntdtv/blob/master/gb/2020/11/12/a102985311.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约市长白思豪女儿说漏嘴：拜登偷选举    >-009fcc?logoWidth=1" title="纽约市长白思豪女儿说漏嘴：拜登偷选举  " alt="纽约市长白思豪女儿说漏嘴：拜登偷选举  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -259,9 +258,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://myjazr3374.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?upkrf">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?hoszf">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?kaegh">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ojheq">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +304,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ticfz">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?pguyr">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?erguf">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?szcxg">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -342,63 +341,63 @@
 <img src="https://raw.githubusercontent.com/myjazr3374/www/master/t/lh600.jpg"><br>
 <h1><p><strong>真相视频</strong></p></h1>
 国内打开视频有时要等一会儿才能播放<br><br>
-<a href="https://gitlab.com/szzdlab/vdzfzx/raw/master/zfzx.webm" target="_blank"><img src="https://gitlab.com/szzdlab/t/raw/master/210b/wf595.jpg"></a><br>
+<a href="https://gitlab.com/szzdlab/vdzfzx/raw/master/zfzx.webm" target="_blank"><img src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/wf595.jpg"></a><br>
 <a href="https://gitlab.com/szzdlab/vdzfzx/raw/master/zfzx.webm" target="_blank">短视频 : 伪火骗局--看中共如何造假</a><br><br>
-<a href="https://gitlab.com/szzdlab/vdYongHeng-360p/raw/master/YongHeng-360p.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/YongHeng-360p.jpg" title="电影 : 永恒的五十分钟" alt="电影 : 永恒的五十分钟>"</a>
-<a href="https://gitlab.com/szzdlab/vdhG75Ez1eTyeZN/raw/master/hG75Ez1eTyeZN.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/kVPlAyBx2wxLi.jpg" title="电影: 归途" alt="电影: 归途"></a>
-<a href="https://gitlab.com/szzdlab/vdwnrl/raw/master/wnrl.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/wnrl.jpg" title="电影: 为你而来" alt="电影: 为你而来"></a><br>
-<a href="https://gitlab.com/szzdlab/vdSoundOfHope_360p/raw/master/SoundOfHope_360p.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/SoundOfHope_360p.jpg" title="微电影：希望的声音" alt="微电影：希望的声音"></a>
-<a href="https://gitlab.com/szzdlab/vdyyzd2020gzn/raw/master/yyzd2020gzn.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/yyzd2020gzn.jpg" title="預言中的2020庚子年" alt="預言中的2020庚子年"></a>
-<a href="https://gitlab.com/szzdlab/vdtianliang/raw/master/tianliang.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/tianliang.jpg" title="一修行人对疫情的反思和避难之道" alt="一修行人对疫情的反思和避难之道"></a><br>
-<a href="https://gitlab.com/szzdlab/vdpzNgjXjVPm/raw/master/pzNgjXjVPm.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/pzNgjXjVPm.jpg" title="疫情险 顺天保命有真言" alt="疫情凶险 顺天保命有真言"></a>
-<a href="https://gitlab.com/szzdlab/vdgushi-h/raw/master/gushi-h.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/gushi-h.jpg" title="大瘟疫中的奇异故事（视频）" alt="大瘟疫中的奇异故事（视频）"></a>
-<a href="https://gitlab.com/szzdlab/vd5N.8/raw/master/5N.8.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/5N.8.jpg" title="活摘十年调查" alt="活摘十年调查"></a><br>
-<a href="https://gitlab.com/szzdlab/vdfy/raw/master/fy.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/fy.jpg" title="风雨天地行(全集)" alt="风雨天地行(全集)"></a>
-<a href="https://gitlab.com/szzdlab/vdhongchaoyinmou-hi/raw/master/hongchaoyinmou-hi.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/hongchaoyinmou-hi.jpg" title="红朝阴谋—这个星球上从未有过的邪恶" alt="红朝阴谋—这个星球上从未有过的邪恶"></a>
-<a href="https://gitlab.com/szzdlab/vdTdowhauWx9WiM/raw/master/TdowhauWx9WiM.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/TdowhauWx9WiM.jpg" title="震惊世界的奇石 藏「中国共产党亡」" alt="震惊世界的奇石 藏「中国共产党亡」"></a><br>
-<a href="https://gitlab.com/szzdlab/vdjD7d_68er8L/raw/master/jD7d_68er8L.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/jD7d_68er8L.jpg" title="【明慧焦点】“批孔”、“自焚骗局”和小学课本" alt="【明慧焦点】“批孔”、“自焚骗局”和小学课本"></a>
-<a href="https://gitlab.com/szzdlab/vdszt/raw/master/szt.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/szt.jpg" title="孤僧万里寻大道(上、下)" alt="孤僧万里寻大道(上、下)"></a>
-<a href="https://gitlab.com/szzdlab/vdwm/raw/master/wm.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/wm.jpg" title="我们告诉未来 (全集)" alt="我们告诉未来 (全集)"></a><br>
-<a href="https://gitlab.com/szzdlab/vdqh/raw/master/qh.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/qh.jpg" title="清华学子的悲壮故事(全集)" alt="清华学子的悲壮故事(全集)"></a>
-<a href="https://gitlab.com/szzdlab/vd3-JTT_CN_MH-360p/raw/master/3-JTT_CN_MH-360p.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/3-JTT_CN_MH-360p.jpg" title="传奇时代 通往天安门的旅程" alt="传奇时代 通往天安门的旅程"></a>
-<a href="https://gitlab.com/szzdlab/vdC1WZ_mj/raw/master/C1WZ_mj.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/C1WZ_m.jpg" title="【明慧焦点】4.25—阻止迫害发生的最后一次机会" alt="【明慧焦点】4.25—阻止迫害发生的最后一次机会"></a><br>
-<a href="https://gitlab.com/szzdlab/vdwl/raw/master/wl.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/wl.jpg" title="未来人的神话故事(上、下)" alt="未来人的神话故事(上、下)"></a>
-<a href="https://gitlab.com/szzdlab/vd425/raw/master/425.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/425.jpg" title="“四.二五”上访真相" alt="“四.二五”上访真相"></a>
-<a href="https://gitlab.com/szzdlab/vd1400forge-1210/raw/master/1400forge-1210.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/1400forge-1210.jpg" title="解析〝1400例〞" alt="解析〝1400例〞"></a><br>
-<a href="https://gitlab.com/szzdlab/vdguanguimin/raw/master/guanguimin.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/guanguimin.jpg" title="短视频：歌唱家关贵敏的人生奇迹" alt="短视频：歌唱家关贵敏的人生奇迹"></a>
+<a href="https://gitlab.com/szzdlab/vdYongHeng-360p/raw/master/YongHeng-360p.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/YongHeng-360p.jpg" title="电影 : 永恒的五十分钟" alt="电影 : 永恒的五十分钟>"</a>
+<a href="https://gitlab.com/szzdlab/vdhG75Ez1eTyeZN/raw/master/hG75Ez1eTyeZN.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/kVPlAyBx2wxLi.jpg" title="电影: 归途" alt="电影: 归途"></a>
+<a href="https://gitlab.com/szzdlab/vdwnrl/raw/master/wnrl.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/wnrl.jpg" title="电影: 为你而来" alt="电影: 为你而来"></a><br>
+<a href="https://gitlab.com/szzdlab/vdSoundOfHope_360p/raw/master/SoundOfHope_360p.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/SoundOfHope_360p.jpg" title="微电影：希望的声音" alt="微电影：希望的声音"></a>
+<a href="https://gitlab.com/szzdlab/vdyyzd2020gzn/raw/master/yyzd2020gzn.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/yyzd2020gzn.jpg" title="預言中的2020庚子年" alt="預言中的2020庚子年"></a>
+<a href="https://gitlab.com/szzdlab/vdtianliang/raw/master/tianliang.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/tianliang.jpg" title="一修行人对疫情的反思和避难之道" alt="一修行人对疫情的反思和避难之道"></a><br>
+<a href="https://gitlab.com/szzdlab/vdpzNgjXjVPm/raw/master/pzNgjXjVPm.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/pzNgjXjVPm.jpg" title="疫情险 顺天保命有真言" alt="疫情凶险 顺天保命有真言"></a>
+<a href="https://gitlab.com/szzdlab/vdgushi-h/raw/master/gushi-h.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/gushi-h.jpg" title="大瘟疫中的奇异故事（视频）" alt="大瘟疫中的奇异故事（视频）"></a>
+<a href="https://gitlab.com/szzdlab/vd5N.8/raw/master/5N.8.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/5N.8.jpg" title="活摘十年调查" alt="活摘十年调查"></a><br>
+<a href="https://gitlab.com/szzdlab/vdfy/raw/master/fy.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/fy.jpg" title="风雨天地行(全集)" alt="风雨天地行(全集)"></a>
+<a href="https://gitlab.com/szzdlab/vdhongchaoyinmou-hi/raw/master/hongchaoyinmou-hi.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/hongchaoyinmou-hi.jpg" title="红朝阴谋—这个星球上从未有过的邪恶" alt="红朝阴谋—这个星球上从未有过的邪恶"></a>
+<a href="https://gitlab.com/szzdlab/vdTdowhauWx9WiM/raw/master/TdowhauWx9WiM.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/TdowhauWx9WiM.jpg" title="震惊世界的奇石 藏「中国共产党亡」" alt="震惊世界的奇石 藏「中国共产党亡」"></a><br>
+<a href="https://gitlab.com/szzdlab/vdjD7d_68er8L/raw/master/jD7d_68er8L.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/jD7d_68er8L.jpg" title="【明慧焦点】“批孔”、“自焚骗局”和小学课本" alt="【明慧焦点】“批孔”、“自焚骗局”和小学课本"></a>
+<a href="https://gitlab.com/szzdlab/vdszt/raw/master/szt.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/szt.jpg" title="孤僧万里寻大道(上、下)" alt="孤僧万里寻大道(上、下)"></a>
+<a href="https://gitlab.com/szzdlab/vdwm/raw/master/wm.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/wm.jpg" title="我们告诉未来 (全集)" alt="我们告诉未来 (全集)"></a><br>
+<a href="https://gitlab.com/szzdlab/vdqh/raw/master/qh.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/qh.jpg" title="清华学子的悲壮故事(全集)" alt="清华学子的悲壮故事(全集)"></a>
+<a href="https://gitlab.com/szzdlab/vd3-JTT_CN_MH-360p/raw/master/3-JTT_CN_MH-360p.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/3-JTT_CN_MH-360p.jpg" title="传奇时代 通往天安门的旅程" alt="传奇时代 通往天安门的旅程"></a>
+<a href="https://gitlab.com/szzdlab/vdC1WZ_mj/raw/master/C1WZ_mj.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/C1WZ_m.jpg" title="【明慧焦点】4.25—阻止迫害发生的最后一次机会" alt="【明慧焦点】4.25—阻止迫害发生的最后一次机会"></a><br>
+<a href="https://gitlab.com/szzdlab/vdwl/raw/master/wl.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/wl.jpg" title="未来人的神话故事(上、下)" alt="未来人的神话故事(上、下)"></a>
+<a href="https://gitlab.com/szzdlab/vd425/raw/master/425.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/425.jpg" title="“四.二五”上访真相" alt="“四.二五”上访真相"></a>
+<a href="https://gitlab.com/szzdlab/vd1400forge-1210/raw/master/1400forge-1210.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/1400forge-1210.jpg" title="解析〝1400例〞" alt="解析〝1400例〞"></a><br>
+<a href="https://gitlab.com/szzdlab/vdguanguimin/raw/master/guanguimin.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/guanguimin.jpg" title="短视频：歌唱家关贵敏的人生奇迹" alt="短视频：歌唱家关贵敏的人生奇迹"></a>
 <a href="https://gitlab.com/szzdlab/vdLijianhui-200804-720/raw/master/Lijianhui-200804-720.webm" target="_blank"><img width="210" src="https://gitlab.com/szzdlab/t/-/raw/master/210b/ruidian_720.jpg" title="短视频：千万富翁的生命回归之路" alt="短视频：千万富翁的生命回归之路"></a>
-<a href="https://gitlab.com/szzdlab/vdlin-720p/raw/master/lin-720p.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/lin-720p.jpg" title="加拿大世界小姐的心灵旅程" alt="加拿大世界小姐的心灵旅程"></a><br>
-<a href="https://gitlab.com/szzdlab/vd9p/raw/master/9p.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/9p.jpg" title="九评共产党(全集)" alt="九评共产党(全集)"></a>
-<a href="https://gitlab.com/szzdlab/vdmtdwh/raw/master/mtdwh.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/mtdwh.jpg" title="漫谈党文化(全集)" alt="漫谈党文化(全集)"></a>
-<a href="https://gitlab.com/szzdlab/vdzjmd1_19/raw/master/zjmd1_19.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/zjmd1-19.jpg" title="共产主义的终极目的(1-19)" alt="共产主义的终极目的(1-19)"></a><br>
+<a href="https://gitlab.com/szzdlab/vdlin-720p/raw/master/lin-720p.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/lin-720p.jpg" title="加拿大世界小姐的心灵旅程" alt="加拿大世界小姐的心灵旅程"></a><br>
+<a href="https://gitlab.com/szzdlab/vd9p/raw/master/9p.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/9p.jpg" title="九评共产党(全集)" alt="九评共产党(全集)"></a>
+<a href="https://gitlab.com/szzdlab/vdmtdwh/raw/master/mtdwh.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/mtdwh.jpg" title="漫谈党文化(全集)" alt="漫谈党文化(全集)"></a>
+<a href="https://gitlab.com/szzdlab/vdzjmd1_19/raw/master/zjmd1_19.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/zjmd1-19.jpg" title="共产主义的终极目的(1-19)" alt="共产主义的终极目的(1-19)"></a><br>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <br>
-<a href="https://gitlab.com/szzdlab/vdzjmd20_32/raw/master/zjmd20_32.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/zjmd20-32.jpg" title="共产主义的终极目的(20-32)" alt="共产主义的终极目的(20-32)"></a>
-<a href="https://gitlab.com/szzdlab/vddmt/raw/master/dmt.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/dmt.jpg" title="真实的江泽民 (全集)" alt="真实的江泽民 (全集)"></a>
-<a href="https://gitlab.com/szzdlab/vd_.o/raw/master/_.o.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/_.o.jpg" title="永恒的电波" alt="永恒的电波"></a><br>
-<a href="https://gitlab.com/szzdlab/vdtzrs/raw/master/tzrs.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/tzrs.jpg" title="铁证如山" alt="铁证如山"></a>
-<a href="https://gitlab.com/szzdlab/vdUc6y/raw/master/Uc6y.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/Uc6y.jpg" title="【细语人生】一个渐冻人的康复神奇" alt="【细语人生】一个渐冻人的康复神奇></a>
-<a href="https://gitlab.com/szzdlab/vddalian-360p/raw/master/dalian-360p.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/dalian-360p.jpg" title="纪录片：大连的故事" alt="纪录片：大连的故事"></a><br>
-<a href="https://gitlab.com/szzdlab/vd1-Xuezhongmei_MH-360p/raw/master/1-Xuezhongmei_MH-360p.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/1-Xuezhongmei_MH-360p.jpg" title="传奇时代 雪中梅" alt="传奇时代 雪中梅"></a>
-<a href="https://gitlab.com/szzdlab/vd2-RedWallMemory_MH-360p/raw/master/2-RedWallMemory_MH-360p.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/2-RedWallMemory_MH-360p.jpg" title="传奇时代 红墙的记忆" alt="传奇时代 红墙的记忆"></a>
-<a href="https://gitlab.com/szzdlab/vd4-ChoiceOfEurope_MH-360p/raw/master/4-ChoiceOfEurope_MH-360p.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/4-ChoiceOfEurope_MH-360p.jpg" title="传奇时代 欧洲的抉择" alt="传奇时代 欧洲的抉择"></a><br>
-<a href="https://gitlab.com/szzdlab/vd5-YiSu_MH-360p/raw/master/5-YiSu_MH-360p.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/5-YiSu_MH-360p.jpg" title="传奇时代 义诉" alt="传奇时代 义诉"></a>
-<a href="https://gitlab.com/szzdlab/vddalian-online/raw/master/dalian-online.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/dalian-online.jpg" title="视频：风雨中的大连" alt="视频：风雨中的大连"></a>
-<a href="https://gitlab.com/szzdlab/vdChenDong-1080/raw/master/ChenDong-1080.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/ChenDong-1080.jpg" title="好莱坞大奖获得者的音乐之路" alt="好莱坞大奖获得者的音乐之路"></a><br>
+<a href="https://gitlab.com/szzdlab/vdzjmd20_32/raw/master/zjmd20_32.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/zjmd20-32.jpg" title="共产主义的终极目的(20-32)" alt="共产主义的终极目的(20-32)"></a>
+<a href="https://gitlab.com/szzdlab/vddmt/raw/master/dmt.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/dmt.jpg" title="真实的江泽民 (全集)" alt="真实的江泽民 (全集)"></a>
+<a href="https://gitlab.com/szzdlab/vd_.o/raw/master/_.o.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/_.o.jpg" title="永恒的电波" alt="永恒的电波"></a><br>
+<a href="https://gitlab.com/szzdlab/vdtzrs/raw/master/tzrs.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/tzrs.jpg" title="铁证如山" alt="铁证如山"></a>
+<a href="https://gitlab.com/szzdlab/vdUc6y/raw/master/Uc6y.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/Uc6y.jpg" title="【细语人生】一个渐冻人的康复神奇" alt="【细语人生】一个渐冻人的康复神奇></a>
+<a href="https://gitlab.com/szzdlab/vddalian-360p/raw/master/dalian-360p.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/dalian-360p.jpg" title="纪录片：大连的故事" alt="纪录片：大连的故事"></a><br>
+<a href="https://gitlab.com/szzdlab/vd1-Xuezhongmei_MH-360p/raw/master/1-Xuezhongmei_MH-360p.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/1-Xuezhongmei_MH-360p.jpg" title="传奇时代 雪中梅" alt="传奇时代 雪中梅"></a>
+<a href="https://gitlab.com/szzdlab/vd2-RedWallMemory_MH-360p/raw/master/2-RedWallMemory_MH-360p.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/2-RedWallMemory_MH-360p.jpg" title="传奇时代 红墙的记忆" alt="传奇时代 红墙的记忆"></a>
+<a href="https://gitlab.com/szzdlab/vd4-ChoiceOfEurope_MH-360p/raw/master/4-ChoiceOfEurope_MH-360p.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/4-ChoiceOfEurope_MH-360p.jpg" title="传奇时代 欧洲的抉择" alt="传奇时代 欧洲的抉择"></a><br>
+<a href="https://gitlab.com/szzdlab/vd5-YiSu_MH-360p/raw/master/5-YiSu_MH-360p.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/5-YiSu_MH-360p.jpg" title="传奇时代 义诉" alt="传奇时代 义诉"></a>
+<a href="https://gitlab.com/szzdlab/vddalian-online/raw/master/dalian-online.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/dalian-online.jpg" title="视频：风雨中的大连" alt="视频：风雨中的大连"></a>
+<a href="https://gitlab.com/szzdlab/vdChenDong-1080/raw/master/ChenDong-1080.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/ChenDong-1080.jpg" title="好莱坞大奖获得者的音乐之路" alt="好莱坞大奖获得者的音乐之路"></a><br>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <br>
-<a href="https://gitlab.com/szzdlab/vdhuangxiaomin-tuidang/raw/master/huangxiaomin-tuidang.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/huangxiaomin-tuidang.jpg" title="前奥运名将黄晓敏的“退党声明”" alt="前奥运名将黄晓敏的“退党声明”"></a>
-<a href="https://gitlab.com/szzdlab/vdnvshuoshi/raw/master/nvshuoshi.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/nvshuoshi.jpg" title="短视频：留美女硕士戴宜葳的人生祸福大逆转" alt="短视频：留美女硕士戴宜葳的人生祸福大逆转"></a>
-<a href="https://gitlab.com/szzdlab/vdboshisheng/raw/master/boshisheng.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/boshisheng.jpg" title="短视频：美国博士生廖佩茹的新生" alt="短视频：美国博士生廖佩茹的新生"></a><br>
-<a href="https://gitlab.com/szzdlab/vdshiren/raw/master/shiren.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/shiren.jpg" title="短视频：台湾诗人生命中最幸福的事" alt="短视频：台湾诗人生命中最幸福的事"></a>
-<a href="https://gitlab.com/szzdlab/vdxsgs/raw/master/xsgs.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/xsgs.jpg" title="短视频：30万美金归还韩国失主" alt="短视频：30万美金归还韩国失主"></a>
-<a href="https://gitlab.com/szzdlab/vdwangjinju/raw/master/wangjinju.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/wangjinju.jpg" title="短视频：篮坛宿将王金菊" alt="短视频：篮坛宿将王金菊"></a><br>
-<a href="https://gitlab.com/szzdlab/vdyanjiusheng-360p/raw/master/yanjiusheng-360p.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/yanjiusheng-360p.jpg" title="“倒数第一”的学生考上了研究生" alt="“倒数第一”的学生考上了研究生"></a>
-<a href="https://gitlab.com/szzdlab/vdfsu-mFG8/raw/master/fsu-mFG8.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/fsu-mFG8.jpg" title="短视频：她在回光返照时得救" alt="短视频：她在回光返照的时候得救"></a>
-<a href="https://gitlab.com/szzdlab/vdw/raw/master/w.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/w.jpg" title="我站起来了！" alt="我站起来了！"></a><br>
-<a href="https://gitlab.com/szzdlab/vdwanglin-1080p/raw/master/wanglin-1080p.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/wanglin-1080p.jpg" title="患脑瘤回家等死的总参工程师奇迹般痊愈" alt="患脑瘤回家等死的总参工程师奇迹般痊愈"></a>
-<a href="https://gitlab.com/szzdlab/vdguangming/raw/master/guangming.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/guangming.jpg" title="短视频：抑郁和不孕的她迎来了光明" alt="短视频：抑郁和不孕的她迎来了光明"></a>
-<a href="https://gitlab.com/szzdlab/vdshaonian/raw/master/shaonian.webm" target="_blank"><img width="195" src="https://gitlab.com/szzdlab/t/raw/master/210b/shaonian.jpg" title="短视频：绝处逢生的癌症少年" alt="短视频：绝处逢生的癌症少年"></a><br>
+<a href="https://gitlab.com/szzdlab/vdhuangxiaomin-tuidang/raw/master/huangxiaomin-tuidang.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/huangxiaomin-tuidang.jpg" title="前奥运名将黄晓敏的“退党声明”" alt="前奥运名将黄晓敏的“退党声明”"></a>
+<a href="https://gitlab.com/szzdlab/vdnvshuoshi/raw/master/nvshuoshi.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/nvshuoshi.jpg" title="短视频：留美女硕士戴宜葳的人生祸福大逆转" alt="短视频：留美女硕士戴宜葳的人生祸福大逆转"></a>
+<a href="https://gitlab.com/szzdlab/vdboshisheng/raw/master/boshisheng.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/boshisheng.jpg" title="短视频：美国博士生廖佩茹的新生" alt="短视频：美国博士生廖佩茹的新生"></a><br>
+<a href="https://gitlab.com/szzdlab/vdshiren/raw/master/shiren.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/shiren.jpg" title="短视频：台湾诗人生命中最幸福的事" alt="短视频：台湾诗人生命中最幸福的事"></a>
+<a href="https://gitlab.com/szzdlab/vdxsgs/raw/master/xsgs.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/xsgs.jpg" title="短视频：30万美金归还韩国失主" alt="短视频：30万美金归还韩国失主"></a>
+<a href="https://gitlab.com/szzdlab/vdwangjinju/raw/master/wangjinju.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/wangjinju.jpg" title="短视频：篮坛宿将王金菊" alt="短视频：篮坛宿将王金菊"></a><br>
+<a href="https://gitlab.com/szzdlab/vdyanjiusheng-360p/raw/master/yanjiusheng-360p.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/yanjiusheng-360p.jpg" title="“倒数第一”的学生考上了研究生" alt="“倒数第一”的学生考上了研究生"></a>
+<a href="https://gitlab.com/szzdlab/vdfsu-mFG8/raw/master/fsu-mFG8.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/fsu-mFG8.jpg" title="短视频：她在回光返照时得救" alt="短视频：她在回光返照的时候得救"></a>
+<a href="https://gitlab.com/szzdlab/vdw/raw/master/w.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/w.jpg" title="我站起来了！" alt="我站起来了！"></a><br>
+<a href="https://gitlab.com/szzdlab/vdwanglin-1080p/raw/master/wanglin-1080p.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/wanglin-1080p.jpg" title="患脑瘤回家等死的总参工程师奇迹般痊愈" alt="患脑瘤回家等死的总参工程师奇迹般痊愈"></a>
+<a href="https://gitlab.com/szzdlab/vdguangming/raw/master/guangming.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/guangming.jpg" title="短视频：抑郁和不孕的她迎来了光明" alt="短视频：抑郁和不孕的她迎来了光明"></a>
+<a href="https://gitlab.com/szzdlab/vdshaonian/raw/master/shaonian.webm" target="_blank"><img width="195" src="https://raw.githubusercontent.com/myjazr3374/vd/master/t/210b/shaonian.jpg" title="短视频：绝处逢生的癌症少年" alt="短视频：绝处逢生的癌症少年"></a><br>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <br><p><strong><a target="_blank" href="https://github.com/myjazr3374/vd/blob/master/README.md#1">真相视频专辑</a></strong></p>
 </details>
@@ -414,12 +413,12 @@
 <p><strong>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年的腥风血雨，二十多年的凌辱折磨，岁月飞逝，历史见证，迫害善良原本就是违背道义不得民心的...</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;99年中共因法轮功修炼人数超过党员而疯狂镇压，不惜制造一个个谎言，导演天安门自焚案栽赃法轮功，对坚持信仰的学员绑架抄家，用尽酷刑，导致数以百万计的家破人亡、妻离子散！然而中共高估了自己的造假宣传。各国政府纷纷谴责中共暴行，高度肯定法轮功提升道德、净化心灵、强身健体的卓越成效。在国内，声援法轮功的事件此起彼伏。成千上万人为被非法抓捕的学员请愿，演绎了不畏强权反迫害的一幕又一幕。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年过去了。如今法轮功“真善忍”普世价值观，超越民族文化，洪传世界一百多个国家，仅台湾就有八十万人修炼，其主要著作被译成四十多种文字，举世赞誉！而中共江泽民却因罪恶迫害，在海内外被数百万人联署举报，被二十多万人实名起诉。在这场对善良打压中，中共把法制、道德伦理都推向崩溃边缘。民心丧尽、天怒人怨!人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="http://125.231.142.46/UmhjM" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="http://114.40.153.77/UmhjM" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
 </details>
 
 <div align="center">
 <img src="https://raw.githubusercontent.com/myjazr3374/www/master/t/01.jpg">
-<h1><strong><a href="http://125.231.142.46/UmhjM" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
+<h1><strong><a href="http://114.40.153.77/UmhjM" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/myjazr3374/www/master/t/03.jpg"><br>
@@ -479,15 +478,15 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;于中共无所不在的欺骗洗脑与暴力胁迫下，有多少人放弃了诚实宽厚、仁爱谦和的道德底线，变得见风使舵、落井下石，甚至为一己之私而无恶不作。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;稍微盘点中共的罪恶，让人感到心情无比的沉重。了解了中共，才明白什么叫做罪恶滔天，罄竹难书。</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="http://125.231.142.46/UmhjM" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="http://114.40.153.77/UmhjM" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/myjazr3374/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/myjazr3374/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/myjazr3374/www/master/index.html?z">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/myjazr3374/www/blob/master/README.md?h#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/myjazr3374/www/blob/master/README.md?j%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ttttn" title="分享本平台"></img>
-<br><a href="https://git.io/ddddx">https://git.io/ddddx</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/ttttn">https://is.gd/ttttn</a>
+<p><strong><a href="https://github.com/myjazr3374/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/myjazr3374/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/myjazr3374/www/master/index.html?j">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/myjazr3374/www/blob/master/README.md?y#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/myjazr3374/www/blob/master/README.md?x%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/rdddd" title="分享本平台"></img>
+<br><a href="https://git.io/aaaay">https://git.io/aaaay</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/rdddd">https://is.gd/rdddd</a>
 <br>
 <br>
-<h3><a href="https://myjazr3374.github.io/vd/qr/qr2/#https://github.com/myjazr3374/www/blob/master/README.md?s#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://myjazr3374.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/ttttn%22%2C%22https://is.gd/uuuu7%22%2C%22https://is.gd/tqqqq%22%2C%22https://is.gd/ssxss%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://myjazr3374.github.io/vd/qr/qr2/#https://github.com/myjazr3374/www/blob/master/README.md?n#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://myjazr3374.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/rdddd%22%2C%22https://is.gd/zzzzq%22%2C%22https://is.gd/qcccc%22%2C%22https://is.gd/qqbqq%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
