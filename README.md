@@ -9,22 +9,22 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/ovftry332/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ovftry332/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/xuuuu">git.io/xuuuu</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/pdddd">git.io/pdddd</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/ovftry332/ntdtv/blob/master/gb/2020/11/24/a102994179.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海疫情四天连爆 浦东机场4成航班被取消  >-009fcc?logoWidth=1" title="上海疫情四天连爆 浦东机场4成航班被取消  " alt="上海疫情四天连爆 浦东机场4成航班被取消  "></a></p>
 <p><a href="https://github.com/ovftry332/ntdtv/blob/master/gb/2020/11/24/a102994083.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/消息人士：马云已被边控 背后势力惹恼习近平 >-009fcc?logoWidth=1" title="消息人士：马云已被边控 背后势力惹恼习近平  " alt="消息人士：马云已被边控 背后势力惹恼习近平  "></a></p>
 <p><a href="https://github.com/ovftry332/ntdtv/blob/master/gb/2020/11/24/a102993863.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/史诗级诉讼开打 作弊软件溯源的惊人发现   >-009fcc?logoWidth=1" title="史诗级诉讼开打 作弊软件溯源的惊人发现  " alt="史诗级诉讼开打 作弊软件溯源的惊人发现  "></a></p>
 <p><a href="https://github.com/ovftry332/ntdtv/blob/master/gb/2020/11/24/a102994024.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国总务署批准权力过渡 川普揭内情     >-009fcc?logoWidth=1" title="美国总务署批准权力过渡 川普揭内情  " alt="美国总务署批准权力过渡 川普揭内情  "></a></p>
 <p><a href="https://github.com/ovftry332/ntdtv/blob/master/gb/2020/11/24/a102993966.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/鲍威尔宣布实施“史诗级”计划(附中文声明) >-009fcc?logoWidth=1" title="鲍威尔宣布实施“史诗级”计划(附中文声明)  " alt="鲍威尔宣布实施“史诗级”计划(附中文声明)  "></a></p>
 <p><a href="https://github.com/ovftry332/ntdtv/blob/master/gb/2020/11/24/a102993938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/鲍威尔“独立作战” 选举委主席解玄机    >-009fcc?logoWidth=1" title="鲍威尔“独立作战” 选举委主席解玄机  " alt="鲍威尔“独立作战” 选举委主席解玄机  "></a></p>
-<p><a href="https://github.com/ovftry332/ntdtv/blob/master/gb/2020/11/23/a102993433.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王沪宁突然被免/川普拟再制裁89家中共军企 >-009fcc?logoWidth=1" title="王沪宁突然被免/川普拟再制裁89家中共军企  " alt="王沪宁突然被免/川普拟再制裁89家中共军企  "></a></p>
+<p><a href="https://github.com/ovftry332/ntdtv/blob/master/gb/2020/11/24/a102994204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河南老汉钓到背插四支箭的乌龟 价值高达18亿>-009fcc?logoWidth=1" title="河南老汉钓到背插四支箭的乌龟 价值高达18亿  " alt="河南老汉钓到背插四支箭的乌龟 价值高达18亿  "></a></p>
 <p><a href="https://github.com/ovftry332/ntdtv/blob/master/gb/2020/11/24/a102994221.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亚利桑那州受访者：拜登被中共收买了 很多民主>-009fcc?logoWidth=1" title="亚利桑那州受访者：拜登被中共收买了 很多民主党政客都被收买了  " alt="亚利桑那州受访者：拜登被中共收买了 很多民主党政客都被收买了  "></a></p>
 <p><a href="https://github.com/ovftry332/ntdtv/blob/master/gb/2020/11/24/a102994196.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亚利桑那州受访者：为川普总统做宣传 自费买大>-009fcc?logoWidth=1" title="亚利桑那州受访者：为川普总统做宣传 自费买大巴全国巡回  " alt="亚利桑那州受访者：为川普总统做宣传 自费买大巴全国巡回  "></a></p>
 <p><a href="https://github.com/ovftry332/ntdtv/blob/master/gb/2020/11/24/a102994160.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020年代表字 柯林斯选“封锁”牛津字典选>-009fcc?logoWidth=1" title="2020年代表字 柯林斯选“封锁”牛津字典选不出  " alt="2020年代表字 柯林斯选“封锁”牛津字典选不出  "></a></p>
 <p><a href="https://github.com/ovftry332/ntdtv/blob/master/gb/2020/11/24/a102994120.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/邓丽君与林青霞 “不打不相识”的闺蜜知己  >-009fcc?logoWidth=1" title="邓丽君与林青霞 “不打不相识”的闺蜜知己  " alt="邓丽君与林青霞 “不打不相识”的闺蜜知己  "></a></p>
-<p><a href="https://github.com/ovftry332/ntdtv/blob/master/gb/2020/11/24/a102994125.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉法轮功学员危有秀遭看守所迫害离世    >-009fcc?logoWidth=1" title="武汉法轮功学员危有秀遭看守所迫害离世  " alt="武汉法轮功学员危有秀遭看守所迫害离世  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ovftry332/djy/blob/master/gb/20/11/24/n12570599.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美总务署批准拜登过渡资源 川普：继续战斗  >-009fcc?logoWidth=1" title="美总务署批准拜登过渡资源 川普：继续战斗  " alt="美总务署批准拜登过渡资源 川普：继续战斗  "></a></p>
 <p><a href="https://github.com/ovftry332/djy/blob/master/gb/20/11/24/n12570830.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/袁斌：中共究竟有没有介入美国大选舞弊？   >-009fcc?logoWidth=1" title="袁斌：中共究竟有没有介入美国大选舞弊？  " alt="袁斌：中共究竟有没有介入美国大选舞弊？  "></a></p>
@@ -35,12 +35,13 @@
 <p><a href="https://github.com/ovftry332/djy/blob/master/gb/20/11/23/n12570198.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/832个国家级贫困县全脱贫？义工：更穷了  >-009fcc?logoWidth=1" title="832个国家级贫困县全脱贫？义工：更穷了  " alt="832个国家级贫困县全脱贫？义工：更穷了  "></a></p>
 <p><a href="https://github.com/ovftry332/djy/blob/master/gb/20/11/21/n12566482.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/绍兴爆出复阳病例 浙江省管控进入紧张状态  >-009fcc?logoWidth=1" title="绍兴爆出复阳病例 浙江省管控进入紧张状态  " alt="绍兴爆出复阳病例 浙江省管控进入紧张状态  "></a></p>
 <p><a href="https://github.com/ovftry332/djy/blob/master/gb/20/11/24/n12570961.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中共坠亡的日子越来越近        >-009fcc?logoWidth=1" title="分析：中共坠亡的日子越来越近  " alt="分析：中共坠亡的日子越来越近  "></a></p>
+<p><a href="https://github.com/ovftry332/djy/blob/master/gb/20/11/24/n12571475.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/4省书记同时换人 分析：中组部与国务院欠沟通>-009fcc?logoWidth=1" title="4省书记同时换人 分析：中组部与国务院欠沟通  " alt="4省书记同时换人 分析：中组部与国务院欠沟通  "></a></p>
 <p><a href="https://github.com/ovftry332/djy/blob/master/gb/20/11/23/n12569559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美左派手段如共产党 学者：渗透已超乎想像  >-009fcc?logoWidth=1" title="美左派手段如共产党 学者：渗透已超乎想像  " alt="美左派手段如共产党 学者：渗透已超乎想像  "></a></p>
 <p><a href="https://github.com/ovftry332/djy/blob/master/gb/20/11/24/n12571101.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：赵洪祝突然被聚焦 中南海是否酿风暴？>-009fcc?logoWidth=1" title="王友群：赵洪祝突然被聚焦 中南海是否酿风暴？  " alt="王友群：赵洪祝突然被聚焦 中南海是否酿风暴？  "></a></p>
-<p><a href="https://github.com/ovftry332/djy/blob/master/gb/20/11/24/n12570992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普重磅诉讼启动 中共3经济风险      >-009fcc?logoWidth=1" title="川普重磅诉讼启动 中共3经济风险  " alt="川普重磅诉讼启动 中共3经济风险  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ovftry332/ntdtv/blob/master/gb/2020/11/24/a102993916.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英通灵师预言2021年大事：某男性领导人遭暗>-009fcc?logoWidth=1" title="英通灵师预言2021年大事：某男性领导人遭暗杀  " alt="英通灵师预言2021年大事：某男性领导人遭暗杀  "></a></p>
 <p><a href="https://github.com/ovftry332/ntdtv/blob/master/gb/2020/11/24/a102994118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/触目惊心 陕西高速公路43车连环撞10多辆起>-009fcc?logoWidth=1" title="触目惊心 陕西高速公路43车连环撞10多辆起火  " alt="触目惊心 陕西高速公路43车连环撞10多辆起火  "></a></p>
+<p><a href="https://github.com/ovftry332/djy/blob/master/gb/20/11/24/n12570992.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普重磅诉讼启动 中共3经济风险      >-009fcc?logoWidth=1" title="川普重磅诉讼启动 中共3经济风险  " alt="川普重磅诉讼启动 中共3经济风险  "></a></p>
 <p><a href="https://github.com/ovftry332/ntdtv/blob/master/gb/2020/11/24/a102994059.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普同意交接！是逼宫得逞 还是以退为进？  >-009fcc?logoWidth=1" title="川普同意交接！是逼宫得逞 还是以退为进？  " alt="川普同意交接！是逼宫得逞 还是以退为进？  "></a></p>
 <p><a href="https://github.com/ovftry332/ntdtv/blob/master/gb/2020/11/24/a102993959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球最大手套制造商2453名员工染疫 关闭2>-009fcc?logoWidth=1" title="全球最大手套制造商2453名员工染疫 关闭28间工厂  " alt="全球最大手套制造商2453名员工染疫 关闭28间工厂  "></a></p>
 <p><a href="https://github.com/ovftry332/djy/blob/master/gb/20/11/23/n12569037.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传美国拟再将89中企列入禁购美商品名单   >-009fcc?logoWidth=1" title="传美国拟再将89中企列入禁购美商品名单  " alt="传美国拟再将89中企列入禁购美商品名单  "></a></p>
@@ -260,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://ovftry332.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?shwjm">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?zcdhj">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?czieq">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?mtayn">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?rqrqe">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ccydp">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?lprou">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?bcbso">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -415,12 +416,12 @@
 <p><strong>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年的腥风血雨，二十多年的凌辱折磨，岁月飞逝，历史见证，迫害善良原本就是违背道义不得民心的...</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;99年中共因法轮功修炼人数超过党员而疯狂镇压，不惜制造一个个谎言，导演天安门自焚案栽赃法轮功，对坚持信仰的学员绑架抄家，用尽酷刑，导致数以百万计的家破人亡、妻离子散！然而中共高估了自己的造假宣传。各国政府纷纷谴责中共暴行，高度肯定法轮功提升道德、净化心灵、强身健体的卓越成效。在国内，声援法轮功的事件此起彼伏。成千上万人为被非法抓捕的学员请愿，演绎了不畏强权反迫害的一幕又一幕。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年过去了。如今法轮功“真善忍”普世价值观，超越民族文化，洪传世界一百多个国家，仅台湾就有八十万人修炼，其主要著作被译成四十多种文字，举世赞誉！而中共江泽民却因罪恶迫害，在海内外被数百万人联署举报，被二十多万人实名起诉。在这场对善良打压中，中共把法制、道德伦理都推向崩溃边缘。民心丧尽、天怒人怨!人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="http://1.171.238.35/UmhjM" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="http://118.166.58.6/UmhjM" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
 </details>
 
 <div align="center">
 <img src="https://raw.githubusercontent.com/ovftry332/www/master/t/01.jpg">
-<h1><strong><a href="http://1.171.238.35/UmhjM" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
+<h1><strong><a href="http://118.166.58.6/UmhjM" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/ovftry332/www/master/t/03.jpg"><br>
@@ -480,15 +481,15 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;于中共无所不在的欺骗洗脑与暴力胁迫下，有多少人放弃了诚实宽厚、仁爱谦和的道德底线，变得见风使舵、落井下石，甚至为一己之私而无恶不作。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;稍微盘点中共的罪恶，让人感到心情无比的沉重。了解了中共，才明白什么叫做罪恶滔天，罄竹难书。</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="http://1.171.238.35/UmhjM" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="http://118.166.58.6/UmhjM" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/ovftry332/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ovftry332/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ovftry332/www/master/index.html?c">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ovftry332/www/blob/master/README.md?u#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ovftry332/www/blob/master/README.md?p%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/tgggg" title="分享本平台"></img>
-<br><a href="https://git.io/xuuuu">https://git.io/xuuuu</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/tgggg">https://is.gd/tgggg</a>
+<p><strong><a href="https://github.com/ovftry332/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ovftry332/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ovftry332/www/master/index.html?i">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ovftry332/www/blob/master/README.md?v#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ovftry332/www/blob/master/README.md?f%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/zzbzz" title="分享本平台"></img>
+<br><a href="https://git.io/pdddd">https://git.io/pdddd</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/zzbzz">https://is.gd/zzbzz</a>
 <br>
 <br>
-<h3><a href="https://ovftry332.github.io/vd/qr/qr2/#https://github.com/ovftry332/www/blob/master/README.md?w#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ovftry332.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/tgggg%22%2C%22https://is.gd/sbbbb%22%2C%22https://is.gd/qqzqq%22%2C%22https://is.gd/nnnnq%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://ovftry332.github.io/vd/qr/qr2/#https://github.com/ovftry332/www/blob/master/README.md?d#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ovftry332.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/zzbzz%22%2C%22https://is.gd/ppupp%22%2C%22https://is.gd/yyhyy%22%2C%22https://is.gd/zzzzp%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
