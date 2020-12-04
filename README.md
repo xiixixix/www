@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/zincln345/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/zincln345/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/hiiii">git.io/hiiii</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/53333">git.io/53333</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -26,12 +26,12 @@
 <p><a href="https://github.com/zincln345/ntdtv/blob/master/gb/2020/12/03/a103001423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/Dominion牵出选举欺诈老手 与支持奥巴>-009fcc?logoWidth=1" title="Dominion牵出选举欺诈老手 与支持奥巴马的极左组织有关  " alt="Dominion牵出选举欺诈老手 与支持奥巴马的极左组织有关  "></a></p>
 <p><a href="https://github.com/zincln345/ntdtv/blob/master/gb/2020/12/04/a103001794.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员表态：将在国会挑战选举人团投票结果  >-009fcc?logoWidth=1" title="美议员表态：将在国会挑战选举人团投票结果  " alt="美议员表态：将在国会挑战选举人团投票结果  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/zincln345/djy/blob/master/gb/20/12/3/n12594399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乔州监控录像证实 赶走监票员秘密计票3小时 >-009fcc?logoWidth=1" title="乔州监控录像证实 赶走监票员秘密计票3小时  " alt="乔州监控录像证实 赶走监票员秘密计票3小时  "></a></p>
+<p><a href="https://github.com/zincln345/djy/blob/master/gb/20/12/3/n12594279.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/十年签变一月签 美限中共党员及家属入境   >-009fcc?logoWidth=1" title="十年签变一月签 美限中共党员及家属入境  " alt="十年签变一月签 美限中共党员及家属入境  "></a></p>
 <p><a href="https://github.com/zincln345/djy/blob/master/gb/20/12/3/n12593970.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/体制内记者曝官媒内部禁谈胡锡进通奸丑闻   >-009fcc?logoWidth=1" title="体制内记者曝官媒内部禁谈胡锡进通奸丑闻  " alt="体制内记者曝官媒内部禁谈胡锡进通奸丑闻  "></a></p>
 <p><a href="https://github.com/zincln345/djy/blob/master/gb/20/12/3/n12593802.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普重大演说：不消除舞弊 美国就没有了   >-009fcc?logoWidth=1" title="川普重大演说：不消除舞弊 美国就没有了  " alt="川普重大演说：不消除舞弊 美国就没有了  "></a></p>
 <p><a href="https://github.com/zincln345/djy/blob/master/gb/20/12/3/n12593837.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普最重要演说释何信号？          >-009fcc?logoWidth=1" title="川普最重要演说释何信号？  " alt="川普最重要演说释何信号？  "></a></p>
 <p><a href="https://github.com/zincln345/djy/blob/master/gb/20/12/3/n12593964.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登团队要员来自的神秘公司 悄删中国业务  >-009fcc?logoWidth=1" title="拜登团队要员来自的神秘公司 悄删中国业务  " alt="拜登团队要员来自的神秘公司 悄删中国业务  "></a></p>
-<p><a href="https://github.com/zincln345/djy/blob/master/gb/20/12/3/n12594279.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/十年签变一月签 美限制中共党员及家属入境  >-009fcc?logoWidth=1" title="十年签变一月签 美限制中共党员及家属入境  " alt="十年签变一月签 美限制中共党员及家属入境  "></a></p>
+<p><a href="https://github.com/zincln345/djy/blob/master/gb/20/12/3/n12594399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乔州监控录像证实赶走监票员秘密计票     >-009fcc?logoWidth=1" title="乔州监控录像证实赶走监票员秘密计票  " alt="乔州监控录像证实赶走监票员秘密计票  "></a></p>
 <p><a href="https://github.com/zincln345/djy/blob/master/gb/20/12/2/n12591949.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美戒严？司法部发声 习危机感超强      >-009fcc?logoWidth=1" title="美戒严？司法部发声 习危机感超强  " alt="美戒严？司法部发声 习危机感超强  "></a></p>
 <p><a href="https://github.com/zincln345/djy/blob/master/gb/20/11/17/n12554797.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共利用国际友城打压台湾外交        >-009fcc?logoWidth=1" title="中共利用国际友城打压台湾外交  " alt="中共利用国际友城打压台湾外交  "></a></p>
 <p><a href="https://github.com/zincln345/djy/blob/master/gb/20/12/3/n12592112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共处理朝鲜4.22车祸背后考量      >-009fcc?logoWidth=1" title="中共处理朝鲜4.22车祸背后考量  " alt="中共处理朝鲜4.22车祸背后考量  "></a></p>
@@ -39,19 +39,15 @@
 <p><a href="https://github.com/zincln345/djy/blob/master/gb/20/12/3/n12594439.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/政变4大显像 拜登背后中共黑影       >-009fcc?logoWidth=1" title="政变4大显像 拜登背后中共黑影  " alt="政变4大显像 拜登背后中共黑影  "></a></p>
 <p><a href="https://github.com/zincln345/djy/blob/master/gb/20/12/3/n12592169.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内华达法院“选举欺诈”听证会        >-009fcc?logoWidth=1" title="内华达法院“选举欺诈”听证会  " alt="内华达法院“选举欺诈”听证会  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/zincln345/djy/blob/master/gb/20/12/3/n12593970.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/体制内记者曝人民日报内部禁谈胡锡进通奸丑闻 >-009fcc?logoWidth=1" title="体制内记者曝人民日报内部禁谈胡锡进通奸丑闻  " alt="体制内记者曝人民日报内部禁谈胡锡进通奸丑闻  "></a></p>
-<p><a href="https://github.com/zincln345/ntdtv/blob/master/gb/2020/12/03/a103001469.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普“最重要”演说 CNN密令“不把川普当正>-009fcc?logoWidth=1" title="川普“最重要”演说 CNN密令“不把川普当正常人”；  " alt="川普“最重要”演说 CNN密令“不把川普当正常人”；  "></a></p>
-<p><a href="https://github.com/zincln345/djy/blob/master/gb/20/12/3/n12593581.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/CNN主播和拜登顾问参加中共跨国会议    >-009fcc?logoWidth=1" title="CNN主播和拜登顾问参加中共跨国会议  " alt="CNN主播和拜登顾问参加中共跨国会议  "></a></p>
-<p><a href="https://github.com/zincln345/djy/blob/master/gb/20/12/3/n12592054.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美司法部打击窃密 逾千中共军方学者离美   >-009fcc?logoWidth=1" title="美司法部打击窃密 逾千中共军方学者离美  " alt="美司法部打击窃密 逾千中共军方学者离美  "></a></p>
-<p><a href="https://github.com/zincln345/ntdtv/blob/master/gb/2020/12/03/a103001120.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭大选舞弊 乔治亚举行两场听证会      >-009fcc?logoWidth=1" title="揭大选舞弊 乔治亚举行两场听证会  " alt="揭大选舞弊 乔治亚举行两场听证会  "></a></p>
+<p><a href="https://github.com/zincln345/ntdtv/blob/master/gb/2020/12/03/a103001002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/警世预言：“大凶黑色12月”更大灾难将降临 >-009fcc?logoWidth=1" title="警世预言：“大凶黑色12月”更大灾难将降临  " alt="警世预言：“大凶黑色12月”更大灾难将降临  "></a></p>
+<p><a href="https://github.com/zincln345/djy/blob/master/gb/20/12/3/n12594658.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：美国大选被操纵 顶尖专家宣誓做证  >-009fcc?logoWidth=1" title="王友群：美国大选被操纵 顶尖专家宣誓做证  " alt="王友群：美国大选被操纵 顶尖专家宣誓做证  "></a></p>
+<p><a href="https://github.com/zincln345/djy/blob/master/gb/20/12/3/n12594167.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：中共政权再连遭重击又被迫收敛     >-009fcc?logoWidth=1" title="杨威：中共政权再连遭重击又被迫收敛  " alt="杨威：中共政权再连遭重击又被迫收敛  "></a></p>
 <p><a href="https://github.com/zincln345/ntdtv/blob/master/gb/2020/12/03/a103001585.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林伍德乔治亚集会演讲完整版（中文字幕）   >-009fcc?logoWidth=1" title="林伍德乔治亚集会演讲完整版（中文字幕）  " alt="林伍德乔治亚集会演讲完整版（中文字幕）  "></a></p>
-<p><a href="https://github.com/zincln345/djy/blob/master/gb/20/12/2/n12591608.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朱利安尼参加乔州大选舞弊听证会       >-009fcc?logoWidth=1" title="朱利安尼参加乔州大选舞弊听证会  " alt="朱利安尼参加乔州大选舞弊听证会  "></a></p>
-<p><a href="https://github.com/zincln345/djy/blob/master/gb/20/12/3/n12592867.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/称抗疫创收67万亿带来幸福感 北大女教授挨轰>-009fcc?logoWidth=1" title="称抗疫创收67万亿带来幸福感 北大女教授挨轰  " alt="称抗疫创收67万亿带来幸福感 北大女教授挨轰  "></a></p>
+<p><a href="https://github.com/zincln345/ntdtv/blob/master/gb/2020/12/03/a103001547.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/眼睛老太快 1天5分钟转眼操 逆转近视 白内>-009fcc?logoWidth=1" title="眼睛老太快 1天5分钟转眼操 逆转近视 白内障  " alt="眼睛老太快 1天5分钟转眼操 逆转近视 白内障  "></a></p>
+<p><a href="https://github.com/zincln345/djy/blob/master/gb/20/12/3/n12594592.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/夺回美国避提中共？川普想做什么       >-009fcc?logoWidth=1" title="夺回美国避提中共？川普想做什么  " alt="夺回美国避提中共？川普想做什么  "></a></p>
+<p><a href="https://github.com/zincln345/djy/blob/master/gb/20/12/3/n12594229.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国大选为何需对选票全面审计        >-009fcc?logoWidth=1" title="美国大选为何需对选票全面审计  " alt="美国大选为何需对选票全面审计  "></a></p>
 <p><a href="https://github.com/zincln345/ntdtv/blob/master/gb/2020/12/04/a103001769.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普重要演说 吹响反攻号角         >-009fcc?logoWidth=1" title="川普重要演说 吹响反攻号角  " alt="川普重要演说 吹响反攻号角  "></a></p>
-<p><a href="https://github.com/zincln345/djy/blob/master/gb/20/12/3/n12593629.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普重磅演说 分析：冲刺最高法院法律战   >-009fcc?logoWidth=1" title="川普重磅演说 分析：冲刺最高法院法律战  " alt="川普重磅演说 分析：冲刺最高法院法律战  "></a></p>
-<p><a href="https://github.com/zincln345/djy/blob/master/gb/20/12/2/n12591811.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普在白宫发表“最重要的演讲”       >-009fcc?logoWidth=1" title="川普在白宫发表“最重要的演讲”  " alt="川普在白宫发表“最重要的演讲”  "></a></p>
-<p><a href="https://github.com/zincln345/ntdtv/blob/master/gb/2020/12/03/a103001618.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/证人：底特律伪造了10万张邮寄选票的日期  >-009fcc?logoWidth=1" title="证人：底特律伪造了10万张邮寄选票的日期  " alt="证人：底特律伪造了10万张邮寄选票的日期  "></a></p>
-<p><a href="https://github.com/zincln345/ntdtv/blob/master/gb/2020/12/03/a103001604.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/密歇根州前议员：Dominion选票数出现小>-009fcc?logoWidth=1" title="密歇根州前议员：Dominion选票数出现小数点！  " alt="密歇根州前议员：Dominion选票数出现小数点！  "></a></p>
+<p><a href="https://github.com/zincln345/ntdtv/blob/master/gb/2020/12/03/a103001120.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭大选舞弊 乔治亚举行两场听证会      >-009fcc?logoWidth=1" title="揭大选舞弊 乔治亚举行两场听证会  " alt="揭大选舞弊 乔治亚举行两场听证会  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -263,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://zincln345.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?yntyx">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?wklpx">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ynuxe">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?rjdef">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -309,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?lqtsi">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ignpo">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?mqtou">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?lmaie">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -487,11 +483,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/zincln345/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zincln345/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zincln345/www/master/index.html?o">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zincln345/www/blob/master/README.md?w#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/zincln345/www/blob/master/README.md?k%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ngggg" title="分享本平台"></img>
-<br><a href="https://git.io/hiiii">https://git.io/hiiii</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/ngggg">https://is.gd/ngggg</a>
+<p><strong><a href="https://github.com/zincln345/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/zincln345/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/zincln345/www/master/index.html?g">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/zincln345/www/blob/master/README.md?p#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/zincln345/www/blob/master/README.md?n%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/uuuuz" title="分享本平台"></img>
+<br><a href="https://git.io/53333">https://git.io/53333</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/uuuuz">https://is.gd/uuuuz</a>
 <br>
 <br>
-<h3><a href="https://zincln345.github.io/vd/qr/qr2/#https://github.com/zincln345/www/blob/master/README.md?n#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://zincln345.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/ngggg%22%2C%22https://is.gd/nnnni%22%2C%22https://is.gd/rrrrf%22%2C%22https://is.gd/xmmmm%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://zincln345.github.io/vd/qr/qr2/#https://github.com/zincln345/www/blob/master/README.md?d#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://zincln345.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/uuuuz%22%2C%22https://is.gd/zzzzg%22%2C%22https://is.gd/yy9yy%22%2C%22https://is.gd/nnnnk%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
