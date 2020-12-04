@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/prrxzi381/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/prrxzi381/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/emmmm">git.io/emmmm</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/2zzzz">git.io/2zzzz</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/prrxzi381/ntdtv/blob/master/gb/2020/12/03/a103001285.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天降异象？川普演讲当天 纽约流星大爆炸(视频>-009fcc?logoWidth=1" title="天降异象？川普演讲当天 纽约流星大爆炸(视频)  " alt="天降异象？川普演讲当天 纽约流星大爆炸(视频)  "></a></p>
 <p><a href="https://github.com/prrxzi381/ntdtv/blob/master/gb/2020/12/03/a103001279.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/32名中国人命丧朝鲜 中共“政治处理”内幕 >-009fcc?logoWidth=1" title="32名中国人命丧朝鲜 中共“政治处理”内幕  " alt="32名中国人命丧朝鲜 中共“政治处理”内幕  "></a></p>
 <p><a href="https://github.com/prrxzi381/ntdtv/blob/master/gb/2020/12/03/a103001288.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/录音曝光CNN老板操控大选 禁报亨特丑闻  >-009fcc?logoWidth=1" title="录音曝光CNN老板操控大选 禁报亨特丑闻  " alt="录音曝光CNN老板操控大选 禁报亨特丑闻  "></a></p>
-<p><a href="https://github.com/prrxzi381/ntdtv/blob/master/gb/2020/12/04/a103001935.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/调查大选舞弊不给力 美国FBI和司法部再遭质>-009fcc?logoWidth=1" title="调查大选舞弊不给力 美国FBI和司法部再遭质疑  " alt="调查大选舞弊不给力 美国FBI和司法部再遭质疑  "></a></p>
 <p><a href="https://github.com/prrxzi381/ntdtv/blob/master/gb/2020/12/04/a103001894.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“海南虎”张琦被判无期 传搜出金条现金13.>-009fcc?logoWidth=1" title="“海南虎”张琦被判无期 传搜出金条现金13.5吨  " alt="“海南虎”张琦被判无期 传搜出金条现金13.5吨  "></a></p>
 <p><a href="https://github.com/prrxzi381/ntdtv/blob/master/gb/2020/12/04/a103001857.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普对司法部长不满：调查舞弊指控“不大努力”>-009fcc?logoWidth=1" title="川普对司法部长不满：调查舞弊指控“不大努力”  " alt="川普对司法部长不满：调查舞弊指控“不大努力”  "></a></p>
 <p><a href="https://github.com/prrxzi381/ntdtv/blob/master/gb/2020/12/04/a103001864.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/受训过Dominion管理人及乔州监票员证词>-009fcc?logoWidth=1" title="受训过Dominion管理人及乔州监票员证词  " alt="受训过Dominion管理人及乔州监票员证词  "></a></p>
-<p><a href="https://github.com/prrxzi381/ntdtv/blob/master/gb/2020/12/04/a103001833.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美最高情报官：中共是美国面临的最大威胁   >-009fcc?logoWidth=1" title="美最高情报官：中共是美国面临的最大威胁  " alt="美最高情报官：中共是美国面临的最大威胁  "></a></p>
+<p><a href="https://github.com/prrxzi381/ntdtv/blob/master/gb/2020/12/03/a103001423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/Dominion牵出选举欺诈老手 与支持奥巴>-009fcc?logoWidth=1" title="Dominion牵出选举欺诈老手 与支持奥巴马的极左组织有关  " alt="Dominion牵出选举欺诈老手 与支持奥巴马的极左组织有关  "></a></p>
+<p><a href="https://github.com/prrxzi381/ntdtv/blob/master/gb/2020/12/04/a103001794.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员表态：将在国会挑战选举人团投票结果  >-009fcc?logoWidth=1" title="美议员表态：将在国会挑战选举人团投票结果  " alt="美议员表态：将在国会挑战选举人团投票结果  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/prrxzi381/djy/blob/master/gb/20/12/3/n12594396.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共政治局常委忽然再开会的蹊跷    >-009fcc?logoWidth=1" title="钟原：中共政治局常委忽然再开会的蹊跷  " alt="钟原：中共政治局常委忽然再开会的蹊跷  "></a></p>
 <p><a href="https://github.com/prrxzi381/djy/blob/master/gb/20/12/3/n12593970.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/体制内记者曝官媒内部禁谈胡锡进通奸丑闻   >-009fcc?logoWidth=1" title="体制内记者曝官媒内部禁谈胡锡进通奸丑闻  " alt="体制内记者曝官媒内部禁谈胡锡进通奸丑闻  "></a></p>
@@ -262,9 +262,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://prrxzi381.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?uxfgn">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ggvje">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?jqqak">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?wsyvl">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -308,8 +308,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?czkhp">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?snqmf">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?zsmlw">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?twmqm">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,11 +486,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/prrxzi381/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/prrxzi381/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/prrxzi381/www/master/index.html?l">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/prrxzi381/www/blob/master/README.md?d#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/prrxzi381/www/blob/master/README.md?n%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/qmmmm" title="分享本平台"></img>
-<br><a href="https://git.io/emmmm">https://git.io/emmmm</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/qmmmm">https://is.gd/qmmmm</a>
+<p><strong><a href="https://github.com/prrxzi381/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/prrxzi381/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/prrxzi381/www/master/index.html?f">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/prrxzi381/www/blob/master/README.md?g#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/prrxzi381/www/blob/master/README.md?f%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/uuuu9" title="分享本平台"></img>
+<br><a href="https://git.io/2zzzz">https://git.io/2zzzz</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/uuuu9">https://is.gd/uuuu9</a>
 <br>
 <br>
-<h3><a href="https://prrxzi381.github.io/vd/qr/qr2/#https://github.com/prrxzi381/www/blob/master/README.md?s#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://prrxzi381.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/qmmmm%22%2C%22https://is.gd/b33333%22%2C%22https://is.gd/nnnny%22%2C%22https://is.gd/mkkkk%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://prrxzi381.github.io/vd/qr/qr2/#https://github.com/prrxzi381/www/blob/master/README.md?r#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://prrxzi381.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/uuuu9%22%2C%22https://is.gd/yyyyb%22%2C%22https://is.gd/tt8tt%22%2C%22https://is.gd/rrrrf%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
