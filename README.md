@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/wcicqi359/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wcicqi359/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/8dddd">git.io/8dddd</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/7nnnn">git.io/7nnnn</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/wcicqi359/ntdtv/blob/master/gb/2020/12/05/a103002744.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：习近平将成掘墓人 三原因加速中共灭亡 >-009fcc?logoWidth=1" title="专家：习近平将成掘墓人 三原因加速中共灭亡  " alt="专家：习近平将成掘墓人 三原因加速中共灭亡  "></a></p>
 <p><a href="https://github.com/wcicqi359/ntdtv/blob/master/gb/2020/12/05/a103002811.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳瓦罗：Dominion母公司获中方4亿美元>-009fcc?logoWidth=1" title="纳瓦罗：Dominion母公司获中方4亿美元巨款  " alt="纳瓦罗：Dominion母公司获中方4亿美元巨款  "></a></p>
 <p><a href="https://github.com/wcicqi359/ntdtv/blob/master/gb/2020/12/05/a103002742.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞首发“觉醒之路” 披露党内如何评价习近平>-009fcc?logoWidth=1" title="蔡霞首发“觉醒之路” 披露党内如何评价习近平  " alt="蔡霞首发“觉醒之路” 披露党内如何评价习近平  "></a></p>
+<p><a href="https://github.com/wcicqi359/ntdtv/blob/master/gb/2020/12/05/a103002949.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美情报总监：中共对美国的干预是俄罗斯的6倍 >-009fcc?logoWidth=1" title="美情报总监：中共对美国的干预是俄罗斯的6倍  " alt="美情报总监：中共对美国的干预是俄罗斯的6倍  "></a></p>
+<p><a href="https://github.com/wcicqi359/ntdtv/blob/master/gb/2020/12/05/a103002846.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乔州决选2席联邦参议员 仍用“出卖美国”投票>-009fcc?logoWidth=1" title="乔州决选2席联邦参议员 仍用“出卖美国”投票机  " alt="乔州决选2席联邦参议员 仍用“出卖美国”投票机  "></a></p>
 <p><a href="https://github.com/wcicqi359/ntdtv/blob/master/gb/2020/12/05/a103002600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴尔调查大选舞弊不力 川普失望 众议员批评 >-009fcc?logoWidth=1" title="巴尔调查大选舞弊不力 川普失望 众议员批评  " alt="巴尔调查大选舞弊不力 川普失望 众议员批评  "></a></p>
 <p><a href="https://github.com/wcicqi359/ntdtv/blob/master/gb/2020/12/05/a103002987.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/律师皮克证词 实证录像证据曝光       >-009fcc?logoWidth=1" title="律师皮克证词 实证录像证据曝光  " alt="律师皮克证词 实证录像证据曝光  "></a></p>
 <p><a href="https://github.com/wcicqi359/ntdtv/blob/master/gb/2020/12/05/a103002980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民众：川普培养的孩子都是好孩子       >-009fcc?logoWidth=1" title="民众：川普培养的孩子都是好孩子  " alt="民众：川普培养的孩子都是好孩子  "></a></p>
-<p><a href="https://github.com/wcicqi359/ntdtv/blob/master/gb/2020/12/05/a103002974.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/特鲁多挺农民示威 印度警告干预内政     >-009fcc?logoWidth=1" title="特鲁多挺农民示威 印度警告干预内政  " alt="特鲁多挺农民示威 印度警告干预内政  "></a></p>
-<p><a href="https://github.com/wcicqi359/ntdtv/blob/master/gb/2020/12/05/a103002949.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美情报总监：中共对美国的干预是俄罗斯的6倍 >-009fcc?logoWidth=1" title="美情报总监：中共对美国的干预是俄罗斯的6倍  " alt="美情报总监：中共对美国的干预是俄罗斯的6倍  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wcicqi359/djy/blob/master/gb/20/11/27/n12580275.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/努涅斯议员：拜登假装赢得大选        >-009fcc?logoWidth=1" title="努涅斯议员：拜登假装赢得大选  " alt="努涅斯议员：拜登假装赢得大选  "></a></p>
 <p><a href="https://github.com/wcicqi359/djy/blob/master/gb/20/12/4/n12595030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普在白宫发表最重要演讲全文翻译      >-009fcc?logoWidth=1" title="川普在白宫发表最重要演讲全文翻译  " alt="川普在白宫发表最重要演讲全文翻译  "></a></p>
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://wcicqi359.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ghyrh">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?aauoy">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?qapwj">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?rppvi">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?uuwmg">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?vdque">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ywjex">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?eogqj">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -483,11 +483,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/wcicqi359/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wcicqi359/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wcicqi359/www/master/index.html?f">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wcicqi359/www/blob/master/README.md?m#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/wcicqi359/www/blob/master/README.md?h%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ssssq" title="分享本平台"></img>
-<br><a href="https://git.io/8dddd">https://git.io/8dddd</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/ssssq">https://is.gd/ssssq</a>
+<p><strong><a href="https://github.com/wcicqi359/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wcicqi359/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wcicqi359/www/master/index.html?r">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wcicqi359/www/blob/master/README.md?u#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/wcicqi359/www/blob/master/README.md?d%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/mmdmm" title="分享本平台"></img>
+<br><a href="https://git.io/7nnnn">https://git.io/7nnnn</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/mmdmm">https://is.gd/mmdmm</a>
 <br>
 <br>
-<h3><a href="https://wcicqi359.github.io/vd/qr/qr2/#https://github.com/wcicqi359/www/blob/master/README.md?x#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://wcicqi359.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/ssssq%22%2C%22https://is.gd/xqqqq%22%2C%22https://is.gd/ppupp%22%2C%22https://is.gd/tqqqq%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://wcicqi359.github.io/vd/qr/qr2/#https://github.com/wcicqi359/www/blob/master/README.md?g#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://wcicqi359.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/mmdmm%22%2C%22https://is.gd/nnnnm%22%2C%22https://is.gd/a66666%22%2C%22https://is.gd/uuuum%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
