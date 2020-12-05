@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/jwayub3921/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jwayub3921/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/jzzzz">git.io/jzzzz</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/gtttt">git.io/gtttt</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -39,15 +39,16 @@
 <p><a href="https://github.com/jwayub3921/djy/blob/master/gb/20/12/4/n12596580.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共推贫困大学生上山下乡 权贵子弟欧美发展 >-009fcc?logoWidth=1" title="中共推贫困大学生上山下乡 权贵子弟欧美发展  " alt="中共推贫困大学生上山下乡 权贵子弟欧美发展  "></a></p>
 <p><a href="https://github.com/jwayub3921/djy/blob/master/gb/20/12/4/n12595242.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共党员赴美十年签缩到1个月 律师：快退党 >-009fcc?logoWidth=1" title="中共党员赴美十年签缩到1个月 律师：快退党  " alt="中共党员赴美十年签缩到1个月 律师：快退党  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/jwayub3921/ntdtv/blob/master/gb/2020/12/04/a103002383.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乔州灌票视频热传 作弊者身份曝光      >-009fcc?logoWidth=1" title="乔州灌票视频热传 作弊者身份曝光  " alt="乔州灌票视频热传 作弊者身份曝光  "></a></p>
+<p><a href="https://github.com/jwayub3921/ntdtv/blob/master/gb/2020/12/05/a103002780.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海忙开会 川普新表态使其害怕？     >-009fcc?logoWidth=1" title="中南海忙开会 川普新表态使其害怕？  " alt="中南海忙开会 川普新表态使其害怕？  "></a></p>
+<p><a href="https://github.com/jwayub3921/ntdtv/blob/master/gb/2020/12/05/a103002772.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/深度揭秘“多猫腻”和索罗斯、克林顿以及奥巴马>-009fcc?logoWidth=1" title="深度揭秘“多猫腻”和索罗斯、克林顿以及奥巴马之间不可告人的秘密  " alt="深度揭秘“多猫腻”和索罗斯、克林顿以及奥巴马之间不可告人的秘密  "></a></p>
 <p><a href="https://github.com/jwayub3921/djy/blob/master/gb/20/12/4/n12596580.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共赶贫困大学生上山下乡 权贵子弟欧美发展 >-009fcc?logoWidth=1" title="中共赶贫困大学生上山下乡 权贵子弟欧美发展  " alt="中共赶贫困大学生上山下乡 权贵子弟欧美发展  "></a></p>
-<p><a href="https://github.com/jwayub3921/ntdtv/blob/master/gb/2020/12/04/a103002000.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普“出击”惊动北京？7常委突然开会疑测风向>-009fcc?logoWidth=1" title="川普“出击”惊动北京？7常委突然开会疑测风向  " alt="川普“出击”惊动北京？7常委突然开会疑测风向  "></a></p>
 <p><a href="https://github.com/jwayub3921/djy/blob/master/gb/20/12/4/n12596704.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中监委高官王世英被迫害致死之谜   >-009fcc?logoWidth=1" title="王友群：中监委高官王世英被迫害致死之谜  " alt="王友群：中监委高官王世英被迫害致死之谜  "></a></p>
 <p><a href="https://github.com/jwayub3921/djy/blob/master/gb/20/12/4/n12595225.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国大选 华人会计师从厌川到挺川      >-009fcc?logoWidth=1" title="美国大选 华人会计师从厌川到挺川  " alt="美国大选 华人会计师从厌川到挺川  "></a></p>
-<p><a href="https://github.com/jwayub3921/ntdtv/blob/master/gb/2020/12/04/a103002015.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京高层互斗？胡锡进2情妇被起底 彻查呼声高>-009fcc?logoWidth=1" title="北京高层互斗？胡锡进2情妇被起底 彻查呼声高  " alt="北京高层互斗？胡锡进2情妇被起底 彻查呼声高  "></a></p>
+<p><a href="https://github.com/jwayub3921/ntdtv/blob/master/gb/2020/12/04/a103002000.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普“出击”惊动北京？7常委突然开会疑测风向>-009fcc?logoWidth=1" title="川普“出击”惊动北京？7常委突然开会疑测风向  " alt="川普“出击”惊动北京？7常委突然开会疑测风向  "></a></p>
 <p><a href="https://github.com/jwayub3921/ntdtv/blob/master/gb/2020/12/04/a103002138.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重启上山下乡！中共要求高校毕业生西部就业  >-009fcc?logoWidth=1" title="重启上山下乡！中共要求高校毕业生西部就业  " alt="重启上山下乡！中共要求高校毕业生西部就业  "></a></p>
 <p><a href="https://github.com/jwayub3921/djy/blob/master/gb/20/12/4/n12596491.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赶走监票员藏选票的乔州作弊者被媒体曝光   >-009fcc?logoWidth=1" title="赶走监票员藏选票的乔州作弊者被媒体曝光  " alt="赶走监票员藏选票的乔州作弊者被媒体曝光  "></a></p>
 <p><a href="https://github.com/jwayub3921/djy/blob/master/gb/20/12/4/n12597098.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/舞弊横行 吹哨受压 美国真正危机      >-009fcc?logoWidth=1" title="舞弊横行 吹哨受压 美国真正危机  " alt="舞弊横行 吹哨受压 美国真正危机  "></a></p>
+<p><a href="https://github.com/jwayub3921/ntdtv/blob/master/gb/2020/12/04/a103002015.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京高层互斗？胡锡进2情妇被起底 彻查呼声高>-009fcc?logoWidth=1" title="北京高层互斗？胡锡进2情妇被起底 彻查呼声高  " alt="北京高层互斗？胡锡进2情妇被起底 彻查呼声高  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -259,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://jwayub3921.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?molil">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ntpmg">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?oagxj">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?daelg">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?fdfyu">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?jhxpe">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?anamj">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?uhsxy">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -483,11 +484,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/jwayub3921/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jwayub3921/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jwayub3921/www/master/index.html?w">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jwayub3921/www/blob/master/README.md?a#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/jwayub3921/www/blob/master/README.md?q%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ttdtt" title="分享本平台"></img>
-<br><a href="https://git.io/jzzzz">https://git.io/jzzzz</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/ttdtt">https://is.gd/ttdtt</a>
+<p><strong><a href="https://github.com/jwayub3921/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jwayub3921/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jwayub3921/www/master/index.html?i">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jwayub3921/www/blob/master/README.md?j#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/jwayub3921/www/blob/master/README.md?a%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/mtttt" title="分享本平台"></img>
+<br><a href="https://git.io/gtttt">https://git.io/gtttt</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/mtttt">https://is.gd/mtttt</a>
 <br>
 <br>
-<h3><a href="https://jwayub3921.github.io/vd/qr/qr2/#https://github.com/jwayub3921/www/blob/master/README.md?f#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://jwayub3921.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/ttdtt%22%2C%22https://is.gd/rrrr7%22%2C%22https://is.gd/tnnnn%22%2C%22https://is.gd/ttrtt%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://jwayub3921.github.io/vd/qr/qr2/#https://github.com/jwayub3921/www/blob/master/README.md?p#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://jwayub3921.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/mtttt%22%2C%22https://is.gd/uzzzz%22%2C%22https://is.gd/uu7uu%22%2C%22https://is.gd/yyyyr%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
