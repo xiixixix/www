@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/wcicqi359/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wcicqi359/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/z6666">git.io/z6666</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/55555555">git.io/55555555</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -28,7 +28,7 @@
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wcicqi359/djy/blob/master/gb/20/11/27/n12580275.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/努涅斯议员：拜登假装赢得大选        >-009fcc?logoWidth=1" title="努涅斯议员：拜登假装赢得大选  " alt="努涅斯议员：拜登假装赢得大选  "></a></p>
 <p><a href="https://github.com/wcicqi359/djy/blob/master/gb/20/12/4/n12595030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普在白宫发表最重要演讲全文翻译      >-009fcc?logoWidth=1" title="川普在白宫发表最重要演讲全文翻译  " alt="川普在白宫发表最重要演讲全文翻译  "></a></p>
-<p><a href="https://github.com/wcicqi359/djy/blob/master/gb/20/12/5/n12597752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前中将麦金纳尼：大选舞弊是叛国       >-009fcc?logoWidth=1" title="前中将麦金纳尼：大选舞弊是叛国  " alt="前中将麦金纳尼：大选舞弊是叛国  "></a></p>
+<p><a href="https://github.com/wcicqi359/djy/blob/master/gb/20/12/5/n12597752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前中将麦金纳尼：总统须行动         >-009fcc?logoWidth=1" title="前中将麦金纳尼：总统须行动  " alt="前中将麦金纳尼：总统须行动  "></a></p>
 <p><a href="https://github.com/wcicqi359/djy/blob/master/gb/20/12/5/n12597490.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/恩格斯百年阴谋 结出2020美大选恶果   >-009fcc?logoWidth=1" title="恩格斯百年阴谋 结出2020美大选恶果  " alt="恩格斯百年阴谋 结出2020美大选恶果  "></a></p>
 <p><a href="https://github.com/wcicqi359/djy/blob/master/gb/20/12/4/n12597218.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乔治亚州视频爆猛料 巴尔被警告       >-009fcc?logoWidth=1" title="乔治亚州视频爆猛料 巴尔被警告  " alt="乔治亚州视频爆猛料 巴尔被警告  "></a></p>
 <p><a href="https://github.com/wcicqi359/djy/blob/master/gb/20/12/4/n12594867.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文件泄中共仍控制疫情真实信息        >-009fcc?logoWidth=1" title="文件泄中共仍控制疫情真实信息  " alt="文件泄中共仍控制疫情真实信息  "></a></p>
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://wcicqi359.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?thjnw">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?dzwfs">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?cbcdl">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ntlui">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?lujyk">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?gvuur">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ecunf">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?rnfja">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -483,11 +483,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/wcicqi359/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wcicqi359/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wcicqi359/www/master/index.html?v">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wcicqi359/www/blob/master/README.md?m#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/wcicqi359/www/blob/master/README.md?r%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/qqmqq" title="分享本平台"></img>
-<br><a href="https://git.io/z6666">https://git.io/z6666</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/qqmqq">https://is.gd/qqmqq</a>
+<p><strong><a href="https://github.com/wcicqi359/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wcicqi359/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wcicqi359/www/master/index.html?y">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wcicqi359/www/blob/master/README.md?x#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/wcicqi359/www/blob/master/README.md?y%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/y6666" title="分享本平台"></img>
+<br><a href="https://git.io/55555555">https://git.io/55555555</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/y6666">https://is.gd/y6666</a>
 <br>
 <br>
-<h3><a href="https://wcicqi359.github.io/vd/qr/qr2/#https://github.com/wcicqi359/www/blob/master/README.md?l#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://wcicqi359.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/qqmqq%22%2C%22https://is.gd/zzizz%22%2C%22https://is.gd/zrrrr%22%2C%22https://is.gd/mm8mm%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://wcicqi359.github.io/vd/qr/qr2/#https://github.com/wcicqi359/www/blob/master/README.md?s#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://wcicqi359.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/y6666%22%2C%22https://is.gd/yyyyj%22%2C%22https://is.gd/zeeee%22%2C%22https://is.gd/qkkkk%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
