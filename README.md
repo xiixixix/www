@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/jwayub3921/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/jwayub3921/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/n6666">git.io/n6666</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/qkkkk">git.io/qkkkk</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/jwayub3921/ntdtv/blob/master/gb/2020/12/05/a103002773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亚利桑那州议会要求审计选举设备 川普大赞  >-009fcc?logoWidth=1" title="亚利桑那州议会要求审计选举设备 川普大赞  " alt="亚利桑那州议会要求审计选举设备 川普大赞  "></a></p>
 <p><a href="https://github.com/jwayub3921/ntdtv/blob/master/gb/2020/12/05/a103002742.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞首发“觉醒之路” 披露党内如何评价习近平>-009fcc?logoWidth=1" title="蔡霞首发“觉醒之路” 披露党内如何评价习近平  " alt="蔡霞首发“觉醒之路” 披露党内如何评价习近平  "></a></p>
 <p><a href="https://github.com/jwayub3921/ntdtv/blob/master/gb/2020/12/05/a103002683.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥宣布签证限制 对中共官员“定点打击” >-009fcc?logoWidth=1" title="蓬佩奥宣布签证限制 对中共官员“定点打击”  " alt="蓬佩奥宣布签证限制 对中共官员“定点打击”  "></a></p>
+<p><a href="https://github.com/jwayub3921/ntdtv/blob/master/gb/2020/12/05/a103002941.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/继英国后 巴林批准使用辉瑞疫苗       >-009fcc?logoWidth=1" title="继英国后 巴林批准使用辉瑞疫苗  " alt="继英国后 巴林批准使用辉瑞疫苗  "></a></p>
+<p><a href="https://github.com/jwayub3921/ntdtv/blob/master/gb/2020/12/05/a103002921.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普加快撤军 索马里明年初撤出大部分美军  >-009fcc?logoWidth=1" title="川普加快撤军 索马里明年初撤出大部分美军  " alt="川普加快撤军 索马里明年初撤出大部分美军  "></a></p>
 <p><a href="https://github.com/jwayub3921/ntdtv/blob/master/gb/2020/12/05/a103002862.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆突发严重矿难 至少18名矿工死亡(视频)>-009fcc?logoWidth=1" title="重庆突发严重矿难 至少18名矿工死亡(视频)  " alt="重庆突发严重矿难 至少18名矿工死亡(视频)  "></a></p>
 <p><a href="https://github.com/jwayub3921/ntdtv/blob/master/gb/2020/12/05/a103002846.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乔州决选2席联邦参议员 仍用涉嫌舞弊Domi>-009fcc?logoWidth=1" title="乔州决选2席联邦参议员 仍用涉嫌舞弊Dominion投票机  " alt="乔州决选2席联邦参议员 仍用涉嫌舞弊Dominion投票机  "></a></p>
 <p><a href="https://github.com/jwayub3921/ntdtv/blob/master/gb/2020/12/05/a103002824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普指责邮政局参与舞弊 蓄意改动数十万选票 >-009fcc?logoWidth=1" title="川普指责邮政局参与舞弊 蓄意改动数十万选票  " alt="川普指责邮政局参与舞弊 蓄意改动数十万选票  "></a></p>
-<p><a href="https://github.com/jwayub3921/ntdtv/blob/master/gb/2020/12/05/a103002756.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：彭斯乔州为共和党议员助选 民众热情支持>-009fcc?logoWidth=1" title="组图：彭斯乔州为共和党议员助选 民众热情支持  " alt="组图：彭斯乔州为共和党议员助选 民众热情支持  "></a></p>
-<p><a href="https://github.com/jwayub3921/ntdtv/blob/master/gb/2020/12/05/a103002812.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国反制中共外宣 终止5项“文化交流”计划 >-009fcc?logoWidth=1" title="美国反制中共外宣 终止5项“文化交流”计划  " alt="美国反制中共外宣 终止5项“文化交流”计划  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/jwayub3921/djy/blob/master/gb/20/12/4/n12595030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普在白宫发表最重要演讲全文翻译      >-009fcc?logoWidth=1" title="川普在白宫发表最重要演讲全文翻译  " alt="川普在白宫发表最重要演讲全文翻译  "></a></p>
 <p><a href="https://github.com/jwayub3921/djy/blob/master/gb/20/12/5/n12597490.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/恩格斯百年阴谋 结出2020美大选恶果   >-009fcc?logoWidth=1" title="恩格斯百年阴谋 结出2020美大选恶果  " alt="恩格斯百年阴谋 结出2020美大选恶果  "></a></p>
@@ -262,9 +262,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://jwayub3921.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?afroq">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?yvsaf">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?tdqkz">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?awlee">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -308,8 +308,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?yiigt">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?drmhd">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?awaqn">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ziwpz">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,11 +486,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/jwayub3921/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jwayub3921/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jwayub3921/www/master/index.html?y">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jwayub3921/www/blob/master/README.md?k#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/jwayub3921/www/blob/master/README.md?x%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/t7777" title="分享本平台"></img>
-<br><a href="https://git.io/n6666">https://git.io/n6666</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/t7777">https://is.gd/t7777</a>
+<p><strong><a href="https://github.com/jwayub3921/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/jwayub3921/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/jwayub3921/www/master/index.html?r">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/jwayub3921/www/blob/master/README.md?e#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/jwayub3921/www/blob/master/README.md?e%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/n6666" title="分享本平台"></img>
+<br><a href="https://git.io/qkkkk">https://git.io/qkkkk</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/n6666">https://is.gd/n6666</a>
 <br>
 <br>
-<h3><a href="https://jwayub3921.github.io/vd/qr/qr2/#https://github.com/jwayub3921/www/blob/master/README.md?z#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://jwayub3921.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/t7777%22%2C%22https://is.gd/b66666%22%2C%22https://is.gd/zzzzp%22%2C%22https://is.gd/axxxxx%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://jwayub3921.github.io/vd/qr/qr2/#https://github.com/jwayub3921/www/blob/master/README.md?p#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://jwayub3921.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/n6666%22%2C%22https://is.gd/zz3zz%22%2C%22https://is.gd/xxxxn%22%2C%22https://is.gd/accccc%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
