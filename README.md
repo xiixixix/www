@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/wcicqi359/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wcicqi359/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/pnnnn">git.io/pnnnn</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/iiiiiiii">git.io/iiiiiiii</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -26,21 +26,22 @@
 <p><a href="https://github.com/wcicqi359/ntdtv/blob/master/gb/2020/12/05/a103002980.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民众：川普培养的孩子都是好孩子       >-009fcc?logoWidth=1" title="民众：川普培养的孩子都是好孩子  " alt="民众：川普培养的孩子都是好孩子  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wcicqi359/djy/blob/master/gb/20/12/4/n12595030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普在白宫发表最重要演讲全文翻译      >-009fcc?logoWidth=1" title="川普在白宫发表最重要演讲全文翻译  " alt="川普在白宫发表最重要演讲全文翻译  "></a></p>
+<p><a href="https://github.com/wcicqi359/djy/blob/master/gb/20/12/5/n12597752.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前中将麦金纳尼：总统须行动         >-009fcc?logoWidth=1" title="前中将麦金纳尼：总统须行动  " alt="前中将麦金纳尼：总统须行动  "></a></p>
 <p><a href="https://github.com/wcicqi359/djy/blob/master/gb/20/12/5/n12597490.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/恩格斯百年阴谋 结出2020美大选恶果   >-009fcc?logoWidth=1" title="恩格斯百年阴谋 结出2020美大选恶果  " alt="恩格斯百年阴谋 结出2020美大选恶果  "></a></p>
 <p><a href="https://github.com/wcicqi359/djy/blob/master/gb/20/12/5/n12597428.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普三大战场反击“选举政变”        >-009fcc?logoWidth=1" title="川普三大战场反击“选举政变”  " alt="川普三大战场反击“选举政变”  "></a></p>
 <p><a href="https://github.com/wcicqi359/djy/blob/master/gb/20/12/4/n12597218.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乔治亚州视频爆猛料 巴尔被警告       >-009fcc?logoWidth=1" title="乔治亚州视频爆猛料 巴尔被警告  " alt="乔治亚州视频爆猛料 巴尔被警告  "></a></p>
-<p><a href="https://github.com/wcicqi359/djy/blob/master/gb/20/12/4/n12596996.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：邮政局蓄意改动数十万张选票      >-009fcc?logoWidth=1" title="川普：邮政局蓄意改动数十万张选票  " alt="川普：邮政局蓄意改动数十万张选票  "></a></p>
 <p><a href="https://github.com/wcicqi359/djy/blob/master/gb/20/12/4/n12597041.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乔州计票站母女：自拍舞弊“电影大片”    >-009fcc?logoWidth=1" title="乔州计票站母女：自拍舞弊“电影大片”  " alt="乔州计票站母女：自拍舞弊“电影大片”  "></a></p>
-<p><a href="https://github.com/wcicqi359/djy/blob/master/gb/20/12/5/n12597455.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/依美国制裁令 富时罗素剔除八家中企股票   >-009fcc?logoWidth=1" title="依美国制裁令 富时罗素剔除八家中企股票  " alt="依美国制裁令 富时罗素剔除八家中企股票  "></a></p>
+<p><a href="https://github.com/wcicqi359/djy/blob/master/gb/20/12/4/n12596996.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：邮政局蓄意改动数十万张选票      >-009fcc?logoWidth=1" title="川普：邮政局蓄意改动数十万张选票  " alt="川普：邮政局蓄意改动数十万张选票  "></a></p>
 <p><a href="https://github.com/wcicqi359/djy/blob/master/gb/20/12/3/n12592112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共处理朝鲜4.22车祸背后考量      >-009fcc?logoWidth=1" title="中共处理朝鲜4.22车祸背后考量  " alt="中共处理朝鲜4.22车祸背后考量  "></a></p>
 <p><a href="https://github.com/wcicqi359/djy/blob/master/gb/20/11/27/n12580275.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/努涅斯议员：拜登假装赢得大选        >-009fcc?logoWidth=1" title="努涅斯议员：拜登假装赢得大选  " alt="努涅斯议员：拜登假装赢得大选  "></a></p>
+<p><a href="https://github.com/wcicqi359/djy/blob/master/gb/20/12/5/n12597455.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/依美国制裁令 富时罗素剔除八家中企股票   >-009fcc?logoWidth=1" title="依美国制裁令 富时罗素剔除八家中企股票  " alt="依美国制裁令 富时罗素剔除八家中企股票  "></a></p>
 <p><a href="https://github.com/wcicqi359/djy/blob/master/gb/20/12/4/n12597075.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普6大招打击中共 战狼突退缩？      >-009fcc?logoWidth=1" title="川普6大招打击中共 战狼突退缩？  " alt="川普6大招打击中共 战狼突退缩？  "></a></p>
 <p><a href="https://github.com/wcicqi359/djy/blob/master/gb/20/12/4/n12596174.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乔%3F拜登对国家安全构成风险         >-009fcc?logoWidth=1" title="乔?拜登对国家安全构成风险  " alt="乔?拜登对国家安全构成风险  "></a></p>
-<p><a href="https://github.com/wcicqi359/djy/blob/master/gb/20/12/4/n12596169.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/证据、选举舞弊和左派恶行概述        >-009fcc?logoWidth=1" title="证据、选举舞弊和左派恶行概述  " alt="证据、选举舞弊和左派恶行概述  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wcicqi359/djy/blob/master/gb/20/12/4/n12597075.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国6大招打击中共 战狼突然退缩      >-009fcc?logoWidth=1" title="美国6大招打击中共 战狼突然退缩  " alt="美国6大招打击中共 战狼突然退缩  "></a></p>
 <p><a href="https://github.com/wcicqi359/ntdtv/blob/master/gb/2020/12/05/a103002686.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/安徽17岁女跳河 众警2米处“围观”她淹死(>-009fcc?logoWidth=1" title="安徽17岁女跳河 众警2米处“围观”她淹死(视频)  " alt="安徽17岁女跳河 众警2米处“围观”她淹死(视频)  "></a></p>
 <p><a href="https://github.com/wcicqi359/djy/blob/master/gb/20/12/4/n12596174.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乔%3F%3F拜登对国家安全构成风险        >-009fcc?logoWidth=1" title="乔??拜登对国家安全构成风险  " alt="乔??拜登对国家安全构成风险  "></a></p>
+<p><a href="https://github.com/wcicqi359/djy/blob/master/gb/20/12/4/n12596169.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/证据、选举舞弊和左派恶行概述        >-009fcc?logoWidth=1" title="证据、选举舞弊和左派恶行概述  " alt="证据、选举舞弊和左派恶行概述  "></a></p>
 <p><a href="https://github.com/wcicqi359/ntdtv/blob/master/gb/2020/12/05/a103002780.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中南海忙开会 川普新表态使其害怕？     >-009fcc?logoWidth=1" title="中南海忙开会 川普新表态使其害怕？  " alt="中南海忙开会 川普新表态使其害怕？  "></a></p>
 <p><a href="https://github.com/wcicqi359/ntdtv/blob/master/gb/2020/12/05/a103002889.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/按摩脚底2部位 远离失智症！大脑脊椎一起保养>-009fcc?logoWidth=1" title="按摩脚底2部位 远离失智症！大脑脊椎一起保养  " alt="按摩脚底2部位 远离失智症！大脑脊椎一起保养  "></a></p>
 <p><a href="https://github.com/wcicqi359/djy/blob/master/gb/20/12/4/n12595730.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/密歇根法官令查Dominion投票机    >-009fcc?logoWidth=1" title="密歇根法官令查Dominion投票机  " alt="密歇根法官令查Dominion投票机  "></a></p>
@@ -262,9 +263,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://wcicqi359.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?leoey">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?riuzr">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ofroz">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?xlfup">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -308,8 +309,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?neryo">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?qfruo">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?iixww">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?yfhrd">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -486,11 +487,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/wcicqi359/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wcicqi359/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wcicqi359/www/master/index.html?z">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wcicqi359/www/blob/master/README.md?j#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/wcicqi359/www/blob/master/README.md?y%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/rrzrr" title="分享本平台"></img>
-<br><a href="https://git.io/pnnnn">https://git.io/pnnnn</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/rrzrr">https://is.gd/rrzrr</a>
+<p><strong><a href="https://github.com/wcicqi359/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wcicqi359/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/wcicqi359/www/master/index.html?a">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wcicqi359/www/blob/master/README.md?w#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/wcicqi359/www/blob/master/README.md?h%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/tt5tt" title="分享本平台"></img>
+<br><a href="https://git.io/iiiiiiii">https://git.io/iiiiiiii</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/tt5tt">https://is.gd/tt5tt</a>
 <br>
 <br>
-<h3><a href="https://wcicqi359.github.io/vd/qr/qr2/#https://github.com/wcicqi359/www/blob/master/README.md?t#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://wcicqi359.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/rrzrr%22%2C%22https://is.gd/xxxx3%22%2C%22https://is.gd/nnnnj%22%2C%22https://is.gd/nn7nn%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://wcicqi359.github.io/vd/qr/qr2/#https://github.com/wcicqi359/www/blob/master/README.md?h#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://wcicqi359.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/tt5tt%22%2C%22https://is.gd/zzpzz%22%2C%22https://is.gd/nnnni%22%2C%22https://is.gd/auuuuu%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
