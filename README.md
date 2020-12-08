@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/tpuolf3730/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tpuolf3730/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/bbbb8">git.io/bbbb8</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/k8888">git.io/k8888</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -39,16 +39,16 @@
 <p><a href="https://github.com/tpuolf3730/djy/blob/master/gb/20/12/8/n12602689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/梁国雄陈皓桓等8人清晨被港警拘捕      >-009fcc?logoWidth=1" title="梁国雄陈皓桓等8人清晨被港警拘捕  " alt="梁国雄陈皓桓等8人清晨被港警拘捕  "></a></p>
 <p><a href="https://github.com/tpuolf3730/djy/blob/master/gb/20/12/7/n12600461.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国推出多项反共措施 胡锡进为何着急？   >-009fcc?logoWidth=1" title="美国推出多项反共措施 胡锡进为何着急？  " alt="美国推出多项反共措施 胡锡进为何着急？  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/2020/12/07/a103004402.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美情报总监：中共干预大选 解决舞弊才能宣布赢>-009fcc?logoWidth=1" title="美情报总监：中共干预大选 解决舞弊才能宣布赢家  " alt="美情报总监：中共干预大选 解决舞弊才能宣布赢家  "></a></p>
+<p><a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/2020/12/07/a103004159.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普4天10招重拳出击 中南海反应微妙   >-009fcc?logoWidth=1" title="川普4天10招重拳出击 中南海反应微妙  " alt="川普4天10招重拳出击 中南海反应微妙  "></a></p>
 <p><a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/2020/12/08/a103004600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欢迎港人暂赴美生活法案 美国众议院全票通过 >-009fcc?logoWidth=1" title="欢迎港人暂赴美生活法案 美国众议院全票通过  " alt="欢迎港人暂赴美生活法案 美国众议院全票通过  "></a></p>
-<p><a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/2020/12/08/a103004562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：大选舞弊证据充足 这几天将有大事发生 >-009fcc?logoWidth=1" title="川普：大选舞弊证据充足 这几天将有大事发生  " alt="川普：大选舞弊证据充足 这几天将有大事发生  "></a></p>
-<p><a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/2020/12/07/a103004461.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乔州投票机查出转移选票铁证 听证会临场剔除证>-009fcc?logoWidth=1" title="乔州投票机查出转移选票铁证 听证会临场剔除证人  " alt="乔州投票机查出转移选票铁证 听证会临场剔除证人  "></a></p>
 <p><a href="https://github.com/tpuolf3730/djy/blob/master/gb/20/12/7/n12600282.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何这么多华人挺川 一名耆老对大选的观察（2>-009fcc?logoWidth=1" title="为何这么多华人挺川 一名耆老对大选的观察（2）  " alt="为何这么多华人挺川 一名耆老对大选的观察（2）  "></a></p>
 <p><a href="https://github.com/tpuolf3730/djy/blob/master/gb/20/12/7/n12601960.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：川普乔治亚演讲 上万民众到场力挺   >-009fcc?logoWidth=1" title="组图：川普乔治亚演讲 上万民众到场力挺  " alt="组图：川普乔治亚演讲 上万民众到场力挺  "></a></p>
-<p><a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/2020/12/07/a103003978.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京高层严重不安？胡锡进突提“蓬佩奥访台” >-009fcc?logoWidth=1" title="北京高层严重不安？胡锡进突提“蓬佩奥访台”  " alt="北京高层严重不安？胡锡进突提“蓬佩奥访台”  "></a></p>
+<p><a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/2020/12/08/a103004562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：大选舞弊证据充足 这几天将有大事发生 >-009fcc?logoWidth=1" title="川普：大选舞弊证据充足 这几天将有大事发生  " alt="川普：大选舞弊证据充足 这几天将有大事发生  "></a></p>
+<p><a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/2020/12/07/a103004461.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乔州投票机查出转移选票铁证 听证会临场剔除证>-009fcc?logoWidth=1" title="乔州投票机查出转移选票铁证 听证会临场剔除证人  " alt="乔州投票机查出转移选票铁证 听证会临场剔除证人  "></a></p>
 <p><a href="https://github.com/tpuolf3730/djy/blob/master/gb/20/12/7/n12602416.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：打不倒的川普 背后站着“我们人民” >-009fcc?logoWidth=1" title="王友群：打不倒的川普 背后站着“我们人民”  " alt="王友群：打不倒的川普 背后站着“我们人民”  "></a></p>
 <p><a href="https://github.com/tpuolf3730/djy/blob/master/gb/20/12/7/n12601574.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员杯葛亚利桑那选举认证         >-009fcc?logoWidth=1" title="美议员杯葛亚利桑那选举认证  " alt="美议员杯葛亚利桑那选举认证  "></a></p>
-<p><a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/2020/12/05/a103003062.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/玛雅预言中保护地球人的“彩虹战士”已出现？ >-009fcc?logoWidth=1" title="玛雅预言中保护地球人的“彩虹战士”已出现？  " alt="玛雅预言中保护地球人的“彩虹战士”已出现？  "></a></p>
-<p><a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/2020/12/07/a103004386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大法官阿利托下令 宾州须提前至避风港日回应争>-009fcc?logoWidth=1" title="大法官阿利托下令 宾州须提前至避风港日回应争议  " alt="大法官阿利托下令 宾州须提前至避风港日回应争议  "></a></p>
+<p><a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/2020/12/07/a103003978.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京高层严重不安？胡锡进突提“蓬佩奥访台” >-009fcc?logoWidth=1" title="北京高层严重不安？胡锡进突提“蓬佩奥访台”  " alt="北京高层严重不安？胡锡进突提“蓬佩奥访台”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://tpuolf3730.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?jtiqd">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?igbhv">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?zsorn">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?fnjiu">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?zmiln">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?fmmkb">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?pgxdm">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?oigzm">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -484,11 +484,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/tpuolf3730/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tpuolf3730/www/master/index.html?m">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tpuolf3730/www/blob/master/README.md?t#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/tpuolf3730/www/blob/master/README.md?m%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ttutt" title="分享本平台"></img>
-<br><a href="https://git.io/bbbb8">https://git.io/bbbb8</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/ttutt">https://is.gd/ttutt</a>
+<p><strong><a href="https://github.com/tpuolf3730/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tpuolf3730/www/master/index.html?o">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tpuolf3730/www/blob/master/README.md?x#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/tpuolf3730/www/blob/master/README.md?a%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/r5555" title="分享本平台"></img>
+<br><a href="https://git.io/k8888">https://git.io/k8888</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/r5555">https://is.gd/r5555</a>
 <br>
 <br>
-<h3><a href="https://tpuolf3730.github.io/vd/qr/qr2/#https://github.com/tpuolf3730/www/blob/master/README.md?f#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://tpuolf3730.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/ttutt%22%2C%22https://is.gd/yyeyy%22%2C%22https://is.gd/snnnn%22%2C%22https://is.gd/nninn%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://tpuolf3730.github.io/vd/qr/qr2/#https://github.com/tpuolf3730/www/blob/master/README.md?m#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://tpuolf3730.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/r5555%22%2C%22https://is.gd/r8888%22%2C%22https://is.gd/qqzqq%22%2C%22https://is.gd/ttttd%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
