@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/fjdhch354/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fjdhch354/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/d9999">git.io/d9999</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/aaaag">git.io/aaaag</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/2020/12/08/a103004901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川疫情升温 全省“迅速进入战时状态”   >-009fcc?logoWidth=1" title="四川疫情升温 全省“迅速进入战时状态”  " alt="四川疫情升温 全省“迅速进入战时状态”  "></a></p>
 <p><a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/2020/12/08/a103004764.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平连喊“备战打仗” 专家：枪口主要对内 >-009fcc?logoWidth=1" title="习近平连喊“备战打仗” 专家：枪口主要对内  " alt="习近平连喊“备战打仗” 专家：枪口主要对内  "></a></p>
 <p><a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/2020/12/08/a103004732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都爆疫情 20岁酒吧女走半城 全省启动紧急>-009fcc?logoWidth=1" title="成都爆疫情 20岁酒吧女走半城 全省启动紧急应变  " alt="成都爆疫情 20岁酒吧女走半城 全省启动紧急应变  "></a></p>
+<p><a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/2020/12/08/a103004951.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川疫情扩大 成都一家三口中招       >-009fcc?logoWidth=1" title="四川疫情扩大 成都一家三口中招  " alt="四川疫情扩大 成都一家三口中招  "></a></p>
+<p><a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/2020/12/08/a103004945.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病毒源头 中共嫁祸美国后又甩锅澳洲     >-009fcc?logoWidth=1" title="病毒源头 中共嫁祸美国后又甩锅澳洲  " alt="病毒源头 中共嫁祸美国后又甩锅澳洲  "></a></p>
 <p><a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/2020/12/08/a103004562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：大选舞弊证据充足 这几天将有大事发生 >-009fcc?logoWidth=1" title="川普：大选舞弊证据充足 这几天将有大事发生  " alt="川普：大选舞弊证据充足 这几天将有大事发生  "></a></p>
 <p><a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/2020/12/08/a103004935.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港前立法会议员梁国雄、朱凯迪等8人被捕   >-009fcc?logoWidth=1" title="港前立法会议员梁国雄、朱凯迪等8人被捕  " alt="港前立法会议员梁国雄、朱凯迪等8人被捕  "></a></p>
 <p><a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/2020/12/08/a103004908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/12月璀璨夜空 流星雨、日全食、木星土星大合>-009fcc?logoWidth=1" title="12月璀璨夜空 流星雨、日全食、木星土星大合  " alt="12月璀璨夜空 流星雨、日全食、木星土星大合  "></a></p>
-<p><a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/2020/12/08/a103004859.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/男与妻吵架出门冷静 步行450公里因违反宵禁>-009fcc?logoWidth=1" title="男与妻吵架出门冷静 步行450公里因违反宵禁遭警开罚  " alt="男与妻吵架出门冷静 步行450公里因违反宵禁遭警开罚  "></a></p>
-<p><a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/2020/12/08/a103004860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：川普乔州演讲 场面火爆 万民力挺   >-009fcc?logoWidth=1" title="组图：川普乔州演讲 场面火爆 万民力挺  " alt="组图：川普乔州演讲 场面火爆 万民力挺  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fjdhch354/djy/blob/master/gb/20/12/7/n12601908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/14中共人大副委员长及家属被禁入境美国   >-009fcc?logoWidth=1" title="14中共人大副委员长及家属被禁入境美国  " alt="14中共人大副委员长及家属被禁入境美国  "></a></p>
 <p><a href="https://github.com/fjdhch354/djy/blob/master/gb/20/12/8/n12602539.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乔州、大选舞弊与中共的三角关系       >-009fcc?logoWidth=1" title="乔州、大选舞弊与中共的三角关系  " alt="乔州、大选舞弊与中共的三角关系  "></a></p>
@@ -48,6 +48,7 @@
 <p><a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/2020/12/08/a103004621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“芯”病重击中国汽车业 最大外资车厂面临停产>-009fcc?logoWidth=1" title="“芯”病重击中国汽车业 最大外资车厂面临停产  " alt="“芯”病重击中国汽车业 最大外资车厂面临停产  "></a></p>
 <p><a href="https://github.com/fjdhch354/djy/blob/master/gb/20/12/7/n12602304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巴尔辞职？法律战4大进展 川普有绝招    >-009fcc?logoWidth=1" title="巴尔辞职？法律战4大进展 川普有绝招  " alt="巴尔辞职？法律战4大进展 川普有绝招  "></a></p>
 <p><a href="https://github.com/fjdhch354/djy/blob/master/gb/20/12/7/n12601942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：李克强揭示中国大陆科技发展实情    >-009fcc?logoWidth=1" title="钟原：李克强揭示中国大陆科技发展实情  " alt="钟原：李克强揭示中国大陆科技发展实情  "></a></p>
+<p><a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/2020/12/08/a103004860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：川普乔州演讲 场面火爆 万民力挺   >-009fcc?logoWidth=1" title="组图：川普乔州演讲 场面火爆 万民力挺  " alt="组图：川普乔州演讲 场面火爆 万民力挺  "></a></p>
 <p><a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/2020/12/08/a103004681.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/耿潇男获“林昭纪念奖”在狱中遭密集提审和霸凌>-009fcc?logoWidth=1" title="耿潇男获“林昭纪念奖”在狱中遭密集提审和霸凌　  " alt="耿潇男获“林昭纪念奖”在狱中遭密集提审和霸凌　  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -260,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://fjdhch354.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?guyao">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?dirrn">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?yvwut">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?hpzob">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?jnaaw">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?jhqck">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?yqipq">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?icrqa">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -484,11 +485,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/fjdhch354/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fjdhch354/www/master/index.html?p">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fjdhch354/www/blob/master/README.md?b#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/fjdhch354/www/blob/master/README.md?i%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/rrjrr" title="分享本平台"></img>
-<br><a href="https://git.io/d9999">https://git.io/d9999</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/rrjrr">https://is.gd/rrjrr</a>
+<p><strong><a href="https://github.com/fjdhch354/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fjdhch354/www/master/index.html?r">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fjdhch354/www/blob/master/README.md?w#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/fjdhch354/www/blob/master/README.md?t%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/uuuu7" title="分享本平台"></img>
+<br><a href="https://git.io/aaaag">https://git.io/aaaag</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/uuuu7">https://is.gd/uuuu7</a>
 <br>
 <br>
-<h3><a href="https://fjdhch354.github.io/vd/qr/qr2/#https://github.com/fjdhch354/www/blob/master/README.md?o#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fjdhch354.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/rrjrr%22%2C%22https://is.gd/rrbrr%22%2C%22https://is.gd/xmmmm%22%2C%22https://is.gd/mm5mm%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://fjdhch354.github.io/vd/qr/qr2/#https://github.com/fjdhch354/www/blob/master/README.md?d#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fjdhch354.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/uuuu7%22%2C%22https://is.gd/qqqqn%22%2C%22https://is.gd/mssss%22%2C%22https://is.gd/qqcqq%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
