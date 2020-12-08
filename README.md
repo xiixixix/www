@@ -9,17 +9,17 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/tpuolf3730/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tpuolf3730/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/k8888">git.io/k8888</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/b2222">git.io/b2222</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/2020/12/08/a103004764.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平连喊“备战打仗” 专家：枪口主要对内 >-009fcc?logoWidth=1" title="习近平连喊“备战打仗” 专家：枪口主要对内  " alt="习近平连喊“备战打仗” 专家：枪口主要对内  "></a></p>
 <p><a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/2020/12/08/a103004732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都爆疫情 20岁酒巴女走半城 全省启动紧急>-009fcc?logoWidth=1" title="成都爆疫情 20岁酒巴女走半城 全省启动紧急应变  " alt="成都爆疫情 20岁酒巴女走半城 全省启动紧急应变  "></a></p>
 <p><a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/2020/12/04/a103002100.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/情报总监剑指中共 川普为何引而不发？《反叛乱>-009fcc?logoWidth=1" title="情报总监剑指中共 川普为何引而不发？《反叛乱法》有一大关键  " alt="情报总监剑指中共 川普为何引而不发？《反叛乱法》有一大关键  "></a></p>
 <p><a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/2020/12/08/a103004728.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乔治亚州长拒绝签名验证 川普怒斥：他在隐藏什>-009fcc?logoWidth=1" title="乔治亚州长拒绝签名验证 川普怒斥：他在隐藏什么？  " alt="乔治亚州长拒绝签名验证 川普怒斥：他在隐藏什么？  "></a></p>
 <p><a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/2020/12/08/a103004640.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伊朗核武之父死因曝光 遥控枪连射13枪精准打>-009fcc?logoWidth=1" title="伊朗核武之父死因曝光 遥控枪连射13枪精准打击  " alt="伊朗核武之父死因曝光 遥控枪连射13枪精准打击  "></a></p>
 <p><a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/2020/12/07/a103004489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：大选舞弊证据充足 这几天将有大事发生 >-009fcc?logoWidth=1" title="川普：大选舞弊证据充足 这几天将有大事发生  " alt="川普：大选舞弊证据充足 这几天将有大事发生  "></a></p>
-<p><a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/2020/12/07/a103004270.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI查亚利桑那选民数据被窃 特工突袭IT专>-009fcc?logoWidth=1" title="FBI查亚利桑那选民数据被窃 特工突袭IT专家取证  " alt="FBI查亚利桑那选民数据被窃 特工突袭IT专家取证  "></a></p>
 <p><a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/2020/12/08/a103004724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网传伊朗最高领袖健康恶化 官员否认     >-009fcc?logoWidth=1" title="网传伊朗最高领袖健康恶化 官员否认  " alt="网传伊朗最高领袖健康恶化 官员否认  "></a></p>
 <p><a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/2020/12/08/a103004694.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/勇于挑战中共 布拉格市长获选欧洲最有权势人物>-009fcc?logoWidth=1" title="勇于挑战中共 布拉格市长获选欧洲最有权势人物  " alt="勇于挑战中共 布拉格市长获选欧洲最有权势人物  "></a></p>
 <p><a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/2020/12/08/a103004682.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正和栗战书暂躲一劫 14副国级被制裁内幕曝>-009fcc?logoWidth=1" title="韩正和栗战书暂躲一劫 14副国级被制裁内幕曝光  " alt="韩正和栗战书暂躲一劫 14副国级被制裁内幕曝光  "></a></p>
@@ -43,11 +43,12 @@
 <p><a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/2020/12/07/a103004159.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普4天10招重拳出击 中南海反应微妙   >-009fcc?logoWidth=1" title="川普4天10招重拳出击 中南海反应微妙  " alt="川普4天10招重拳出击 中南海反应微妙  "></a></p>
 <p><a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/2020/12/08/a103004600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欢迎港人暂赴美生活法案 美国众议院全票通过 >-009fcc?logoWidth=1" title="欢迎港人暂赴美生活法案 美国众议院全票通过  " alt="欢迎港人暂赴美生活法案 美国众议院全票通过  "></a></p>
 <p><a href="https://github.com/tpuolf3730/djy/blob/master/gb/20/12/7/n12600282.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何这么多华人挺川 一名耆老对大选的观察（2>-009fcc?logoWidth=1" title="为何这么多华人挺川 一名耆老对大选的观察（2）  " alt="为何这么多华人挺川 一名耆老对大选的观察（2）  "></a></p>
-<p><a href="https://github.com/tpuolf3730/djy/blob/master/gb/20/12/7/n12601960.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：川普乔治亚演讲 上万民众到场力挺   >-009fcc?logoWidth=1" title="组图：川普乔治亚演讲 上万民众到场力挺  " alt="组图：川普乔治亚演讲 上万民众到场力挺  "></a></p>
+<p><a href="https://github.com/tpuolf3730/djy/blob/master/gb/20/12/7/n12601463.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英文大纪元：选举遭攻击 美国人应挺身而出  >-009fcc?logoWidth=1" title="英文大纪元：选举遭攻击 美国人应挺身而出  " alt="英文大纪元：选举遭攻击 美国人应挺身而出  "></a></p>
 <p><a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/2020/12/08/a103004562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：大选舞弊证据充足 这几天将有大事发生 >-009fcc?logoWidth=1" title="川普：大选舞弊证据充足 这几天将有大事发生  " alt="川普：大选舞弊证据充足 这几天将有大事发生  "></a></p>
 <p><a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/2020/12/07/a103004461.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乔州投票机查出转移选票铁证 听证会临场剔除证>-009fcc?logoWidth=1" title="乔州投票机查出转移选票铁证 听证会临场剔除证人  " alt="乔州投票机查出转移选票铁证 听证会临场剔除证人  "></a></p>
+<p><a href="https://github.com/tpuolf3730/djy/blob/master/gb/20/12/7/n12601960.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：川普乔治亚演讲 上万民众到场力挺   >-009fcc?logoWidth=1" title="组图：川普乔治亚演讲 上万民众到场力挺  " alt="组图：川普乔治亚演讲 上万民众到场力挺  "></a></p>
 <p><a href="https://github.com/tpuolf3730/djy/blob/master/gb/20/12/7/n12602416.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：打不倒的川普 背后站着“我们人民” >-009fcc?logoWidth=1" title="王友群：打不倒的川普 背后站着“我们人民”  " alt="王友群：打不倒的川普 背后站着“我们人民”  "></a></p>
-<p><a href="https://github.com/tpuolf3730/djy/blob/master/gb/20/12/7/n12601574.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员杯葛亚利桑那选举认证         >-009fcc?logoWidth=1" title="美议员杯葛亚利桑那选举认证  " alt="美议员杯葛亚利桑那选举认证  "></a></p>
+<p><a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/2020/12/07/a103004270.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/FBI查亚利桑那选民数据被窃 特工突袭IT专>-009fcc?logoWidth=1" title="FBI查亚利桑那选民数据被窃 特工突袭IT专家取证  " alt="FBI查亚利桑那选民数据被窃 特工突袭IT专家取证  "></a></p>
 <p><a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/2020/12/07/a103003978.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京高层严重不安？胡锡进突提“蓬佩奥访台” >-009fcc?logoWidth=1" title="北京高层严重不安？胡锡进突提“蓬佩奥访台”  " alt="北京高层严重不安？胡锡进突提“蓬佩奥访台”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -260,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://tpuolf3730.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?igbhv">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?weijy">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?fnjiu">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?epoft">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?pgxdm">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?oigzm">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?yyqoc">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?mjcxf">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -484,11 +485,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/tpuolf3730/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tpuolf3730/www/master/index.html?o">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tpuolf3730/www/blob/master/README.md?x#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/tpuolf3730/www/blob/master/README.md?a%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/r5555" title="分享本平台"></img>
-<br><a href="https://git.io/k8888">https://git.io/k8888</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/r5555">https://is.gd/r5555</a>
+<p><strong><a href="https://github.com/tpuolf3730/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tpuolf3730/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/tpuolf3730/www/master/index.html?n">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tpuolf3730/www/blob/master/README.md?q#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/tpuolf3730/www/blob/master/README.md?z%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/mmimm" title="分享本平台"></img>
+<br><a href="https://git.io/b2222">https://git.io/b2222</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/mmimm">https://is.gd/mmimm</a>
 <br>
 <br>
-<h3><a href="https://tpuolf3730.github.io/vd/qr/qr2/#https://github.com/tpuolf3730/www/blob/master/README.md?m#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://tpuolf3730.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/r5555%22%2C%22https://is.gd/r8888%22%2C%22https://is.gd/qqzqq%22%2C%22https://is.gd/ttttd%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://tpuolf3730.github.io/vd/qr/qr2/#https://github.com/tpuolf3730/www/blob/master/README.md?i#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://tpuolf3730.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/mmimm%22%2C%22https://is.gd/nnmnn%22%2C%22https://is.gd/ttttb%22%2C%22https://is.gd/a66666%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
