@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/fjdhch354/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fjdhch354/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/ggggx">git.io/ggggx</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/mgggg">git.io/mgggg</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/2020/12/08/a103004901.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/四川疫情升温 全省“迅速进入战时状态”   >-009fcc?logoWidth=1" title="四川疫情升温 全省“迅速进入战时状态”  " alt="四川疫情升温 全省“迅速进入战时状态”  "></a></p>
 <p><a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/2020/12/08/a103004764.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平连喊“备战打仗” 专家：枪口主要对内 >-009fcc?logoWidth=1" title="习近平连喊“备战打仗” 专家：枪口主要对内  " alt="习近平连喊“备战打仗” 专家：枪口主要对内  "></a></p>
 <p><a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/2020/12/08/a103004732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都爆疫情 20岁酒吧女走半城 全省启动紧急>-009fcc?logoWidth=1" title="成都爆疫情 20岁酒吧女走半城 全省启动紧急应变  " alt="成都爆疫情 20岁酒吧女走半城 全省启动紧急应变  "></a></p>
+<p><a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/2020/12/08/a103005172.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港紫荆党拟招25万党员  港媒:“地下党”>-009fcc?logoWidth=1" title="香港紫荆党拟招25万党员  港媒:“地下党”公开化  " alt="香港紫荆党拟招25万党员  港媒:“地下党”公开化  "></a></p>
 <p><a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/2020/12/08/a103005209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普律师团：安全港非最终期限 将继续战斗  >-009fcc?logoWidth=1" title="川普律师团：安全港非最终期限 将继续战斗  " alt="川普律师团：安全港非最终期限 将继续战斗  "></a></p>
 <p><a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/2020/12/08/a103005159.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普转发翟东升视频 中共自曝丑行遍传全球  >-009fcc?logoWidth=1" title="川普转发翟东升视频 中共自曝丑行遍传全球  " alt="川普转发翟东升视频 中共自曝丑行遍传全球  "></a></p>
 <p><a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/2020/12/08/a103005134.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普彭斯发起诉讼 直接状告拜登贺锦丽    >-009fcc?logoWidth=1" title="川普彭斯发起诉讼 直接状告拜登贺锦丽  " alt="川普彭斯发起诉讼 直接状告拜登贺锦丽  "></a></p>
 <p><a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/2020/12/08/a103005057.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/操纵计票结果 Dominion调制解调器由中>-009fcc?logoWidth=1" title="操纵计票结果 Dominion调制解调器由中企制造  " alt="操纵计票结果 Dominion调制解调器由中企制造  "></a></p>
-<p><a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/2020/12/08/a103005136.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/经济作战室：选举舞弊真相峰会        >-009fcc?logoWidth=1" title="经济作战室：选举舞弊真相峰会  " alt="经济作战室：选举舞弊真相峰会  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fjdhch354/djy/blob/master/gb/20/12/8/n12604360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共女特务暴露逃回国 曾跟多名美政客暧昧  >-009fcc?logoWidth=1" title="中共女特务暴露逃回国 曾跟多名美政客暧昧  " alt="中共女特务暴露逃回国 曾跟多名美政客暧昧  "></a></p>
 <p><a href="https://github.com/fjdhch354/djy/blob/master/gb/20/12/8/n12603341.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：接下来几天将有大事发生        >-009fcc?logoWidth=1" title="川普：接下来几天将有大事发生  " alt="川普：接下来几天将有大事发生  "></a></p>
@@ -40,12 +40,12 @@
 <p><a href="https://github.com/fjdhch354/djy/blob/master/gb/20/12/8/n12603026.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/捍卫美国 民兵组织吁川普效仿林肯      >-009fcc?logoWidth=1" title="捍卫美国 民兵组织吁川普效仿林肯  " alt="捍卫美国 民兵组织吁川普效仿林肯  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/2020/12/04/a103002100.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐靖远：川普声东击西？《反叛乱法》难度在哪？>-009fcc?logoWidth=1" title="唐靖远：川普声东击西？《反叛乱法》难度在哪？  " alt="唐靖远：川普声东击西？《反叛乱法》难度在哪？  "></a></p>
-<p><a href="https://github.com/fjdhch354/djy/blob/master/gb/20/12/7/n12601421.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国家情报总监：选举舞弊解决后才能宣布赢家  >-009fcc?logoWidth=1" title="国家情报总监：选举舞弊解决后才能宣布赢家  " alt="国家情报总监：选举舞弊解决后才能宣布赢家  "></a></p>
 <p><a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/2020/12/08/a103004621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“芯”病重击中国汽车业 最大外资车厂面临停产>-009fcc?logoWidth=1" title="“芯”病重击中国汽车业 最大外资车厂面临停产  " alt="“芯”病重击中国汽车业 最大外资车厂面临停产  "></a></p>
-<p><a href="https://github.com/fjdhch354/djy/blob/master/gb/20/12/8/n12603105.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：翟东升演讲泄密 曝中共干预大选动机  >-009fcc?logoWidth=1" title="田云：翟东升演讲泄密 曝中共干预大选动机  " alt="田云：翟东升演讲泄密 曝中共干预大选动机  "></a></p>
 <p><a href="https://github.com/fjdhch354/djy/blob/master/gb/20/12/8/n12603824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/学者：川普让美国再次伟大 拜登让中共再独大 >-009fcc?logoWidth=1" title="学者：川普让美国再次伟大 拜登让中共再独大  " alt="学者：川普让美国再次伟大 拜登让中共再独大  "></a></p>
-<p><a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/2020/12/08/a103004783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/害怕川普访台湾？环时发警告/FBI突袭搜证！>-009fcc?logoWidth=1" title="害怕川普访台湾？环时发警告/FBI突袭搜证！缴获涉大选8张硬碟  " alt="害怕川普访台湾？环时发警告/FBI突袭搜证！缴获涉大选8张硬碟  "></a></p>
 <p><a href="https://github.com/fjdhch354/djy/blob/master/gb/20/12/8/n12604170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美情报首长：拜登政府？没定论        >-009fcc?logoWidth=1" title="美情报首长：拜登政府？没定论  " alt="美情报首长：拜登政府？没定论  "></a></p>
+<p><a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/2020/12/08/a103004783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/害怕川普访台湾？环时发警告/FBI突袭搜证！>-009fcc?logoWidth=1" title="害怕川普访台湾？环时发警告/FBI突袭搜证！缴获涉大选8张硬碟  " alt="害怕川普访台湾？环时发警告/FBI突袭搜证！缴获涉大选8张硬碟  "></a></p>
+<p><a href="https://github.com/fjdhch354/djy/blob/master/gb/20/12/7/n12601421.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国家情报总监：选举舞弊解决后才能宣布赢家  >-009fcc?logoWidth=1" title="国家情报总监：选举舞弊解决后才能宣布赢家  " alt="国家情报总监：选举舞弊解决后才能宣布赢家  "></a></p>
+<p><a href="https://github.com/fjdhch354/djy/blob/master/gb/20/12/8/n12602708.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/情报总监剑指中共 川普声东击西？      >-009fcc?logoWidth=1" title="情报总监剑指中共 川普声东击西？  " alt="情报总监剑指中共 川普声东击西？  "></a></p>
 <p><a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/2020/12/07/a103004489.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：大选舞弊证据充足 这几天将有大事发生 >-009fcc?logoWidth=1" title="川普：大选舞弊证据充足 这几天将有大事发生  " alt="川普：大选舞弊证据充足 这几天将有大事发生  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -258,9 +258,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://fjdhch354.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?gnqcp">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?zeiov">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?vyexo">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?tdvzw">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -304,8 +304,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?egzox">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?doner">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?lruiq">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?gpvek">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -482,11 +482,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/fjdhch354/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fjdhch354/www/master/index.html?x">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fjdhch354/www/blob/master/README.md?p#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/fjdhch354/www/blob/master/README.md?k%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/bqqqqq" title="分享本平台"></img>
-<br><a href="https://git.io/ggggx">https://git.io/ggggx</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/bqqqqq">https://is.gd/bqqqqq</a>
+<p><strong><a href="https://github.com/fjdhch354/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fjdhch354/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fjdhch354/www/master/index.html?z">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fjdhch354/www/blob/master/README.md?g#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/fjdhch354/www/blob/master/README.md?b%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/z5555" title="分享本平台"></img>
+<br><a href="https://git.io/mgggg">https://git.io/mgggg</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/z5555">https://is.gd/z5555</a>
 <br>
 <br>
-<h3><a href="https://fjdhch354.github.io/vd/qr/qr2/#https://github.com/fjdhch354/www/blob/master/README.md?r#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fjdhch354.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/bqqqqq%22%2C%22https://is.gd/zzuzz%22%2C%22https://is.gd/yyyyn%22%2C%22https://is.gd/eddddd%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://fjdhch354.github.io/vd/qr/qr2/#https://github.com/fjdhch354/www/blob/master/README.md?m#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fjdhch354.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/z5555%22%2C%22https://is.gd/ussss%22%2C%22https://is.gd/qqpqq%22%2C%22https://is.gd/x6666%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
