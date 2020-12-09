@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/ortyvn364/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ortyvn364/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/ggggk">git.io/ggggk</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/azzzz">git.io/azzzz</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -22,25 +22,29 @@
 <p><a href="https://github.com/ortyvn364/ntdtv/blob/master/gb/2020/12/09/a103005501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正或被29国制裁 情妇私生子及海外资产曝光>-009fcc?logoWidth=1" title="韩正或被29国制裁 情妇私生子及海外资产曝光  " alt="韩正或被29国制裁 情妇私生子及海外资产曝光  "></a></p>
 <p><a href="https://github.com/ortyvn364/ntdtv/blob/master/gb/2020/12/09/a103005972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普律师埃利斯染疫遭抹黑 出面驳斥“播毒”谣>-009fcc?logoWidth=1" title="川普律师埃利斯染疫遭抹黑 出面驳斥“播毒”谣言  " alt="川普律师埃利斯染疫遭抹黑 出面驳斥“播毒”谣言  "></a></p>
 <p><a href="https://github.com/ortyvn364/ntdtv/blob/master/gb/2020/12/09/a103006042.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/12月12日华府大型游行集会        >-009fcc?logoWidth=1" title="12月12日华府大型游行集会  " alt="12月12日华府大型游行集会  "></a></p>
-<p><a href="https://github.com/ortyvn364/ntdtv/blob/master/gb/2020/12/09/a103005768.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/埃及医生化身艺术家 2.8万根火柴重现巴黎圣>-009fcc?logoWidth=1" title="埃及医生化身艺术家 2.8万根火柴重现巴黎圣母院  " alt="埃及医生化身艺术家 2.8万根火柴重现巴黎圣母院  "></a></p>
-<p><a href="https://github.com/ortyvn364/ntdtv/blob/master/gb/2020/12/09/a103005906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法律专家：德州告4州违宪诉讼明确 足以胜诉 >-009fcc?logoWidth=1" title="法律专家：德州告4州违宪诉讼明确 足以胜诉  " alt="法律专家：德州告4州违宪诉讼明确 足以胜诉  "></a></p>
-<p><a href="https://github.com/ortyvn364/ntdtv/blob/master/gb/2020/12/09/a103005946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《魔鬼在统治着我们的世界》韩文版发表    >-009fcc?logoWidth=1" title="《魔鬼在统治着我们的世界》韩文版发表  " alt="《魔鬼在统治着我们的世界》韩文版发表  "></a></p>
+<p><a href="https://github.com/ortyvn364/ntdtv/blob/master/gb/2020/12/09/a103006009.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/澳洲议会通过外交新法 一带一路将废除    >-009fcc?logoWidth=1" title="澳洲议会通过外交新法 一带一路将废除  " alt="澳洲议会通过外交新法 一带一路将废除  "></a></p>
+<p><a href="https://github.com/ortyvn364/ntdtv/blob/master/gb/2020/12/09/a103006002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登讲话吐真言 近241万人浏览2万6千人留>-009fcc?logoWidth=1" title="拜登讲话吐真言 近241万人浏览2万6千人留言  " alt="拜登讲话吐真言 近241万人浏览2万6千人留言  "></a></p>
+<p><a href="https://github.com/ortyvn364/ntdtv/blob/master/gb/2020/12/09/a103005990.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周庭保释被拒 蓬佩奥：港沦中共统治之城   >-009fcc?logoWidth=1" title="周庭保释被拒 蓬佩奥：港沦中共统治之城  " alt="周庭保释被拒 蓬佩奥：港沦中共统治之城  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/7/n12602291.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥就中共挑战美国发表演讲        >-009fcc?logoWidth=1" title="蓬佩奥就中共挑战美国发表演讲  " alt="蓬佩奥就中共挑战美国发表演讲  "></a></p>
-<p><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/9/n12606610.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/埋伏29天 10州骑兵只差一事       >-009fcc?logoWidth=1" title="埋伏29天 10州骑兵只差一事  " alt="埋伏29天 10州骑兵只差一事  "></a></p>
-<p><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/8/n12604360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共女特务暴露逃回国 曾跟多名美政客暧昧  >-009fcc?logoWidth=1" title="中共女特务暴露逃回国 曾跟多名美政客暧昧  " alt="中共女特务暴露逃回国 曾跟多名美政客暧昧  "></a></p>
-<p><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/9/n12605280.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美情报总监：中共对美政府的渗透日趋严重   >-009fcc?logoWidth=1" title="美情报总监：中共对美政府的渗透日趋严重  " alt="美情报总监：中共对美政府的渗透日趋严重  "></a></p>
-<p><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/8/n12604972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德州“核爆级”诉讼 一举翻转4州？     >-009fcc?logoWidth=1" title="德州“核爆级”诉讼 一举翻转4州？  " alt="德州“核爆级”诉讼 一举翻转4州？  "></a></p>
-<p><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/8/n12604918.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美大选速转？川普：将有大事发生       >-009fcc?logoWidth=1" title="美大选速转？川普：将有大事发生  " alt="美大选速转？川普：将有大事发生  "></a></p>
-<p><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/8/n12604206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/翟东升爆：北京有秘密渗美渠道 但被川普切断 >-009fcc?logoWidth=1" title="翟东升爆：北京有秘密渗美渠道 但被川普切断  " alt="翟东升爆：北京有秘密渗美渠道 但被川普切断  "></a></p>
-<p><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/4/n12596574.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/6500法轮功学员开法会 李洪志大师发贺词 >-009fcc?logoWidth=1" title="6500法轮功学员开法会 李洪志大师发贺词  " alt="6500法轮功学员开法会 李洪志大师发贺词  "></a></p>
+<p><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/3/14/n11939689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/报导李文亮造谣获表彰 新华社女记者被起底  >-009fcc?logoWidth=1" title="报导李文亮造谣获表彰 新华社女记者被起底  " alt="报导李文亮造谣获表彰 新华社女记者被起底  "></a></p>
+<p><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/3/13/n11939039.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曝中共掩盖疫情真相 中国网民创意十足    >-009fcc?logoWidth=1" title="曝中共掩盖疫情真相 中国网民创意十足  " alt="曝中共掩盖疫情真相 中国网民创意十足  "></a></p>
+<p><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/3/10/n11928818.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉病毒针对共产党而来           >-009fcc?logoWidth=1" title="武汉病毒针对共产党而来  " alt="武汉病毒针对共产党而来  "></a></p>
+<p><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/3/13/n11938204.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台前官员：中国疫情趋缓是谎言 疑千万人感染 >-009fcc?logoWidth=1" title="台前官员：中国疫情趋缓是谎言 疑千万人感染  " alt="台前官员：中国疫情趋缓是谎言 疑千万人感染  "></a></p>
+<p><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/3/13/n11938828.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/甩锅美军 中共外交部演双簧？        >-009fcc?logoWidth=1" title="甩锅美军 中共外交部演双簧？  " alt="甩锅美军 中共外交部演双簧？  "></a></p>
+<p><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/3/14/n11939304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉失踪青年达数百人 警方不作为（上）   >-009fcc?logoWidth=1" title="武汉失踪青年达数百人 警方不作为（上）  " alt="武汉失踪青年达数百人 警方不作为（上）  "></a></p>
+<p><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/3/13/n11938627.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/病患出方舱 病症加重医院不收        >-009fcc?logoWidth=1" title="病患出方舱 病症加重医院不收  " alt="病患出方舱 病症加重医院不收  "></a></p>
+<p><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/3/2/n11909946.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陷冤狱 吉林法轮功学员肖永芬被迫害致死   >-009fcc?logoWidth=1" title="陷冤狱 吉林法轮功学员肖永芬被迫害致死  " alt="陷冤狱 吉林法轮功学员肖永芬被迫害致死  "></a></p>
+<p><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/3/13/n11938553.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉肺炎让科学家难解释的多个现象      >-009fcc?logoWidth=1" title="武汉肺炎让科学家难解释的多个现象  " alt="武汉肺炎让科学家难解释的多个现象  "></a></p>
+<p><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/3/13/n11938908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：北京向美国要“解释” 只能玩火自焚 >-009fcc?logoWidth=1" title="周晓辉：北京向美国要“解释” 只能玩火自焚  " alt="周晓辉：北京向美国要“解释” 只能玩火自焚  "></a></p>
+<p><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/3/14/n11939423.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何急甩锅？              >-009fcc?logoWidth=1" title="中共为何急甩锅？  " alt="中共为何急甩锅？  "></a></p>
+<p><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/3/14/n11939527.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆地产商任志强传失联           >-009fcc?logoWidth=1" title="大陆地产商任志强传失联  " alt="大陆地产商任志强传失联  "></a></p>
+<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/9/n12605428.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共女特务性贿赂美国政界多年        >-009fcc?logoWidth=1" title="中共女特务性贿赂美国政界多年  " alt="中共女特务性贿赂美国政界多年  "></a></p>
 <p><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/9/n12605105.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/隋牧青律师：川普会把搞政变团伙一网打尽   >-009fcc?logoWidth=1" title="隋牧青律师：川普会把搞政变团伙一网打尽  " alt="隋牧青律师：川普会把搞政变团伙一网打尽  "></a></p>
-<p><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/9/n12605449.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2021中国潜藏7大危机 习喊备战     >-009fcc?logoWidth=1" title="2021中国潜藏7大危机 习喊备战  " alt="2021中国潜藏7大危机 习喊备战  "></a></p>
-<p><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/4/n12594871.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：中共的“实战演习”如何造假（三）   >-009fcc?logoWidth=1" title="沈舟：中共的“实战演习”如何造假（三）  " alt="沈舟：中共的“实战演习”如何造假（三）  "></a></p>
-<details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ortyvn364/ntdtv/blob/master/gb/2020/12/09/a103005458.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/14名副国级高官被制裁 中南海连喊三个“严重>-009fcc?logoWidth=1" title="14名副国级高官被制裁 中南海连喊三个“严重”  " alt="14名副国级高官被制裁 中南海连喊三个“严重”  "></a></p>
 <p><a href="https://github.com/ortyvn364/ntdtv/blob/master/gb/2020/12/09/a103005488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平被“高参”出卖 曝和拜登有买卖(视频)>-009fcc?logoWidth=1" title="习近平被“高参”出卖 曝和拜登有买卖(视频)  " alt="习近平被“高参”出卖 曝和拜登有买卖(视频)  "></a></p>
+<p><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/9/n12605449.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2021中国潜藏7大危机 习喊备战     >-009fcc?logoWidth=1" title="2021中国潜藏7大危机 习喊备战  " alt="2021中国潜藏7大危机 习喊备战  "></a></p>
+<p><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/4/n12594871.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：中共的“实战演习”如何造假（三）   >-009fcc?logoWidth=1" title="沈舟：中共的“实战演习”如何造假（三）  " alt="沈舟：中共的“实战演习”如何造假（三）  "></a></p>
 <p><a href="https://github.com/ortyvn364/ntdtv/blob/master/gb/2020/12/09/a103005565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德州重大诉讼一锤定江山？ 中共美人计，美国政>-009fcc?logoWidth=1" title="德州重大诉讼一锤定江山？ 中共美人计，美国政界为何无力抵御？  " alt="德州重大诉讼一锤定江山？ 中共美人计，美国政界为何无力抵御？  "></a></p>
 <p><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/8/n12605055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普吁大法官和立法机构勇敢做正确的事    >-009fcc?logoWidth=1" title="川普吁大法官和立法机构勇敢做正确的事  " alt="川普吁大法官和立法机构勇敢做正确的事  "></a></p>
 <p><a href="https://github.com/ortyvn364/djy/blob/master/gb/20/12/9/n12605789.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国工人在乌干达染疫 传国产疫苗失效　   >-009fcc?logoWidth=1" title="中国工人在乌干达染疫 传国产疫苗失效　  " alt="中国工人在乌干达染疫 传国产疫苗失效　  "></a></p>
@@ -261,9 +265,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://ortyvn364.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?glyhu">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?fxpbc">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?tzjmr">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?xosbq">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +311,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?qshoi">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?myjwa">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?xbrtz">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?drngi">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,11 +489,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/ortyvn364/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ortyvn364/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ortyvn364/www/master/index.html?p">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ortyvn364/www/blob/master/README.md?j#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ortyvn364/www/blob/master/README.md?a%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/rqqqq" title="分享本平台"></img>
-<br><a href="https://git.io/ggggk">https://git.io/ggggk</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/rqqqq">https://is.gd/rqqqq</a>
+<p><strong><a href="https://github.com/ortyvn364/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ortyvn364/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ortyvn364/www/master/index.html?x">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ortyvn364/www/blob/master/README.md?c#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ortyvn364/www/blob/master/README.md?w%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/xjjjj" title="分享本平台"></img>
+<br><a href="https://git.io/azzzz">https://git.io/azzzz</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/xjjjj">https://is.gd/xjjjj</a>
 <br>
 <br>
-<h3><a href="https://ortyvn364.github.io/vd/qr/qr2/#https://github.com/ortyvn364/www/blob/master/README.md?j#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ortyvn364.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/rqqqq%22%2C%22https://is.gd/tcccc%22%2C%22https://is.gd/22y22%22%2C%22https://is.gd/mmmmj%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://ortyvn364.github.io/vd/qr/qr2/#https://github.com/ortyvn364/www/blob/master/README.md?w#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ortyvn364.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/xjjjj%22%2C%22https://is.gd/mnnnn%22%2C%22https://is.gd/pppp8%22%2C%22https://is.gd/mrrrr%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
