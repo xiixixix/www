@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/klxenb343/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/klxenb343/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/hbbbb">git.io/hbbbb</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/8hhhh">git.io/8hhhh</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -29,18 +29,20 @@
 <p><a href="https://github.com/klxenb343/djy/blob/master/gb/20/12/8/n12604360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共女特务暴露逃回国 曾跟多名美政客暧昧  >-009fcc?logoWidth=1" title="中共女特务暴露逃回国 曾跟多名美政客暧昧  " alt="中共女特务暴露逃回国 曾跟多名美政客暧昧  "></a></p>
 <p><a href="https://github.com/klxenb343/djy/blob/master/gb/20/12/8/n12604725.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民主党提准备拜登1月就职典礼 共和党否决  >-009fcc?logoWidth=1" title="民主党提准备拜登1月就职典礼 共和党否决  " alt="民主党提准备拜登1月就职典礼 共和党否决  "></a></p>
 <p><a href="https://github.com/klxenb343/djy/blob/master/gb/20/12/8/n12603341.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：接下来几天将有大事发生        >-009fcc?logoWidth=1" title="川普：接下来几天将有大事发生  " alt="川普：接下来几天将有大事发生  "></a></p>
-<p><a href="https://github.com/klxenb343/djy/blob/master/gb/20/12/8/n12604288.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长征3号火箭残骸掉云南 当局禁拍照和转发  >-009fcc?logoWidth=1" title="长征3号火箭残骸掉云南 当局禁拍照和转发  " alt="长征3号火箭残骸掉云南 当局禁拍照和转发  "></a></p>
 <p><a href="https://github.com/klxenb343/djy/blob/master/gb/20/12/7/n12602304.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法律战四大进展 川普：为美国而战      >-009fcc?logoWidth=1" title="法律战四大进展 川普：为美国而战  " alt="法律战四大进展 川普：为美国而战  "></a></p>
-<p><a href="https://github.com/klxenb343/djy/blob/master/gb/20/12/7/n12601908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/14中共人大副委员长及家属被禁入境美国   >-009fcc?logoWidth=1" title="14中共人大副委员长及家属被禁入境美国  " alt="14中共人大副委员长及家属被禁入境美国  "></a></p>
+<p><a href="https://github.com/klxenb343/djy/blob/master/gb/20/12/7/n12601942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：李克强揭示中国大陆科技发展实情    >-009fcc?logoWidth=1" title="钟原：李克强揭示中国大陆科技发展实情  " alt="钟原：李克强揭示中国大陆科技发展实情  "></a></p>
+<p><a href="https://github.com/klxenb343/djy/blob/master/gb/20/12/8/n12604288.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/长征3号火箭残骸掉云南 当局禁拍照和转发  >-009fcc?logoWidth=1" title="长征3号火箭残骸掉云南 当局禁拍照和转发  " alt="长征3号火箭残骸掉云南 当局禁拍照和转发  "></a></p>
 <p><a href="https://github.com/klxenb343/djy/blob/master/gb/20/12/8/n12603115.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁中共高官 FBI突袭搜证       >-009fcc?logoWidth=1" title="美制裁中共高官 FBI突袭搜证  " alt="美制裁中共高官 FBI突袭搜证  "></a></p>
 <p><a href="https://github.com/klxenb343/djy/blob/master/gb/20/12/4/n12596574.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/6500法轮功学员开法会 李洪志大师发贺词 >-009fcc?logoWidth=1" title="6500法轮功学员开法会 李洪志大师发贺词  " alt="6500法轮功学员开法会 李洪志大师发贺词  "></a></p>
-<p><a href="https://github.com/klxenb343/djy/blob/master/gb/20/12/7/n12601942.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：李克强揭示中国大陆科技发展实情    >-009fcc?logoWidth=1" title="钟原：李克强揭示中国大陆科技发展实情  " alt="钟原：李克强揭示中国大陆科技发展实情  "></a></p>
-<p><a href="https://github.com/klxenb343/djy/blob/master/gb/20/12/8/n12603824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/学者：川普让美国再次伟大 拜登让中共独大  >-009fcc?logoWidth=1" title="学者：川普让美国再次伟大 拜登让中共独大  " alt="学者：川普让美国再次伟大 拜登让中共独大  "></a></p>
-<p><a href="https://github.com/klxenb343/djy/blob/master/gb/20/12/7/n12602418.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共再批四军老虎 分析：习有强烈不安全感  >-009fcc?logoWidth=1" title="中共再批四军老虎 分析：习有强烈不安全感  " alt="中共再批四军老虎 分析：习有强烈不安全感  "></a></p>
-<p><a href="https://github.com/klxenb343/djy/blob/master/gb/20/12/8/n12604307.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大批疫苗分发在即 川普签行政令       >-009fcc?logoWidth=1" title="大批疫苗分发在即 川普签行政令  " alt="大批疫苗分发在即 川普签行政令  "></a></p>
+<p><a href="https://github.com/klxenb343/djy/blob/master/gb/20/12/7/n12601908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/14中共人大副委员长及家属被禁入境美国   >-009fcc?logoWidth=1" title="14中共人大副委员长及家属被禁入境美国  " alt="14中共人大副委员长及家属被禁入境美国  "></a></p>
+<p><a href="https://github.com/klxenb343/djy/blob/master/gb/20/12/8/n12604206.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/翟东升爆：北京有秘密渗美渠道 但被川普切断 >-009fcc?logoWidth=1" title="翟东升爆：北京有秘密渗美渠道 但被川普切断  " alt="翟东升爆：北京有秘密渗美渠道 但被川普切断  "></a></p>
+<p><a href="https://github.com/klxenb343/djy/blob/master/gb/20/12/8/n12604390.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普三整国防部               >-009fcc?logoWidth=1" title="川普三整国防部  " alt="川普三整国防部  "></a></p>
+<p><a href="https://github.com/klxenb343/djy/blob/master/gb/20/12/8/n12604113.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亲北京的共产份子如何为拜登窃选       >-009fcc?logoWidth=1" title="亲北京的共产份子如何为拜登窃选  " alt="亲北京的共产份子如何为拜登窃选  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/klxenb343/djy/blob/master/gb/20/12/8/n12603824.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/学者：川普让美国再次伟大 拜登让中共再独大 >-009fcc?logoWidth=1" title="学者：川普让美国再次伟大 拜登让中共再独大  " alt="学者：川普让美国再次伟大 拜登让中共再独大  "></a></p>
 <p><a href="https://github.com/klxenb343/ntdtv/blob/master/gb/2020/12/08/a103005055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海怪网络战准备收网？川普预告“有大事” 收拾>-009fcc?logoWidth=1" title="海怪网络战准备收网？川普预告“有大事” 收拾左派已近？  " alt="海怪网络战准备收网？川普预告“有大事” 收拾左派已近？  "></a></p>
+<p><a href="https://github.com/klxenb343/djy/blob/master/gb/20/12/7/n12602418.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共再批四军老虎 分析：习有强烈不安全感  >-009fcc?logoWidth=1" title="中共再批四军老虎 分析：习有强烈不安全感  " alt="中共再批四军老虎 分析：习有强烈不安全感  "></a></p>
+<p><a href="https://github.com/klxenb343/djy/blob/master/gb/20/12/8/n12604307.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大批疫苗分发在即 川普签行政令       >-009fcc?logoWidth=1" title="大批疫苗分发在即 川普签行政令  " alt="大批疫苗分发在即 川普签行政令  "></a></p>
 <p><a href="https://github.com/klxenb343/ntdtv/blob/master/gb/2020/12/04/a103002100.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/唐靖远：川普声东击西？《反叛乱法》难度在哪？>-009fcc?logoWidth=1" title="唐靖远：川普声东击西？《反叛乱法》难度在哪？  " alt="唐靖远：川普声东击西？《反叛乱法》难度在哪？  "></a></p>
 <p><a href="https://github.com/klxenb343/djy/blob/master/gb/20/12/8/n12604584.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一文梳理：6个摇摆州邮寄选票欺诈疑云    >-009fcc?logoWidth=1" title="一文梳理：6个摇摆州邮寄选票欺诈疑云  " alt="一文梳理：6个摇摆州邮寄选票欺诈疑云  "></a></p>
 <p><a href="https://github.com/klxenb343/djy/blob/master/gb/20/12/8/n12603026.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/捍卫美国 民兵组织吁川普效仿林肯      >-009fcc?logoWidth=1" title="捍卫美国 民兵组织吁川普效仿林肯  " alt="捍卫美国 民兵组织吁川普效仿林肯  "></a></p>
@@ -259,9 +261,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://klxenb343.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?oitvc">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?dpudt">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ydxib">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?mmtqq">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +307,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?qcdnl">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?fzfwq">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?qdyhg">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?xjxrp">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -483,11 +485,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/klxenb343/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/klxenb343/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/klxenb343/www/master/index.html?l">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/klxenb343/www/blob/master/README.md?a#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/klxenb343/www/blob/master/README.md?p%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ppupp" title="分享本平台"></img>
-<br><a href="https://git.io/hbbbb">https://git.io/hbbbb</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/ppupp">https://is.gd/ppupp</a>
+<p><strong><a href="https://github.com/klxenb343/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/klxenb343/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/klxenb343/www/master/index.html?g">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/klxenb343/www/blob/master/README.md?o#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/klxenb343/www/blob/master/README.md?a%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/pppp6" title="分享本平台"></img>
+<br><a href="https://git.io/8hhhh">https://git.io/8hhhh</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/pppp6">https://is.gd/pppp6</a>
 <br>
 <br>
-<h3><a href="https://klxenb343.github.io/vd/qr/qr2/#https://github.com/klxenb343/www/blob/master/README.md?q#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://klxenb343.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/ppupp%22%2C%22https://is.gd/ssssj%22%2C%22https://is.gd/rrrra%22%2C%22https://is.gd/rhhhh%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://klxenb343.github.io/vd/qr/qr2/#https://github.com/klxenb343/www/blob/master/README.md?i#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://klxenb343.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/pppp6%22%2C%22https://is.gd/ppppf%22%2C%22https://is.gd/pp9pp%22%2C%22https://is.gd/uuuum%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
