@@ -9,17 +9,17 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/ujyazx3149/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ujyazx3149/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/ggggggg">git.io/ggggggg</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/ffffn">git.io/ffffn</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/ujyazx3149/ntdtv/blob/master/gb/2020/12/09/a103005618.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共收缴护照文件曝光 学者揭两大目的    >-009fcc?logoWidth=1" title="中共收缴护照文件曝光 学者揭两大目的  " alt="中共收缴护照文件曝光 学者揭两大目的  "></a></p>
 <p><a href="https://github.com/ujyazx3149/ntdtv/blob/master/gb/2020/12/09/a103005509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/栗战书为何躲过一劫？大外宣罕见称“令人意外”>-009fcc?logoWidth=1" title="栗战书为何躲过一劫？大外宣罕见称“令人意外”  " alt="栗战书为何躲过一劫？大外宣罕见称“令人意外”  "></a></p>
 <p><a href="https://github.com/ujyazx3149/ntdtv/blob/master/gb/2020/12/09/a103005501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正或被29国制裁 情妇私生子及海外资产曝光>-009fcc?logoWidth=1" title="韩正或被29国制裁 情妇私生子及海外资产曝光  " alt="韩正或被29国制裁 情妇私生子及海外资产曝光  "></a></p>
 <p><a href="https://github.com/ujyazx3149/ntdtv/blob/master/gb/2020/12/09/a103005422.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德州“核爆级”诉讼 一举翻转4州？     >-009fcc?logoWidth=1" title="德州“核爆级”诉讼 一举翻转4州？  " alt="德州“核爆级”诉讼 一举翻转4州？  "></a></p>
 <p><a href="https://github.com/ujyazx3149/ntdtv/blob/master/gb/2020/12/09/a103005471.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德银中国曾行贿江泽民 如今被朱镕基女翻译掌控>-009fcc?logoWidth=1" title="德银中国曾行贿江泽民 如今被朱镕基女翻译掌控  " alt="德银中国曾行贿江泽民 如今被朱镕基女翻译掌控  "></a></p>
 <p><a href="https://github.com/ujyazx3149/ntdtv/blob/master/gb/2020/12/09/a103005458.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/14名副国级高官被制裁 中南海连喊三个“严重>-009fcc?logoWidth=1" title="14名副国级高官被制裁 中南海连喊三个“严重”  " alt="14名副国级高官被制裁 中南海连喊三个“严重”  "></a></p>
-<p><a href="https://github.com/ujyazx3149/ntdtv/blob/master/gb/2020/12/08/a103004825.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/14副国级被制裁内幕/四川进入战时状态   >-009fcc?logoWidth=1" title="14副国级被制裁内幕/四川进入战时状态  " alt="14副国级被制裁内幕/四川进入战时状态  "></a></p>
 <p><a href="https://github.com/ujyazx3149/ntdtv/blob/master/gb/2020/12/09/a103005583.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骇人！印尼男童被巨型风筝卷上天 重摔骨折  >-009fcc?logoWidth=1" title="骇人！印尼男童被巨型风筝卷上天 重摔骨折  " alt="骇人！印尼男童被巨型风筝卷上天 重摔骨折  "></a></p>
 <p><a href="https://github.com/ujyazx3149/ntdtv/blob/master/gb/2020/12/09/a103005529.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朱利安尼康复神速 称最快周三出院      >-009fcc?logoWidth=1" title="朱利安尼康复神速 称最快周三出院  " alt="朱利安尼康复神速 称最快周三出院  "></a></p>
 <p><a href="https://github.com/ujyazx3149/ntdtv/blob/master/gb/2020/12/09/a103005498.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/质疑朝鲜防疫蹊跷 金与正炮轰韩国外长“病得不>-009fcc?logoWidth=1" title="质疑朝鲜防疫蹊跷 金与正炮轰韩国外长“病得不轻”  " alt="质疑朝鲜防疫蹊跷 金与正炮轰韩国外长“病得不轻”  "></a></p>
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://ujyazx3149.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?vtcqz">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?olwix">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?yykbo">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?lnwmg">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ppxyk">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?xngkv">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ysyye">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?gljqh">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -484,11 +484,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/ujyazx3149/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ujyazx3149/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ujyazx3149/www/master/index.html?a">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ujyazx3149/www/blob/master/README.md?q#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ujyazx3149/www/blob/master/README.md?l%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/unnnn" title="分享本平台"></img>
-<br><a href="https://git.io/ggggggg">https://git.io/ggggggg</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/unnnn">https://is.gd/unnnn</a>
+<p><strong><a href="https://github.com/ujyazx3149/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ujyazx3149/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ujyazx3149/www/master/index.html?g">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ujyazx3149/www/blob/master/README.md?u#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ujyazx3149/www/blob/master/README.md?k%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/qqgqq" title="分享本平台"></img>
+<br><a href="https://git.io/ffffn">https://git.io/ffffn</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/qqgqq">https://is.gd/qqgqq</a>
 <br>
 <br>
-<h3><a href="https://ujyazx3149.github.io/vd/qr/qr2/#https://github.com/ujyazx3149/www/blob/master/README.md?i#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ujyazx3149.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/unnnn%22%2C%22https://is.gd/cxxxxx%22%2C%22https://is.gd/xxxx2%22%2C%22https://is.gd/eaaaaa%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://ujyazx3149.github.io/vd/qr/qr2/#https://github.com/ujyazx3149/www/blob/master/README.md?h#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ujyazx3149.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/qqgqq%22%2C%22https://is.gd/uuuuy%22%2C%22https://is.gd/rzzzz%22%2C%22https://is.gd/zzjzz%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
