@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/bmufir3991/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/bmufir3991/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/pcccc">git.io/pcccc</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/mmmmmmmm">git.io/mmmmmmmm</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/bmufir3991/ntdtv/blob/master/gb/2020/12/09/a103005618.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共收缴护照文件曝光 学者揭两大目的    >-009fcc?logoWidth=1" title="中共收缴护照文件曝光 学者揭两大目的  " alt="中共收缴护照文件曝光 学者揭两大目的  "></a></p>
 <p><a href="https://github.com/bmufir3991/ntdtv/blob/master/gb/2020/12/09/a103005509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/栗战书为何躲过一劫？大外宣罕见称“令人意外”>-009fcc?logoWidth=1" title="栗战书为何躲过一劫？大外宣罕见称“令人意外”  " alt="栗战书为何躲过一劫？大外宣罕见称“令人意外”  "></a></p>
 <p><a href="https://github.com/bmufir3991/ntdtv/blob/master/gb/2020/12/09/a103005501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正或被29国制裁 情妇私生子及海外资产曝光>-009fcc?logoWidth=1" title="韩正或被29国制裁 情妇私生子及海外资产曝光  " alt="韩正或被29国制裁 情妇私生子及海外资产曝光  "></a></p>
+<p><a href="https://github.com/bmufir3991/ntdtv/blob/master/gb/2020/12/09/a103006202.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“这是大案” 川普宣布将介入德州大选诉讼  >-009fcc?logoWidth=1" title="“这是大案” 川普宣布将介入德州大选诉讼  " alt="“这是大案” 川普宣布将介入德州大选诉讼  "></a></p>
+<p><a href="https://github.com/bmufir3991/ntdtv/blob/master/gb/2020/12/10/a103006331.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德州诉讼已获17州响应 控4摇摆州选举舞弊 >-009fcc?logoWidth=1" title="德州诉讼已获17州响应 控4摇摆州选举舞弊  " alt="德州诉讼已获17州响应 控4摇摆州选举舞弊  "></a></p>
+<p><a href="https://github.com/bmufir3991/ntdtv/blob/master/gb/2020/12/10/a103006323.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/隐形近3年 中共应急管理部长王玉普过世   >-009fcc?logoWidth=1" title="隐形近3年 中共应急管理部长王玉普过世  " alt="隐形近3年 中共应急管理部长王玉普过世  "></a></p>
 <p><a href="https://github.com/bmufir3991/ntdtv/blob/master/gb/2020/12/09/a103006184.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/3国会众议员挑战选举人团 吁更多人加入   >-009fcc?logoWidth=1" title="3国会众议员挑战选举人团 吁更多人加入  " alt="3国会众议员挑战选举人团 吁更多人加入  "></a></p>
-<p><a href="https://github.com/bmufir3991/ntdtv/blob/master/gb/2020/12/09/a103006200.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/舆论审查升级 Youtube将删指控“大选作>-009fcc?logoWidth=1" title="舆论审查升级 Youtube将删指控“大选作弊”视频  " alt="舆论审查升级 Youtube将删指控“大选作弊”视频  "></a></p>
-<p><a href="https://github.com/bmufir3991/ntdtv/blob/master/gb/2020/12/09/a103006244.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德州诉四摇摆州案多州支持 川普加入诉讼   >-009fcc?logoWidth=1" title="德州诉四摇摆州案多州支持 川普加入诉讼  " alt="德州诉四摇摆州案多州支持 川普加入诉讼  "></a></p>
-<p><a href="https://github.com/bmufir3991/ntdtv/blob/master/gb/2020/12/09/a103006122.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普团队诉乔州非法投票：近7万未成年人 逾2>-009fcc?logoWidth=1" title="川普团队诉乔州非法投票：近7万未成年人 逾2千重罪犯  " alt="川普团队诉乔州非法投票：近7万未成年人 逾2千重罪犯  "></a></p>
-<p><a href="https://github.com/bmufir3991/ntdtv/blob/master/gb/2020/12/09/a103006165.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/22众议员敦促川普 任命特别检察官调查大选舞>-009fcc?logoWidth=1" title="22众议员敦促川普 任命特别检察官调查大选舞弊  " alt="22众议员敦促川普 任命特别检察官调查大选舞弊  "></a></p>
+<p><a href="https://github.com/bmufir3991/ntdtv/blob/master/gb/2020/12/10/a103006273.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共女特务性贿赂美政界 涉民主党国会议员  >-009fcc?logoWidth=1" title="中共女特务性贿赂美政界 涉民主党国会议员  " alt="中共女特务性贿赂美政界 涉民主党国会议员  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/bmufir3991/djy/blob/master/gb/20/12/9/n12607112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普政府制裁一名中共政协委员兼黑帮头目   >-009fcc?logoWidth=1" title="川普政府制裁一名中共政协委员兼黑帮头目  " alt="川普政府制裁一名中共政协委员兼黑帮头目  "></a></p>
 <p><a href="https://github.com/bmufir3991/djy/blob/master/gb/20/12/9/n12605623.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“高参”泄天机 惊呆美国网民     >-009fcc?logoWidth=1" title="习近平“高参”泄天机 惊呆美国网民  " alt="习近平“高参”泄天机 惊呆美国网民  "></a></p>
@@ -39,15 +39,16 @@
 <p><a href="https://github.com/bmufir3991/djy/blob/master/gb/20/12/9/n12608348.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/麦卡锡指涉中共女燕子案议员：应开除出众院  >-009fcc?logoWidth=1" title="麦卡锡指涉中共女燕子案议员：应开除出众院  " alt="麦卡锡指涉中共女燕子案议员：应开除出众院  "></a></p>
 <p><a href="https://github.com/bmufir3991/djy/blob/master/gb/20/12/8/n12604360.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共女特务暴露逃回国 曾跟多名美政客暧昧  >-009fcc?logoWidth=1" title="中共女特务暴露逃回国 曾跟多名美政客暧昧  " alt="中共女特务暴露逃回国 曾跟多名美政客暧昧  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/bmufir3991/ntdtv/blob/master/gb/2020/12/09/a103005906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法律专家：德州告4州违宪诉讼明确 足以胜诉 >-009fcc?logoWidth=1" title="法律专家：德州告4州违宪诉讼明确 足以胜诉  " alt="法律专家：德州告4州违宪诉讼明确 足以胜诉  "></a></p>
+<p><a href="https://github.com/bmufir3991/ntdtv/blob/master/gb/2020/12/09/a103006042.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/12月12日华府大型游行集会        >-009fcc?logoWidth=1" title="12月12日华府大型游行集会  " alt="12月12日华府大型游行集会  "></a></p>
+<p><a href="https://github.com/bmufir3991/ntdtv/blob/master/gb/2020/12/09/a103006244.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德州诉四摇摆州案多州支持 川普加入诉讼   >-009fcc?logoWidth=1" title="德州诉四摇摆州案多州支持 川普加入诉讼  " alt="德州诉四摇摆州案多州支持 川普加入诉讼  "></a></p>
+<p><a href="https://github.com/bmufir3991/ntdtv/blob/master/gb/2020/12/10/a103006277.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/油管变网管 德州战四州           >-009fcc?logoWidth=1" title="油管变网管 德州战四州  " alt="油管变网管 德州战四州  "></a></p>
 <p><a href="https://github.com/bmufir3991/djy/blob/master/gb/20/12/8/n12604918.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美大选速转？川普：将有大事发生       >-009fcc?logoWidth=1" title="美大选速转？川普：将有大事发生  " alt="美大选速转？川普：将有大事发生  "></a></p>
 <p><a href="https://github.com/bmufir3991/djy/blob/master/gb/20/12/9/n12606261.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：我们将记住“勇气”一词        >-009fcc?logoWidth=1" title="川普：我们将记住“勇气”一词  " alt="川普：我们将记住“勇气”一词  "></a></p>
-<p><a href="https://github.com/bmufir3991/ntdtv/blob/master/gb/2020/12/09/a103005458.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/14名副国级高官被制裁 中南海连喊三个“严重>-009fcc?logoWidth=1" title="14名副国级高官被制裁 中南海连喊三个“严重”  " alt="14名副国级高官被制裁 中南海连喊三个“严重”  "></a></p>
-<p><a href="https://github.com/bmufir3991/ntdtv/blob/master/gb/2020/12/09/a103005753.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共财政部罕见警告：地方债务率逼近警戒线  >-009fcc?logoWidth=1" title="中共财政部罕见警告：地方债务率逼近警戒线  " alt="中共财政部罕见警告：地方债务率逼近警戒线  "></a></p>
+<p><a href="https://github.com/bmufir3991/ntdtv/blob/master/gb/2020/12/09/a103006002.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登讲话吐真言 近241万人浏览2万6千人留>-009fcc?logoWidth=1" title="拜登讲话吐真言 近241万人浏览2万6千人留言  " alt="拜登讲话吐真言 近241万人浏览2万6千人留言  "></a></p>
 <p><a href="https://github.com/bmufir3991/djy/blob/master/gb/20/12/4/n12594871.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：中共的“实战演习”如何造假（三）   >-009fcc?logoWidth=1" title="沈舟：中共的“实战演习”如何造假（三）  " alt="沈舟：中共的“实战演习”如何造假（三）  "></a></p>
 <p><a href="https://github.com/bmufir3991/djy/blob/master/gb/20/12/8/n12604972.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德州“核爆级”诉讼 一举翻转4州？     >-009fcc?logoWidth=1" title="德州“核爆级”诉讼 一举翻转4州？  " alt="德州“核爆级”诉讼 一举翻转4州？  "></a></p>
-<p><a href="https://github.com/bmufir3991/ntdtv/blob/master/gb/2020/12/09/a103005488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平被“高参”出卖 曝和拜登有买卖(视频)>-009fcc?logoWidth=1" title="习近平被“高参”出卖 曝和拜登有买卖(视频)  " alt="习近平被“高参”出卖 曝和拜登有买卖(视频)  "></a></p>
 <p><a href="https://github.com/bmufir3991/ntdtv/blob/master/gb/2020/12/09/a103006109.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/曾与中共总领事打球 密歇根议员再威胁川普支持>-009fcc?logoWidth=1" title="曾与中共总领事打球 密歇根议员再威胁川普支持者  " alt="曾与中共总领事打球 密歇根议员再威胁川普支持者  "></a></p>
+<p><a href="https://github.com/bmufir3991/ntdtv/blob/master/gb/2020/12/09/a103005906.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/法律专家：德州告4州违宪诉讼明确 足以胜诉 >-009fcc?logoWidth=1" title="法律专家：德州告4州违宪诉讼明确 足以胜诉  " alt="法律专家：德州告4州违宪诉讼明确 足以胜诉  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -259,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://bmufir3991.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?qgenf">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?prxxx">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?lbaft">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?xraal">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?aclon">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ogdkx">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?xetjd">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?pevee">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -483,11 +484,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/bmufir3991/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bmufir3991/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bmufir3991/www/master/index.html?e">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bmufir3991/www/blob/master/README.md?z#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/bmufir3991/www/blob/master/README.md?k%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/p2222" title="分享本平台"></img>
-<br><a href="https://git.io/pcccc">https://git.io/pcccc</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/p2222">https://is.gd/p2222</a>
+<p><strong><a href="https://github.com/bmufir3991/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/bmufir3991/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/bmufir3991/www/master/index.html?k">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/bmufir3991/www/blob/master/README.md?u#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/bmufir3991/www/blob/master/README.md?r%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/zzzzh" title="分享本平台"></img>
+<br><a href="https://git.io/mmmmmmmm">https://git.io/mmmmmmmm</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/zzzzh">https://is.gd/zzzzh</a>
 <br>
 <br>
-<h3><a href="https://bmufir3991.github.io/vd/qr/qr2/#https://github.com/bmufir3991/www/blob/master/README.md?r#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://bmufir3991.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/p2222%22%2C%22https://is.gd/c22222%22%2C%22https://is.gd/ssssu%22%2C%22https://is.gd/c66666%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://bmufir3991.github.io/vd/qr/qr2/#https://github.com/bmufir3991/www/blob/master/README.md?j#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://bmufir3991.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/zzzzh%22%2C%22https://is.gd/xbbbb%22%2C%22https://is.gd/yytyy%22%2C%22https://is.gd/ynnnn%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
