@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/xsxobi342/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xsxobi342/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/taaaa">git.io/taaaa</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/6tttt">git.io/6tttt</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/xsxobi342/ntdtv/blob/master/gb/2020/12/10/a103006386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁中共副国级 前央视主播李修平王小丫也遭>-009fcc?logoWidth=1" title="美制裁中共副国级 前央视主播李修平王小丫也遭殃  " alt="美制裁中共副国级 前央视主播李修平王小丫也遭殃  "></a></p>
 <p><a href="https://github.com/xsxobi342/ntdtv/blob/master/gb/2020/12/10/a103006335.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/言论封杀愈演愈烈 数字极权离我们有多远？  >-009fcc?logoWidth=1" title="言论封杀愈演愈烈 数字极权离我们有多远？  " alt="言论封杀愈演愈烈 数字极权离我们有多远？  "></a></p>
 <p><a href="https://github.com/xsxobi342/ntdtv/blob/master/gb/2020/12/10/a103006251.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美驻华使馆就人权日发文 吁中国人“大胆说，站>-009fcc?logoWidth=1" title="美驻华使馆就人权日发文 吁中国人“大胆说，站出来”  " alt="美驻华使馆就人权日发文 吁中国人“大胆说，站出来”  "></a></p>
+<p><a href="https://github.com/xsxobi342/ntdtv/blob/master/gb/2020/12/10/a103006493.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/SpaceX“星舰”坠地成火球 马斯克兴奋高>-009fcc?logoWidth=1" title="SpaceX“星舰”坠地成火球 马斯克兴奋高呼(视频)  " alt="SpaceX“星舰”坠地成火球 马斯克兴奋高呼(视频)  "></a></p>
+<p><a href="https://github.com/xsxobi342/ntdtv/blob/master/gb/2020/12/10/a103006526.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“拜家子”承认正被调查 重点查与中共往来  >-009fcc?logoWidth=1" title="“拜家子”承认正被调查 重点查与中共往来  " alt="“拜家子”承认正被调查 重点查与中共往来  "></a></p>
 <p><a href="https://github.com/xsxobi342/ntdtv/blob/master/gb/2020/12/10/a103006468.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩连两日逾600例确诊 首尔重症床位剩3张 >-009fcc?logoWidth=1" title="韩连两日逾600例确诊 首尔重症床位剩3张  " alt="韩连两日逾600例确诊 首尔重症床位剩3张  "></a></p>
 <p><a href="https://github.com/xsxobi342/ntdtv/blob/master/gb/2020/12/10/a103006443.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国学者：要允许数据流通 不要什么网址都打不>-009fcc?logoWidth=1" title="中国学者：要允许数据流通 不要什么网址都打不开  " alt="中国学者：要允许数据流通 不要什么网址都打不开  "></a></p>
 <p><a href="https://github.com/xsxobi342/ntdtv/blob/master/gb/2020/12/10/a103006428.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美大选投票机背后隐藏的外国势力       >-009fcc?logoWidth=1" title="美大选投票机背后隐藏的外国势力  " alt="美大选投票机背后隐藏的外国势力  "></a></p>
-<p><a href="https://github.com/xsxobi342/ntdtv/blob/master/gb/2020/12/10/a103006429.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朱利安尼出院称年轻10岁 使用药物曝光   >-009fcc?logoWidth=1" title="朱利安尼出院称年轻10岁 使用药物曝光  " alt="朱利安尼出院称年轻10岁 使用药物曝光  "></a></p>
-<p><a href="https://github.com/xsxobi342/ntdtv/blob/master/gb/2020/12/10/a103006399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/欧洲急切等待疫苗 欧盟药品管理局遭网攻   >-009fcc?logoWidth=1" title="欧洲急切等待疫苗 欧盟药品管理局遭网攻  " alt="欧洲急切等待疫苗 欧盟药品管理局遭网攻  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xsxobi342/djy/blob/master/gb/20/12/9/n12607112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普政府制裁一名中共政协委员兼黑帮头目   >-009fcc?logoWidth=1" title="川普政府制裁一名中共政协委员兼黑帮头目  " alt="川普政府制裁一名中共政协委员兼黑帮头目  "></a></p>
 <p><a href="https://github.com/xsxobi342/djy/blob/master/gb/20/12/9/n12605623.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“高参”泄天机 惊呆美国网民     >-009fcc?logoWidth=1" title="习近平“高参”泄天机 惊呆美国网民  " alt="习近平“高参”泄天机 惊呆美国网民  "></a></p>
@@ -257,9 +257,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://xsxobi342.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?fxeib">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ultli">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?qbdhc">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?xdczw">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -303,8 +303,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?bhgsl">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?kfdja">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?nryqs">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?iaywy">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -481,11 +481,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/xsxobi342/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xsxobi342/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xsxobi342/www/master/index.html?l">高速版平台</a></strong></p>
+<p><strong><a href="https://github.com/xsxobi342/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xsxobi342/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xsxobi342/www/master/index.html?i">高速版平台</a></strong></p>
 手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xsxobi342/www/blob/master/README.md?b#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/xsxobi342/www/blob/master/README.md?z%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/dbbbbb" title="分享本平台"></img>
-<br><a href="https://git.io/taaaa">https://git.io/taaaa</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/dbbbbb">https://is.gd/dbbbbb</a>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/xsxobi342/www/blob/master/README.md?c%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/z9999" title="分享本平台"></img>
+<br><a href="https://git.io/6tttt">https://git.io/6tttt</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/z9999">https://is.gd/z9999</a>
 <br>
 <br>
-<h3><a href="https://xsxobi342.github.io/vd/qr/qr2/#https://github.com/xsxobi342/www/blob/master/README.md?u#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://xsxobi342.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/dbbbbb%22%2C%22https://is.gd/ceeeee%22%2C%22https://is.gd/rrrr6%22%2C%22https://is.gd/qnnnn%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://xsxobi342.github.io/vd/qr/qr2/#https://github.com/xsxobi342/www/blob/master/README.md?d#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://xsxobi342.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/z9999%22%2C%22https://is.gd/skkkk%22%2C%22https://is.gd/zzkzz%22%2C%22https://is.gd/tzzzz%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
