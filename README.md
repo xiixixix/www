@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/xsxobi342/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xsxobi342/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/yxxxx">git.io/yxxxx</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/pkkkk">git.io/pkkkk</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -39,15 +39,13 @@
 <p><a href="https://github.com/xsxobi342/djy/blob/master/gb/20/12/9/n12606610.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/埋伏29天 10州骑兵只差一事       >-009fcc?logoWidth=1" title="埋伏29天 10州骑兵只差一事  " alt="埋伏29天 10州骑兵只差一事  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/xsxobi342/ntdtv/blob/master/gb/2020/12/10/a103006345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/彭斯将决绝选票 油管海外清算开始 四川战时状>-009fcc?logoWidth=1" title="彭斯将决绝选票 油管海外清算开始 四川战时状态  " alt="彭斯将决绝选票 油管海外清算开始 四川战时状态  "></a></p>
-<p><a href="https://github.com/xsxobi342/ntdtv/blob/master/gb/2020/12/09/a103005937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/埋伏29天 10州奇兵 仅差一事      >-009fcc?logoWidth=1" title="埋伏29天 10州奇兵 仅差一事  " alt="埋伏29天 10州奇兵 仅差一事  "></a></p>
-<p><a href="https://github.com/xsxobi342/ntdtv/blob/master/gb/2020/12/09/a103005586.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2021年中国潜藏七大危机         >-009fcc?logoWidth=1" title="2021年中国潜藏七大危机  " alt="2021年中国潜藏七大危机  "></a></p>
-<p><a href="https://github.com/xsxobi342/ntdtv/blob/master/gb/2020/12/09/a103006042.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/12月12日华府大型游行集会        >-009fcc?logoWidth=1" title="12月12日华府大型游行集会  " alt="12月12日华府大型游行集会  "></a></p>
 <p><a href="https://github.com/xsxobi342/djy/blob/master/gb/20/12/10/n12608440.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普向最高法院交动议 加入德州诉四摇摆州  >-009fcc?logoWidth=1" title="川普向最高法院交动议 加入德州诉四摇摆州  " alt="川普向最高法院交动议 加入德州诉四摇摆州  "></a></p>
 <p><a href="https://github.com/xsxobi342/djy/blob/master/gb/20/12/4/n12594871.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：中共的“实战演习”如何造假（三）   >-009fcc?logoWidth=1" title="沈舟：中共的“实战演习”如何造假（三）  " alt="沈舟：中共的“实战演习”如何造假（三）  "></a></p>
-<p><a href="https://github.com/xsxobi342/ntdtv/blob/master/gb/2020/12/09/a103006202.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“这是大案” 川普宣布将介入德州大选诉讼  >-009fcc?logoWidth=1" title="“这是大案” 川普宣布将介入德州大选诉讼  " alt="“这是大案” 川普宣布将介入德州大选诉讼  "></a></p>
+<p><a href="https://github.com/xsxobi342/ntdtv/blob/master/gb/2020/12/09/a103005501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正或被29国制裁 情妇私生子及海外资产曝光>-009fcc?logoWidth=1" title="韩正或被29国制裁 情妇私生子及海外资产曝光  " alt="韩正或被29国制裁 情妇私生子及海外资产曝光  "></a></p>
+<p><a href="https://github.com/xsxobi342/ntdtv/blob/master/gb/2020/12/09/a103005937.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/埋伏29天 10州奇兵 仅差一事      >-009fcc?logoWidth=1" title="埋伏29天 10州奇兵 仅差一事  " alt="埋伏29天 10州奇兵 仅差一事  "></a></p>
 <p><a href="https://github.com/xsxobi342/djy/blob/master/gb/20/12/9/n12607287.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京将强拆香堂村 村民反抗         >-009fcc?logoWidth=1" title="北京将强拆香堂村 村民反抗  " alt="北京将强拆香堂村 村民反抗  "></a></p>
 <p><a href="https://github.com/xsxobi342/djy/blob/master/gb/20/12/9/n12607262.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：我们很快明白“勇气”一词 拯救美国  >-009fcc?logoWidth=1" title="川普：我们很快明白“勇气”一词 拯救美国  " alt="川普：我们很快明白“勇气”一词 拯救美国  "></a></p>
-<p><a href="https://github.com/xsxobi342/ntdtv/blob/master/gb/2020/12/09/a103005501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/韩正或被29国制裁 情妇私生子及海外资产曝光>-009fcc?logoWidth=1" title="韩正或被29国制裁 情妇私生子及海外资产曝光  " alt="韩正或被29国制裁 情妇私生子及海外资产曝光  "></a></p>
+<p><a href="https://github.com/xsxobi342/ntdtv/blob/master/gb/2020/12/09/a103006042.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/12月12日华府大型游行集会        >-009fcc?logoWidth=1" title="12月12日华府大型游行集会  " alt="12月12日华府大型游行集会  "></a></p>
 <p><a href="https://github.com/xsxobi342/ntdtv/blob/master/gb/2020/12/09/a103005509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/栗战书为何躲过一劫？大外宣罕见称“令人意外”>-009fcc?logoWidth=1" title="栗战书为何躲过一劫？大外宣罕见称“令人意外”  " alt="栗战书为何躲过一劫？大外宣罕见称“令人意外”  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -260,9 +258,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://xsxobi342.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?enrhb">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?nakio">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?siqlp">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?vnkrl">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +304,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?mucll">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?yschu">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?clkkv">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?hofzl">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -484,11 +482,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/xsxobi342/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xsxobi342/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xsxobi342/www/master/index.html?w">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xsxobi342/www/blob/master/README.md?i#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/xsxobi342/www/blob/master/README.md?u%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/qqqqg" title="分享本平台"></img>
-<br><a href="https://git.io/yxxxx">https://git.io/yxxxx</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/qqqqg">https://is.gd/qqqqg</a>
+<p><strong><a href="https://github.com/xsxobi342/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xsxobi342/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xsxobi342/www/master/index.html?y">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xsxobi342/www/blob/master/README.md?f#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/xsxobi342/www/blob/master/README.md?c%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/tttts" title="分享本平台"></img>
+<br><a href="https://git.io/pkkkk">https://git.io/pkkkk</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/tttts">https://is.gd/tttts</a>
 <br>
 <br>
-<h3><a href="https://xsxobi342.github.io/vd/qr/qr2/#https://github.com/xsxobi342/www/blob/master/README.md?j#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://xsxobi342.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/qqqqg%22%2C%22https://is.gd/tmmmm%22%2C%22https://is.gd/qqxqq%22%2C%22https://is.gd/x6666%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://xsxobi342.github.io/vd/qr/qr2/#https://github.com/xsxobi342/www/blob/master/README.md?k#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://xsxobi342.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/tttts%22%2C%22https://is.gd/ttttb%22%2C%22https://is.gd/xx6xx%22%2C%22https://is.gd/rrrrm%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
