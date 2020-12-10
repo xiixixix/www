@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/ijbtww307/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ijbtww307/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/czzzz">git.io/czzzz</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/g5555">git.io/g5555</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -35,12 +35,11 @@
 <p><a href="https://github.com/ijbtww307/djy/blob/master/gb/20/12/4/n12596574.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/6500法轮功学员开法会 李洪志大师发贺词 >-009fcc?logoWidth=1" title="6500法轮功学员开法会 李洪志大师发贺词  " alt="6500法轮功学员开法会 李洪志大师发贺词  "></a></p>
 <p><a href="https://github.com/ijbtww307/djy/blob/master/gb/20/12/9/n12605623.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平“高参”泄天机 惊呆美国网民     >-009fcc?logoWidth=1" title="习近平“高参”泄天机 惊呆美国网民  " alt="习近平“高参”泄天机 惊呆美国网民  "></a></p>
 <p><a href="https://github.com/ijbtww307/djy/blob/master/gb/20/12/10/n12610058.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情升温 黑龙江东宁、绥芬河封城      >-009fcc?logoWidth=1" title="疫情升温 黑龙江东宁、绥芬河封城  " alt="疫情升温 黑龙江东宁、绥芬河封城  "></a></p>
-<p><a href="https://github.com/ijbtww307/djy/blob/master/gb/20/12/10/n12610198.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朱利安尼出院 感觉更好           >-009fcc?logoWidth=1" title="朱利安尼出院 感觉更好  " alt="朱利安尼出院 感觉更好  "></a></p>
+<p><a href="https://github.com/ijbtww307/djy/blob/master/gb/20/12/10/n12610198.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：国家陷入严重分岐           >-009fcc?logoWidth=1" title="川普：国家陷入严重分岐  " alt="川普：国家陷入严重分岐  "></a></p>
 <p><a href="https://github.com/ijbtww307/djy/blob/master/gb/20/12/10/n12609613.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/女特务性诱美议员 牵出佩洛西        >-009fcc?logoWidth=1" title="女特务性诱美议员 牵出佩洛西  " alt="女特务性诱美议员 牵出佩洛西  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ijbtww307/ntdtv/blob/master/gb/2020/12/10/a103006567.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/翟东升踢爆核心机密 中共“老朋友”大曝光  >-009fcc?logoWidth=1" title="翟东升踢爆核心机密 中共“老朋友”大曝光  " alt="翟东升踢爆核心机密 中共“老朋友”大曝光  "></a></p>
 <p><a href="https://github.com/ijbtww307/ntdtv/blob/master/gb/2020/12/10/a103006386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美制裁中共副国级 前央视主播李修平王小丫也遭>-009fcc?logoWidth=1" title="美制裁中共副国级 前央视主播李修平王小丫也遭殃  " alt="美制裁中共副国级 前央视主播李修平王小丫也遭殃  "></a></p>
-<p><a href="https://github.com/ijbtww307/djy/blob/master/gb/20/12/10/n12610198.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：国家陷入严重分岐           >-009fcc?logoWidth=1" title="川普：国家陷入严重分岐  " alt="川普：国家陷入严重分岐  "></a></p>
 <p><a href="https://github.com/ijbtww307/ntdtv/blob/master/gb/2020/12/09/a103006244.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平再添“猪队友” 中使馆转推川普指控  >-009fcc?logoWidth=1" title="习近平再添“猪队友” 中使馆转推川普指控  " alt="习近平再添“猪队友” 中使馆转推川普指控  "></a></p>
 <p><a href="https://github.com/ijbtww307/djy/blob/master/gb/20/12/9/n12607112.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普政府制裁一名中共政协委员兼黑帮头目   >-009fcc?logoWidth=1" title="川普政府制裁一名中共政协委员兼黑帮头目  " alt="川普政府制裁一名中共政协委员兼黑帮头目  "></a></p>
 <p><a href="https://github.com/ijbtww307/djy/blob/master/gb/20/12/10/n12610218.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共报复 宣称对美相关人员对等制裁     >-009fcc?logoWidth=1" title="中共报复 宣称对美相关人员对等制裁  " alt="中共报复 宣称对美相关人员对等制裁  "></a></p>
@@ -261,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://ijbtww307.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?hsjoo">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?bfhtu">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?xnkqo">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?rleck">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?icear">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?uxzzt">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?vhkwt">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?stvrb">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,11 +484,11 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/ijbtww307/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ijbtww307/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ijbtww307/www/master/index.html?a">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ijbtww307/www/blob/master/README.md?e#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ijbtww307/www/blob/master/README.md?f%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/rr7rr" title="分享本平台"></img>
-<br><a href="https://git.io/czzzz">https://git.io/czzzz</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/rr7rr">https://is.gd/rr7rr</a>
+<p><strong><a href="https://github.com/ijbtww307/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ijbtww307/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/ijbtww307/www/master/index.html?v">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ijbtww307/www/blob/master/README.md?u#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ijbtww307/www/blob/master/README.md?k%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/mmmmi" title="分享本平台"></img>
+<br><a href="https://git.io/g5555">https://git.io/g5555</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/mmmmi">https://is.gd/mmmmi</a>
 <br>
 <br>
-<h3><a href="https://ijbtww307.github.io/vd/qr/qr2/#https://github.com/ijbtww307/www/blob/master/README.md?k#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ijbtww307.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/rr7rr%22%2C%22https://is.gd/yynyy%22%2C%22https://is.gd/xqqqq%22%2C%22https://is.gd/qqsqq%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://ijbtww307.github.io/vd/qr/qr2/#https://github.com/ijbtww307/www/blob/master/README.md?y#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ijbtww307.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/mmmmi%22%2C%22https://is.gd/ubbbb%22%2C%22https://is.gd/nnunn%22%2C%22https://is.gd/xiiii%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
