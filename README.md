@@ -9,20 +9,20 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/fipigv3526/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/fipigv3526/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/kjjjj">git.io/kjjjj</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/a5555">git.io/a5555</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/fipigv3526/ntdtv/blob/master/gb/2020/12/10/a103006811.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国疫情四起 多地进入战时状态       >-009fcc?logoWidth=1" title="中国疫情四起 多地进入战时状态  " alt="中国疫情四起 多地进入战时状态  "></a></p>
+<p><a href="https://github.com/fipigv3526/ntdtv/blob/master/gb/2020/12/10/a103006811.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国多地爆疫情/中共全球撒“美人计”    >-009fcc?logoWidth=1" title="中国多地爆疫情/中共全球撒“美人计”  " alt="中国多地爆疫情/中共全球撒“美人计”  "></a></p>
 <p><a href="https://github.com/fipigv3526/ntdtv/blob/master/gb/2020/12/12/a103008198.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国疫情四起 多地进入战时状态       >-009fcc?logoWidth=1" title="中国疫情四起 多地进入战时状态  " alt="中国疫情四起 多地进入战时状态  "></a></p>
+<p><a href="https://github.com/fipigv3526/ntdtv/blob/master/gb/2020/12/12/a103008153.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/对中南海敲山震虎？美国制裁大陆公安释信号  >-009fcc?logoWidth=1" title="对中南海敲山震虎？美国制裁大陆公安释信号  " alt="对中南海敲山震虎？美国制裁大陆公安释信号  "></a></p>
 <p><a href="https://github.com/fipigv3526/ntdtv/blob/master/gb/2020/12/12/a103008155.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/Dominion投票机果然有鬼！密歇根审计结>-009fcc?logoWidth=1" title="Dominion投票机果然有鬼！密歇根审计结果出炉  " alt="Dominion投票机果然有鬼！密歇根审计结果出炉  "></a></p>
 <p><a href="https://github.com/fipigv3526/ntdtv/blob/master/gb/2020/12/12/a103008110.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普对最高法院失望 “没有智慧，没有勇气！”>-009fcc?logoWidth=1" title="川普对最高法院失望 “没有智慧，没有勇气！”  " alt="川普对最高法院失望 “没有智慧，没有勇气！”  "></a></p>
 <p><a href="https://github.com/fipigv3526/ntdtv/blob/master/gb/2020/12/12/a103008055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普团队：我们还有时间 总统正考量其它选项 >-009fcc?logoWidth=1" title="川普团队：我们还有时间 总统正考量其它选项  " alt="川普团队：我们还有时间 总统正考量其它选项  "></a></p>
-<p><a href="https://github.com/fipigv3526/ntdtv/blob/master/gb/2020/12/12/a103007991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德州共和党紧急声明 成立守宪联盟(附中文翻译>-009fcc?logoWidth=1" title="德州共和党紧急声明 成立守宪联盟(附中文翻译)  " alt="德州共和党紧急声明 成立守宪联盟(附中文翻译)  "></a></p>
 <p><a href="https://github.com/fipigv3526/ntdtv/blob/master/gb/2020/12/12/a103007844.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/126众议员支持德州诉讼 含共和党领袖   >-009fcc?logoWidth=1" title="126众议员支持德州诉讼 含共和党领袖  " alt="126众议员支持德州诉讼 含共和党领袖  "></a></p>
 <p><a href="https://github.com/fipigv3526/ntdtv/blob/master/gb/2020/12/12/a103008209.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港前立法会议员梁颂恒赴美 寻求政治庇护  >-009fcc?logoWidth=1" title="香港前立法会议员梁颂恒赴美 寻求政治庇护  " alt="香港前立法会议员梁颂恒赴美 寻求政治庇护  "></a></p>
-<p><a href="https://github.com/fipigv3526/ntdtv/blob/master/gb/2020/12/12/a103008153.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/对中南海敲山震虎？美国制裁大陆公安释信号  >-009fcc?logoWidth=1" title="对中南海敲山震虎？美国制裁大陆公安释信号  " alt="对中南海敲山震虎？美国制裁大陆公安释信号  "></a></p>
+<p><a href="https://github.com/fipigv3526/ntdtv/blob/master/gb/2020/12/12/a103008212.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/11月份 逾两千法轮功学员遭中共绑架骚扰  >-009fcc?logoWidth=1" title="11月份 逾两千法轮功学员遭中共绑架骚扰  " alt="11月份 逾两千法轮功学员遭中共绑架骚扰  "></a></p>
 <p><a href="https://github.com/fipigv3526/ntdtv/blob/master/gb/2020/12/12/a103008147.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/3900平方公里巨大冰山 逼近“国王企鹅故乡>-009fcc?logoWidth=1" title="3900平方公里巨大冰山 逼近“国王企鹅故乡”  " alt="3900平方公里巨大冰山 逼近“国王企鹅故乡”  "></a></p>
 <p><a href="https://github.com/fipigv3526/ntdtv/blob/master/gb/2020/12/12/a103008118.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/情报专家：中共全球撒“美人计” 美国被深入渗>-009fcc?logoWidth=1" title="情报专家：中共全球撒“美人计” 美国被深入渗透  " alt="情报专家：中共全球撒“美人计” 美国被深入渗透  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -39,18 +39,18 @@
 <p><a href="https://github.com/fipigv3526/djy/blob/master/gb/20/12/11/n12614376.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红蓝对决最高院 习隐身陷困？        >-009fcc?logoWidth=1" title="红蓝对决最高院 习隐身陷困？  " alt="红蓝对决最高院 习隐身陷困？  "></a></p>
 <p><a href="https://github.com/fipigv3526/djy/blob/master/gb/20/12/12/n12614590.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最高法院驳回选举诉讼 德州总检察长回应   >-009fcc?logoWidth=1" title="最高法院驳回选举诉讼 德州总检察长回应  " alt="最高法院驳回选举诉讼 德州总检察长回应  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/fipigv3526/ntdtv/blob/master/gb/2020/12/12/a103007991.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/德州共和党紧急声明 成立守宪联盟(附中文翻译>-009fcc?logoWidth=1" title="德州共和党紧急声明 成立守宪联盟(附中文翻译)  " alt="德州共和党紧急声明 成立守宪联盟(附中文翻译)  "></a></p>
 <p><a href="https://github.com/fipigv3526/ntdtv/blob/master/gb/2020/12/12/a103008023.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/因讽毛遭央视封杀 毕福剑与女歌手对唱热传(视>-009fcc?logoWidth=1" title="因讽毛遭央视封杀 毕福剑与女歌手对唱热传(视频)  " alt="因讽毛遭央视封杀 毕福剑与女歌手对唱热传(视频)  "></a></p>
-<p><a href="https://github.com/fipigv3526/ntdtv/blob/master/gb/2020/12/12/a103007932.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/诺查丹玛斯预言美国大选舞弊 疑点名习近平和拜>-009fcc?logoWidth=1" title="诺查丹玛斯预言美国大选舞弊 疑点名习近平和拜登  " alt="诺查丹玛斯预言美国大选舞弊 疑点名习近平和拜登  "></a></p>
 <p><a href="https://github.com/fipigv3526/djy/blob/master/gb/20/12/11/n12614376.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红蓝对决最高院 习近平“隐身”陷困境？   >-009fcc?logoWidth=1" title="红蓝对决最高院 习近平“隐身”陷困境？  " alt="红蓝对决最高院 习近平“隐身”陷困境？  "></a></p>
+<p><a href="https://github.com/fipigv3526/ntdtv/blob/master/gb/2020/12/12/a103007932.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/诺查丹玛斯预言美国大选舞弊 疑点名习近平和拜>-009fcc?logoWidth=1" title="诺查丹玛斯预言美国大选舞弊 疑点名习近平和拜登  " alt="诺查丹玛斯预言美国大选舞弊 疑点名习近平和拜登  "></a></p>
 <p><a href="https://github.com/fipigv3526/ntdtv/blob/master/gb/2020/12/12/a103007965.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/罕见一幕！大鸟生吞水中鳄鱼 惊呆摄影师(视频>-009fcc?logoWidth=1" title="罕见一幕！大鸟生吞水中鳄鱼 惊呆摄影师(视频)  " alt="罕见一幕！大鸟生吞水中鳄鱼 惊呆摄影师(视频)  "></a></p>
 <p><a href="https://github.com/fipigv3526/djy/blob/master/gb/20/10/14/n12476082.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/导弹专家：中共目标取代美国         >-009fcc?logoWidth=1" title="导弹专家：中共目标取代美国  " alt="导弹专家：中共目标取代美国  "></a></p>
 <p><a href="https://github.com/fipigv3526/djy/blob/master/gb/20/12/11/n12614378.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世界人权日 逾千人强拆香堂村 蔡奇被批黑习 >-009fcc?logoWidth=1" title="世界人权日 逾千人强拆香堂村 蔡奇被批黑习  " alt="世界人权日 逾千人强拆香堂村 蔡奇被批黑习  "></a></p>
 <p><a href="https://github.com/fipigv3526/ntdtv/blob/master/gb/2020/12/12/a103008114.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/黄天辰：《魔戒》在美国大选中重新演绎？   >-009fcc?logoWidth=1" title="黄天辰：《魔戒》在美国大选中重新演绎？  " alt="黄天辰：《魔戒》在美国大选中重新演绎？  "></a></p>
-<p><a href="https://github.com/fipigv3526/ntdtv/blob/master/gb/2020/12/12/a103007922.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/翻版王沪宁？揭习近平国师与江泽民隐秘关系  >-009fcc?logoWidth=1" title="翻版王沪宁？揭习近平国师与江泽民隐秘关系  " alt="翻版王沪宁？揭习近平国师与江泽民隐秘关系  "></a></p>
 <p><a href="https://github.com/fipigv3526/djy/blob/master/gb/20/12/11/n12614357.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：毛泽东夸奖的“大作家”被关秦城监狱7>-009fcc?logoWidth=1" title="王友群：毛泽东夸奖的“大作家”被关秦城监狱7年  " alt="王友群：毛泽东夸奖的“大作家”被关秦城监狱7年  "></a></p>
 <p><a href="https://github.com/fipigv3526/djy/blob/master/gb/20/12/12/n12615033.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：最高法院无智无勇           >-009fcc?logoWidth=1" title="川普：最高法院无智无勇  " alt="川普：最高法院无智无勇  "></a></p>
+<p><a href="https://github.com/fipigv3526/ntdtv/blob/master/gb/2020/12/12/a103007922.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/翻版王沪宁？揭习近平国师与江泽民隐秘关系  >-009fcc?logoWidth=1" title="翻版王沪宁？揭习近平国师与江泽民隐秘关系  " alt="翻版王沪宁？揭习近平国师与江泽民隐秘关系  "></a></p>
 <p><a href="https://github.com/fipigv3526/ntdtv/blob/master/gb/2020/12/11/a103007767.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/亚利桑那选举案提交最高法：“我们找到了证据”>-009fcc?logoWidth=1" title="亚利桑那选举案提交最高法：“我们找到了证据”  " alt="亚利桑那选举案提交最高法：“我们找到了证据”  "></a></p>
-<p><a href="https://github.com/fipigv3526/ntdtv/blob/master/gb/2020/12/12/a103008006.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/朱利安尼斥最高法院：他们不想让人民听到真相 >-009fcc?logoWidth=1" title="朱利安尼斥最高法院：他们不想让人民听到真相  " alt="朱利安尼斥最高法院：他们不想让人民听到真相  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -262,9 +262,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://fipigv3526.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?wtxki">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?qvmlj">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?vagob">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?uveyk">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -308,8 +308,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?qdnfc">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?hfjwt">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?kfief">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?tkjel">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -417,12 +417,12 @@
 <p><strong>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年的腥风血雨，二十多年的凌辱折磨，岁月飞逝，历史见证，迫害善良原本就是违背道义不得民心的...</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;99年中共因法轮功修炼人数超过党员而疯狂镇压，不惜制造一个个谎言，导演天安门自焚案栽赃法轮功，对坚持信仰的学员绑架抄家，用尽酷刑，导致数以百万计的家破人亡、妻离子散！然而中共高估了自己的造假宣传。各国政府纷纷谴责中共暴行，高度肯定法轮功提升道德、净化心灵、强身健体的卓越成效。在国内，声援法轮功的事件此起彼伏。成千上万人为被非法抓捕的学员请愿，演绎了不畏强权反迫害的一幕又一幕。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年过去了。如今法轮功“真善忍”普世价值观，超越民族文化，洪传世界一百多个国家，仅台湾就有八十万人修炼，其主要著作被译成四十多种文字，举世赞誉！而中共江泽民却因罪恶迫害，在海内外被数百万人联署举报，被二十多万人实名起诉。在这场对善良打压中，中共把法制、道德伦理都推向崩溃边缘。民心丧尽、天怒人怨!人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="http://111.255.84.14/UmhjM" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="http://114.36.53.227/UmhjM" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
 </details>
 
 <div align="center">
 <img src="https://raw.githubusercontent.com/fipigv3526/www/master/t/01.jpg">
-<h1><strong><a href="http://111.255.84.14/UmhjM" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
+<h1><strong><a href="http://114.36.53.227/UmhjM" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/fipigv3526/www/master/t/03.jpg"><br>
@@ -482,15 +482,15 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;于中共无所不在的欺骗洗脑与暴力胁迫下，有多少人放弃了诚实宽厚、仁爱谦和的道德底线，变得见风使舵、落井下石，甚至为一己之私而无恶不作。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;稍微盘点中共的罪恶，让人感到心情无比的沉重。了解了中共，才明白什么叫做罪恶滔天，罄竹难书。</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="http://111.255.84.14/UmhjM" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="http://114.36.53.227/UmhjM" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/fipigv3526/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fipigv3526/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fipigv3526/www/master/index.html?h">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fipigv3526/www/blob/master/README.md?u#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/fipigv3526/www/blob/master/README.md?k%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/zpppp" title="分享本平台"></img>
-<br><a href="https://git.io/kjjjj">https://git.io/kjjjj</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/zpppp">https://is.gd/zpppp</a>
+<p><strong><a href="https://github.com/fipigv3526/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/fipigv3526/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/fipigv3526/www/master/index.html?n">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/fipigv3526/www/blob/master/README.md?s#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/fipigv3526/www/blob/master/README.md?h%231" title="分享本平台"></img>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ujjjj" title="分享本平台"></img>
+<br><a href="https://git.io/a5555">https://git.io/a5555</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/ujjjj">https://is.gd/ujjjj</a>
 <br>
 <br>
-<h3><a href="https://fipigv3526.github.io/vd/qr/qr2/#https://github.com/fipigv3526/www/blob/master/README.md?h#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fipigv3526.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/zpppp%22%2C%22https://is.gd/qssss%22%2C%22https://is.gd/zznzz%22%2C%22https://is.gd/thhhh%22%5D" target="_blank">一次制作多个二维码</a></h3>
+<h3><a href="https://fipigv3526.github.io/vd/qr/qr2/#https://github.com/fipigv3526/www/blob/master/README.md?w#1" target="_blank">二维码的美化和LOGO</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://fipigv3526.github.io/vd/qr/qr1/?qrs=%5B%22https://is.gd/ujjjj%22%2C%22https://is.gd/nuuuu%22%2C%22https://is.gd/zzezz%22%2C%22https://is.gd/tmmmm%22%5D" target="_blank">一次制作多个二维码</a></h3>
 </div>
