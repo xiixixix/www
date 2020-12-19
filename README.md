@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/mpfgih381/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/mpfgih381/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/eeee8">git.io/eeee8</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/ccccg">git.io/ccccg</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/mpfgih381/ntdtv/blob/master/gb/2020/12/19/a103013614.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李克强心里没底？明年八大任务透实情     >-009fcc?logoWidth=1" title="李克强心里没底？明年八大任务透实情  " alt="李克强心里没底？明年八大任务透实情  "></a></p>
 <p><a href="https://github.com/mpfgih381/ntdtv/blob/master/gb/2020/12/19/a103013585.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/战狼外长放软话 吁美别打贸易战：谁也离不开谁>-009fcc?logoWidth=1" title="战狼外长放软话 吁美别打贸易战：谁也离不开谁  " alt="战狼外长放软话 吁美别打贸易战：谁也离不开谁  "></a></p>
 <p><a href="https://github.com/mpfgih381/ntdtv/blob/master/gb/2020/12/19/a103013522.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国疫苗不保险 孙春兰北京视察说漏嘴    >-009fcc?logoWidth=1" title="中国疫苗不保险 孙春兰北京视察说漏嘴  " alt="中国疫苗不保险 孙春兰北京视察说漏嘴  "></a></p>
+<p><a href="https://github.com/mpfgih381/ntdtv/blob/master/gb/2020/12/19/a103013869.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普宣布1月6日华府抗议游行：会声势浩大  >-009fcc?logoWidth=1" title="川普宣布1月6日华府抗议游行：会声势浩大  " alt="川普宣布1月6日华府抗议游行：会声势浩大  "></a></p>
 <p><a href="https://github.com/mpfgih381/ntdtv/blob/master/gb/2020/12/19/a103013854.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/科州将2枪击死者列入染疫死亡 官称遵守CDC>-009fcc?logoWidth=1" title="科州将2枪击死者列入染疫死亡 官称遵守CDC规定  " alt="科州将2枪击死者列入染疫死亡 官称遵守CDC规定  "></a></p>
 <p><a href="https://github.com/mpfgih381/ntdtv/blob/master/gb/2020/12/19/a103013834.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/Dominion向鲍威尔律师发出恐吓信   >-009fcc?logoWidth=1" title="Dominion向鲍威尔律师发出恐吓信  " alt="Dominion向鲍威尔律师发出恐吓信  "></a></p>
 <p><a href="https://github.com/mpfgih381/ntdtv/blob/master/gb/2020/12/19/a103013840.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/密歇根审计视频曝光：官员强令计入签名相同选票>-009fcc?logoWidth=1" title="密歇根审计视频曝光：官员强令计入签名相同选票  " alt="密歇根审计视频曝光：官员强令计入签名相同选票  "></a></p>
 <p><a href="https://github.com/mpfgih381/ntdtv/blob/master/gb/2020/12/19/a103013792.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美商务部黑名单 大疆科技等77家公司上榜  >-009fcc?logoWidth=1" title="美商务部黑名单 大疆科技等77家公司上榜  " alt="美商务部黑名单 大疆科技等77家公司上榜  "></a></p>
-<p><a href="https://github.com/mpfgih381/ntdtv/blob/master/gb/2020/12/19/a103013773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台湾大纪元挺川灭共大游行 台各界人士响应  >-009fcc?logoWidth=1" title="台湾大纪元挺川灭共大游行 台各界人士响应  " alt="台湾大纪元挺川灭共大游行 台各界人士响应  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/mpfgih381/djy/blob/master/gb/20/12/18/n12630320.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/巨兽握免死牌？川普誓反击          >-009fcc?logoWidth=1" title="巨兽握免死牌？川普誓反击  " alt="巨兽握免死牌？川普誓反击  "></a></p>
 <p><a href="https://github.com/mpfgih381/djy/blob/master/gb/20/12/18/n12630729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：习近平授军衔为何没有笑容？      >-009fcc?logoWidth=1" title="杨威：习近平授军衔为何没有笑容？  " alt="杨威：习近平授军衔为何没有笑容？  "></a></p>
@@ -258,9 +258,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://mpfgih381.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?jfohd">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?xspak">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?tdtgr">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?qyrpa">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -304,8 +304,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?xtxun">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?kclcq">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?rmrxd">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ugagq">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -482,13 +482,13 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/mpfgih381/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mpfgih381/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mpfgih381/www/master/index.html?n">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mpfgih381/www/blob/master/README.md?w#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/mpfgih381/www/blob/master/README.md?s%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/prrrr" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=http://t.cn/A6Zrt0wM" title="分享本平台"></img>
+<p><strong><a href="https://github.com/mpfgih381/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/mpfgih381/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/mpfgih381/www/master/index.html?z">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/mpfgih381/www/blob/master/README.md?q#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/mpfgih381/www/blob/master/README.md?f%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/fttttt" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=http://t.cn/A6ZA5QE3" title="分享本平台"></img>
 <br>
-<a href="https://git.io/eeee8">https://git.io/eeee8</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/prrrr">https://is.gd/prrrr</a>
-&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/6666u">https://j.mp/6666u</a>
+<a href="https://git.io/ccccg">https://git.io/ccccg</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/fttttt">https://is.gd/fttttt</a>
+&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/eexxx">https://j.mp/eexxx</a>
 <br>
 <br>
-<h3><a href="https://mpfgih381.github.io/vd/qr/qr2/#https://github.com/mpfgih381/www/blob/master/README.md?s#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://mpfgih381.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/aqyb2699/www/blob/master/README.md%3Fo%231%22%2C%22https://github.com/s2510/www/blob/master/README.md%3Ft%231%22%2C%22https://github.com/qnbcdo211/www/blob/master/README.md%3Fc%231%22%2C%22https://github.com/uzotts3669/www/blob/master/README.md%3Fm%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://mpfgih381.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
+<h3><a href="https://mpfgih381.github.io/vd/qr/qr2/#https://github.com/mpfgih381/www/blob/master/README.md?q#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://mpfgih381.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/ntotyi319/www/blob/master/README.md%3Fs%231%22%2C%22https://github.com/srvjih3150/www/blob/master/README.md%3Fk%231%22%2C%22https://github.com/yczicz3648/www/blob/master/README.md%3Fh%231%22%2C%22https://github.com/smuogk2288/www/blob/master/README.md%3Ff%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://mpfgih381.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
 </div>
