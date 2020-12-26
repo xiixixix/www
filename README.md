@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/xezdat3620/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/xezdat3620/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/aaaae">git.io/aaaae</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/bbbbg">git.io/bbbbg</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -26,30 +26,31 @@
 <p><a href="https://github.com/xezdat3620/ntdtv/blob/master/gb/2020/12/25/a103017822.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/圣诞节礼物：圣诞树上发现野生考拉 独特的圣诞>-009fcc?logoWidth=1" title="圣诞节礼物：圣诞树上发现野生考拉 独特的圣诞歌  " alt="圣诞节礼物：圣诞树上发现野生考拉 独特的圣诞歌  "></a></p>
 <p><a href="https://github.com/xezdat3620/ntdtv/blob/master/gb/2020/12/25/a103017819.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美智商最高者抨大选舞弊 呼吁举行二次选举  >-009fcc?logoWidth=1" title="美智商最高者抨大选舞弊 呼吁举行二次选举  " alt="美智商最高者抨大选舞弊 呼吁举行二次选举  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/25/n12645600.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共政治局承认危难如“泰山压顶”   >-009fcc?logoWidth=1" title="钟原：中共政治局承认危难如“泰山压顶”  " alt="钟原：中共政治局承认危难如“泰山压顶”  "></a></p>
+<p><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/25/n12644900.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/马云遭到中共整肃 专家分析这些原因     >-009fcc?logoWidth=1" title="马云遭到中共整肃 专家分析这些原因  " alt="马云遭到中共整肃 专家分析这些原因  "></a></p>
+<p><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/25/n12645399.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平开民主生活会 政治局人人过关     >-009fcc?logoWidth=1" title="习近平开民主生活会 政治局人人过关  " alt="习近平开民主生活会 政治局人人过关  "></a></p>
+<p><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/25/n12645448.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/昆明爆疫情 确诊者活动轨迹未公布 民恐慌  >-009fcc?logoWidth=1" title="昆明爆疫情 确诊者活动轨迹未公布 民恐慌  " alt="昆明爆疫情 确诊者活动轨迹未公布 民恐慌  "></a></p>
+<p><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/25/n12645484.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阿里巴巴被查 浙江书记称反垄断 马云悬了？ >-009fcc?logoWidth=1" title="阿里巴巴被查 浙江书记称反垄断 马云悬了？  " alt="阿里巴巴被查 浙江书记称反垄断 马云悬了？  "></a></p>
+<p><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/25/n12645599.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京疫情扩散 公布防控20条 离京须审批  >-009fcc?logoWidth=1" title="北京疫情扩散 公布防控20条 离京须审批  " alt="北京疫情扩散 公布防控20条 离京须审批  "></a></p>
 <p><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/24/n12643675.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：2020年北京高层的七大昏招     >-009fcc?logoWidth=1" title="钟原：2020年北京高层的七大昏招  " alt="钟原：2020年北京高层的七大昏招  "></a></p>
-<p><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/24/n12643080.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登赞川普 乔州议员将否本州票       >-009fcc?logoWidth=1" title="拜登赞川普 乔州议员将否本州票  " alt="拜登赞川普 乔州议员将否本州票  "></a></p>
-<p><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/24/n12643687.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平反垄断 马云成第一标靶？       >-009fcc?logoWidth=1" title="习近平反垄断 马云成第一标靶？  " alt="习近平反垄断 马云成第一标靶？  "></a></p>
-<p><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/24/n12643179.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国连环出招制裁中共 手中有大把“牌”   >-009fcc?logoWidth=1" title="美国连环出招制裁中共 手中有大把“牌”  " alt="美国连环出招制裁中共 手中有大把“牌”  "></a></p>
-<p><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/25/n12643886.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/100名中共“小粉红”集体办“三退”    >-009fcc?logoWidth=1" title="100名中共“小粉红”集体办“三退”  " alt="100名中共“小粉红”集体办“三退”  "></a></p>
-<p><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/24/n12643078.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/一颗超级陨石坠入青海 中国会出大事吗？   >-009fcc?logoWidth=1" title="一颗超级陨石坠入青海 中国会出大事吗？  " alt="一颗超级陨石坠入青海 中国会出大事吗？  "></a></p>
-<p><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/24/n12643505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/马云遇麻烦 中国科技巨头能走多远？     >-009fcc?logoWidth=1" title="马云遇麻烦 中国科技巨头能走多远？  " alt="马云遇麻烦 中国科技巨头能走多远？  "></a></p>
 <p><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/20/n12632837.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国防密件曝中共“精确制导”项目       >-009fcc?logoWidth=1" title="国防密件曝中共“精确制导”项目  " alt="国防密件曝中共“精确制导”项目  "></a></p>
 <p><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/25/n12643759.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被割韭菜？茅台集团无偿转让股份予贵州当局  >-009fcc?logoWidth=1" title="被割韭菜？茅台集团无偿转让股份予贵州当局  " alt="被割韭菜？茅台集团无偿转让股份予贵州当局  "></a></p>
-<p><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/24/n12641451.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约法轮功学员恭贺师尊 愿世人牢记大法好  >-009fcc?logoWidth=1" title="纽约法轮功学员恭贺师尊 愿世人牢记大法好  " alt="纽约法轮功学员恭贺师尊 愿世人牢记大法好  "></a></p>
-<p><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/25/n12643870.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020年中共祭出几大阴招         >-009fcc?logoWidth=1" title="2020年中共祭出几大阴招  " alt="2020年中共祭出几大阴招  "></a></p>
-<p><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/24/n12641954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“国防七子”全部被美列入制裁清单    >-009fcc?logoWidth=1" title="中共“国防七子”全部被美列入制裁清单  " alt="中共“国防七子”全部被美列入制裁清单  "></a></p>
+<p><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/25/n12645439.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/天降陨石后 青海夜空又现奇特“粉红光”   >-009fcc?logoWidth=1" title="天降陨石后 青海夜空又现奇特“粉红光”  " alt="天降陨石后 青海夜空又现奇特“粉红光”  "></a></p>
+<p><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/25/n12645030.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/遭投毒的游族董事长林奇抢救无效去世     >-009fcc?logoWidth=1" title="遭投毒的游族董事长林奇抢救无效去世  " alt="遭投毒的游族董事长林奇抢救无效去世  "></a></p>
+<p><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/25/n12644637.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈阳两地疫情升级 大连5街道居民禁出家门  >-009fcc?logoWidth=1" title="沈阳两地疫情升级 大连5街道居民禁出家门  " alt="沈阳两地疫情升级 大连5街道居民禁出家门  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/24/n12641451.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约法轮功学员恭贺师尊 愿世人牢记大法好  >-009fcc?logoWidth=1" title="纽约法轮功学员恭贺师尊 愿世人牢记大法好  " alt="纽约法轮功学员恭贺师尊 愿世人牢记大法好  "></a></p>
 <p><a href="https://github.com/xezdat3620/ntdtv/blob/master/gb/2020/12/25/a103017852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普怒轰部分共和党参议员忘恩负义：永不会忘记>-009fcc?logoWidth=1" title="川普怒轰部分共和党参议员忘恩负义：永不会忘记  " alt="川普怒轰部分共和党参议员忘恩负义：永不会忘记  "></a></p>
 <p><a href="https://github.com/xezdat3620/ntdtv/blob/master/gb/2020/12/25/a103018009.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/司法部高官认为 有必要指定特别检察官调查亨特>-009fcc?logoWidth=1" title="司法部高官认为 有必要指定特别检察官调查亨特  " alt="司法部高官认为 有必要指定特别检察官调查亨特  "></a></p>
+<p><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/25/n12643870.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2020年中共祭出几大阴招         >-009fcc?logoWidth=1" title="2020年中共祭出几大阴招  " alt="2020年中共祭出几大阴招  "></a></p>
+<p><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/24/n12641954.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共“国防七子”全部被美列入制裁清单    >-009fcc?logoWidth=1" title="中共“国防七子”全部被美列入制裁清单  " alt="中共“国防七子”全部被美列入制裁清单  "></a></p>
 <p><a href="https://github.com/xezdat3620/ntdtv/blob/master/gb/2020/12/25/a103017911.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/当选众议员博伯特将加入挑战选举人团行列   >-009fcc?logoWidth=1" title="当选众议员博伯特将加入挑战选举人团行列  " alt="当选众议员博伯特将加入挑战选举人团行列  "></a></p>
 <p><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/25/n12644631.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共监控无孔不入 藉疫情吞噬民众隐私自由  >-009fcc?logoWidth=1" title="中共监控无孔不入 藉疫情吞噬民众隐私自由  " alt="中共监控无孔不入 藉疫情吞噬民众隐私自由  "></a></p>
 <p><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/25/n12644727.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登公平当选？ 民调显示两党选民意见分裂  >-009fcc?logoWidth=1" title="拜登公平当选？ 民调显示两党选民意见分裂  " alt="拜登公平当选？ 民调显示两党选民意见分裂  "></a></p>
-<p><a href="https://github.com/xezdat3620/ntdtv/blob/master/gb/2020/12/24/a103017356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普转发“彭斯牌” 副总统未见行动     >-009fcc?logoWidth=1" title="川普转发“彭斯牌” 副总统未见行动  " alt="川普转发“彭斯牌” 副总统未见行动  "></a></p>
-<p><a href="https://github.com/xezdat3620/ntdtv/blob/master/gb/2020/12/25/a103017622.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大连疫情加重 封锁区传出喊叫声：我要吃饭！ >-009fcc?logoWidth=1" title="大连疫情加重 封锁区传出喊叫声：我要吃饭！  " alt="大连疫情加重 封锁区传出喊叫声：我要吃饭！  "></a></p>
+<p><a href="https://github.com/xezdat3620/ntdtv/blob/master/gb/2020/12/25/a103017771.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/谢田：谁深更半夜下了停止计票令？      >-009fcc?logoWidth=1" title="谢田：谁深更半夜下了停止计票令？  " alt="谢田：谁深更半夜下了停止计票令？  "></a></p>
 <p><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/25/n12644666.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“疫苗是川普最大成就”           >-009fcc?logoWidth=1" title="“疫苗是川普最大成就”  " alt="“疫苗是川普最大成就”  "></a></p>
 <p><a href="https://github.com/xezdat3620/djy/blob/master/gb/20/12/25/n12643890.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/研究发现：地球上物种存在周期性大灭绝    >-009fcc?logoWidth=1" title="研究发现：地球上物种存在周期性大灭绝  " alt="研究发现：地球上物种存在周期性大灭绝  "></a></p>
-<p><a href="https://github.com/xezdat3620/ntdtv/blob/master/gb/2020/12/25/a103017655.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情再起与印度男孩预言           >-009fcc?logoWidth=1" title="疫情再起与印度男孩预言  " alt="疫情再起与印度男孩预言  "></a></p>
-<p><a href="https://github.com/xezdat3620/ntdtv/blob/master/gb/2020/12/25/a103017517.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/阿里被查，股市暴跌，马云到底得罪了谁？   >-009fcc?logoWidth=1" title="阿里被查，股市暴跌，马云到底得罪了谁？  " alt="阿里被查，股市暴跌，马云到底得罪了谁？  "></a></p>
+<p><a href="https://github.com/xezdat3620/ntdtv/blob/master/gb/2020/12/24/a103017356.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普转发“彭斯牌” 副总统未见行动     >-009fcc?logoWidth=1" title="川普转发“彭斯牌” 副总统未见行动  " alt="川普转发“彭斯牌” 副总统未见行动  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -261,9 +262,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://xezdat3620.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?stkfx">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?sapto">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?aezsc">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?puagc">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +308,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?wrzmq">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?qckbi">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?woeuo">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?voxyj">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -416,12 +417,12 @@
 <p><strong>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年的腥风血雨，二十多年的凌辱折磨，岁月飞逝，历史见证，迫害善良原本就是违背道义不得民心的...</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;99年中共因法轮功修炼人数超过党员而疯狂镇压，不惜制造一个个谎言，导演天安门自焚案栽赃法轮功，对坚持信仰的学员绑架抄家，用尽酷刑，导致数以百万计的家破人亡、妻离子散！然而中共高估了自己的造假宣传。各国政府纷纷谴责中共暴行，高度肯定法轮功提升道德、净化心灵、强身健体的卓越成效。在国内，声援法轮功的事件此起彼伏。成千上万人为被非法抓捕的学员请愿，演绎了不畏强权反迫害的一幕又一幕。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年过去了。如今法轮功“真善忍”普世价值观，超越民族文化，洪传世界一百多个国家，仅台湾就有八十万人修炼，其主要著作被译成四十多种文字，举世赞誉！而中共江泽民却因罪恶迫害，在海内外被数百万人联署举报，被二十多万人实名起诉。在这场对善良打压中，中共把法制、道德伦理都推向崩溃边缘。民心丧尽、天怒人怨!人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="http://114.36.200.123/UmhjM" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="http://1.160.50.42/UmhjM" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
 </details>
 
 <div align="center">
 <img src="https://raw.githubusercontent.com/xezdat3620/www/master/t/01.jpg">
-<h1><strong><a href="http://114.36.200.123/UmhjM" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
+<h1><strong><a href="http://1.160.50.42/UmhjM" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/xezdat3620/www/master/t/03.jpg"><br>
@@ -481,17 +482,17 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;于中共无所不在的欺骗洗脑与暴力胁迫下，有多少人放弃了诚实宽厚、仁爱谦和的道德底线，变得见风使舵、落井下石，甚至为一己之私而无恶不作。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;稍微盘点中共的罪恶，让人感到心情无比的沉重。了解了中共，才明白什么叫做罪恶滔天，罄竹难书。</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="http://114.36.200.123/UmhjM" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="http://1.160.50.42/UmhjM" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/xezdat3620/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xezdat3620/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xezdat3620/www/master/index.html?f">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xezdat3620/www/blob/master/README.md?o#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/xezdat3620/www/blob/master/README.md?w%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/ptttt" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=http://t.cn/A6wqTh8f" title="分享本平台"></img>
+<p><strong><a href="https://github.com/xezdat3620/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/xezdat3620/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/xezdat3620/www/master/index.html?k">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/xezdat3620/www/blob/master/README.md?u#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/xezdat3620/www/blob/master/README.md?b%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/uuyuu" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=http://t.cn/A6wMmGF8" title="分享本平台"></img>
 <br>
-<a href="https://git.io/aaaae">https://git.io/aaaae</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/ptttt">https://is.gd/ptttt</a>
-&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/uuu66">https://j.mp/uuu66</a>
+<a href="https://git.io/bbbbg">https://git.io/bbbbg</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/uuyuu">https://is.gd/uuyuu</a>
+&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/vsssv">https://j.mp/vsssv</a>
 <br>
 <br>
-<h3><a href="https://xezdat3620.github.io/vd/qr/qr2/#https://github.com/xezdat3620/www/blob/master/README.md?h#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://xezdat3620.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/mnotnz391/www/blob/master/README.md%3Fp%231%22%2C%22https://github.com/oaxdni3756/www/blob/master/README.md%3Ff%231%22%2C%22https://github.com/fuxdbg372/www/blob/master/README.md%3Ff%231%22%2C%22https://github.com/mvcdye373/www/blob/master/README.md%3Fp%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://xezdat3620.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
+<h3><a href="https://xezdat3620.github.io/vd/qr/qr2/#https://github.com/xezdat3620/www/blob/master/README.md?p#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://xezdat3620.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/rtfffs393/www/blob/master/README.md%3Fd%231%22%2C%22https://github.com/bdifeb3223/www/blob/master/README.md%3Fc%231%22%2C%22https://github.com/rtnvmb3322/www/blob/master/README.md%3Fn%231%22%2C%22https://github.com/senemh3705/www/blob/master/README.md%3Fa%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://xezdat3620.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
 </div>
