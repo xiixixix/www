@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/nlrebu313/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nlrebu313/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/xgggg">git.io/xgggg</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/a3333">git.io/a3333</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -22,7 +22,7 @@
 <p><a href="https://github.com/nlrebu313/ntdtv/blob/master/gb/2020/12/27/a103018729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英预言家预测2021年 川普占4条 中国爆发>-009fcc?logoWidth=1" title="英预言家预测2021年 川普占4条 中国爆发新病毒  " alt="英预言家预测2021年 川普占4条 中国爆发新病毒  "></a></p>
 <p><a href="https://github.com/nlrebu313/ntdtv/blob/master/gb/2020/12/27/a103018998.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/密歇根州欲制裁状告大选舞弊的律师 川普回应 >-009fcc?logoWidth=1" title="密歇根州欲制裁状告大选舞弊的律师 川普回应  " alt="密歇根州欲制裁状告大选舞弊的律师 川普回应  "></a></p>
 <p><a href="https://github.com/nlrebu313/ntdtv/blob/master/gb/2020/12/27/a103018982.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大火球坠落夜中国惊现奇异红光 网友热议（视频>-009fcc?logoWidth=1" title="大火球坠落夜中国惊现奇异红光 网友热议（视频）  " alt="大火球坠落夜中国惊现奇异红光 网友热议（视频）  "></a></p>
-<p><a href="https://github.com/nlrebu313/ntdtv/blob/master/gb/2020/12/27/a103018969.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳什维尔爆炸案嫌犯身份曝光 警方不排除所有动>-009fcc?logoWidth=1" title="纳什维尔爆炸案嫌犯身份曝光 警方不排除所有动机  " alt="纳什维尔爆炸案嫌犯身份曝光 警方不排除所有动机  "></a></p>
+<p><a href="https://github.com/nlrebu313/ntdtv/blob/master/gb/2020/12/27/a103018969.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳什维尔爆炸案嫌犯身份曝光 警方不排除任何动>-009fcc?logoWidth=1" title="纳什维尔爆炸案嫌犯身份曝光 警方不排除任何动机  " alt="纳什维尔爆炸案嫌犯身份曝光 警方不排除任何动机  "></a></p>
 <p><a href="https://github.com/nlrebu313/ntdtv/blob/master/gb/2020/12/27/a103018962.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普总统敦促参院共和党与大选舞弊作战    >-009fcc?logoWidth=1" title="川普总统敦促参院共和党与大选舞弊作战  " alt="川普总统敦促参院共和党与大选舞弊作战  "></a></p>
 <p><a href="https://github.com/nlrebu313/ntdtv/blob/master/gb/2020/12/27/a103018950.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纳什维尔爆炸案搜证 警方锁定一嫌疑人    >-009fcc?logoWidth=1" title="纳什维尔爆炸案搜证 警方锁定一嫌疑人  " alt="纳什维尔爆炸案搜证 警方锁定一嫌疑人  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://nlrebu313.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?qvgss">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?bkofk">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?haeum">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?bwfjm">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?xwown">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?irpne">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?xahql">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?machz">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -484,13 +484,13 @@
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/nlrebu313/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nlrebu313/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nlrebu313/www/master/index.html?p">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nlrebu313/www/blob/master/README.md?z#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/nlrebu313/www/blob/master/README.md?y%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/mmmmg" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=http://t.cn/A6zIpBQY" title="分享本平台"></img>
+<p><strong><a href="https://github.com/nlrebu313/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nlrebu313/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/nlrebu313/www/master/index.html?z">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nlrebu313/www/blob/master/README.md?t#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/nlrebu313/www/blob/master/README.md?d%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://is.gd/siiii" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=http://t.cn/A6zk6ymd" title="分享本平台"></img>
 <br>
-<a href="https://git.io/xgggg">https://git.io/xgggg</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/mmmmg">https://is.gd/mmmmg</a>
-&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/33nnn">https://j.mp/33nnn</a>
+<a href="https://git.io/a3333">https://git.io/a3333</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/siiii">https://is.gd/siiii</a>
+&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/zzzjj">https://j.mp/zzzjj</a>
 <br>
 <br>
-<h3><a href="https://nlrebu313.github.io/vd/qr/qr2/#https://github.com/nlrebu313/www/blob/master/README.md?k#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://nlrebu313.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/dexbaq286/www/blob/master/README.md%3Fd%231%22%2C%22https://github.com/ckxqtl2577/www/blob/master/README.md%3Fl%231%22%2C%22https://github.com/tjvrql262/www/blob/master/README.md%3Fe%231%22%2C%22https://github.com/yupkxx301/www/blob/master/README.md%3Fk%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://nlrebu313.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
+<h3><a href="https://nlrebu313.github.io/vd/qr/qr2/#https://github.com/nlrebu313/www/blob/master/README.md?s#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://nlrebu313.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/eqlzxz356/www/blob/master/README.md%3Fa%231%22%2C%22https://github.com/hwupgb3287/www/blob/master/README.md%3Fa%231%22%2C%22https://github.com/gzkqgf331/www/blob/master/README.md%3Fc%231%22%2C%22https://github.com/uaq264/www/blob/master/README.md%3Fj%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://nlrebu313.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
 </div>
