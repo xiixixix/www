@@ -9,22 +9,21 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/dahstt3965/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dahstt3965/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/uzzzz">git.io/uzzzz</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/q2222">git.io/q2222</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/dahstt3965/ntdtv/blob/master/gb/2021/01/06/a103026284.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国会冲突一女子疑被警枪重伤 川普启动国民警卫>-009fcc?logoWidth=1" title="国会冲突一女子疑被警枪重伤 川普启动国民警卫队  " alt="国会冲突一女子疑被警枪重伤 川普启动国民警卫队  "></a></p>
+<p><a href="https://github.com/dahstt3965/ntdtv/blob/master/gb/2021/01/06/a103026258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/示威者冲入国会致大选认证中断 川普呼吁保持和>-009fcc?logoWidth=1" title="示威者冲入国会致大选认证中断 川普呼吁保持和平  " alt="示威者冲入国会致大选认证中断 川普呼吁保持和平  "></a></p>
+<p><a href="https://github.com/dahstt3965/ntdtv/blob/master/gb/2021/01/06/a103026232.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/彭斯国会认证前声明无权拒选举人票 川普:没勇>-009fcc?logoWidth=1" title="彭斯国会认证前声明无权拒选举人票 川普:没勇气  " alt="彭斯国会认证前声明无权拒选举人票 川普:没勇气  "></a></p>
 <p><a href="https://github.com/dahstt3965/ntdtv/blob/master/gb/2021/01/06/a103025847.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/马云将囚10年以上%3F/星象师预测更大灾难  >-009fcc?logoWidth=1" title="马云将囚10年以上?/星象师预测更大灾难  " alt="马云将囚10年以上?/星象师预测更大灾难  "></a></p>
 <p><a href="https://github.com/dahstt3965/ntdtv/blob/master/gb/2021/01/06/a103025862.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/彭斯自认无权改变大选结果？川普回击假新闻  >-009fcc?logoWidth=1" title="彭斯自认无权改变大选结果？川普回击假新闻  " alt="彭斯自认无权改变大选结果？川普回击假新闻  "></a></p>
 <p><a href="https://github.com/dahstt3965/ntdtv/blob/master/gb/2021/01/06/a103025865.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/马云再遇麻烦？美媒：北京逼他交出消费者数据 >-009fcc?logoWidth=1" title="马云再遇麻烦？美媒：北京逼他交出消费者数据  " alt="马云再遇麻烦？美媒：北京逼他交出消费者数据  "></a></p>
-<p><a href="https://github.com/dahstt3965/ntdtv/blob/master/gb/2021/01/06/a103025840.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美金融大亨断言：马云将被囚10年以上    >-009fcc?logoWidth=1" title="美金融大亨断言：马云将被囚10年以上  " alt="美金融大亨断言：马云将被囚10年以上  "></a></p>
-<p><a href="https://github.com/dahstt3965/ntdtv/blob/master/gb/2021/01/06/a103025718.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/各国频降火流星 六星连珠 星相师预测更大灾难>-009fcc?logoWidth=1" title="各国频降火流星 六星连珠 星相师预测更大灾难  " alt="各国频降火流星 六星连珠 星相师预测更大灾难  "></a></p>
-<p><a href="https://github.com/dahstt3965/ntdtv/blob/master/gb/2021/01/06/a103025706.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赖小民判死马云失踪 外媒揭习近平用意    >-009fcc?logoWidth=1" title="赖小民判死马云失踪 外媒揭习近平用意  " alt="赖小民判死马云失踪 外媒揭习近平用意  "></a></p>
+<p><a href="https://github.com/dahstt3965/ntdtv/blob/master/gb/2021/01/06/a103026382.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/2021年全世界大法弟子恭祝师尊新年好！  >-009fcc?logoWidth=1" title="2021年全世界大法弟子恭祝师尊新年好！  " alt="2021年全世界大法弟子恭祝师尊新年好！  "></a></p>
 <p><a href="https://github.com/dahstt3965/ntdtv/blob/master/gb/2021/01/06/a103026358.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英文新唐人记者介绍现场情况         >-009fcc?logoWidth=1" title="英文新唐人记者介绍现场情况  " alt="英文新唐人记者介绍现场情况  "></a></p>
 <p><a href="https://github.com/dahstt3965/ntdtv/blob/master/gb/2021/01/06/a103026357.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/现场民众：维护宪法为真理而战        >-009fcc?logoWidth=1" title="现场民众：维护宪法为真理而战  " alt="现场民众：维护宪法为真理而战  "></a></p>
 <p><a href="https://github.com/dahstt3965/ntdtv/blob/master/gb/2021/01/06/a103026274.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港警抓捕外籍律师 凭国安法首抓美国人    >-009fcc?logoWidth=1" title="港警抓捕外籍律师 凭国安法首抓美国人  " alt="港警抓捕外籍律师 凭国安法首抓美国人  "></a></p>
-<p><a href="https://github.com/dahstt3965/ntdtv/blob/master/gb/2021/01/06/a103026284.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国会冲突一女子疑被警枪重伤 川普启动国民警卫>-009fcc?logoWidth=1" title="国会冲突一女子疑被警枪重伤 川普启动国民警卫队  " alt="国会冲突一女子疑被警枪重伤 川普启动国民警卫队  "></a></p>
-<p><a href="https://github.com/dahstt3965/ntdtv/blob/master/gb/2021/01/06/a103026298.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普吁抗议者：知道你们的感受 请和平回家  >-009fcc?logoWidth=1" title="川普吁抗议者：知道你们的感受 请和平回家  " alt="川普吁抗议者：知道你们的感受 请和平回家  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dahstt3965/djy/blob/master/gb/21/1/4/n12664729.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/民众冲入国会 川普吁“和平回家”      >-009fcc?logoWidth=1" title="民众冲入国会 川普吁“和平回家”  " alt="民众冲入国会 川普吁“和平回家”  "></a></p>
 <p><a href="https://github.com/dahstt3965/djy/blob/master/gb/21/1/6/n12669751.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/联席会议后 川普承诺将挑战八州选举结果   >-009fcc?logoWidth=1" title="联席会议后 川普承诺将挑战八州选举结果  " alt="联席会议后 川普承诺将挑战八州选举结果  "></a></p>
@@ -39,13 +38,16 @@
 <p><a href="https://github.com/dahstt3965/djy/blob/master/gb/21/1/6/n12671055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普：若彭斯出手相助 我会赢得连任     >-009fcc?logoWidth=1" title="川普：若彭斯出手相助 我会赢得连任  " alt="川普：若彭斯出手相助 我会赢得连任  "></a></p>
 <p><a href="https://github.com/dahstt3965/djy/blob/master/gb/21/1/6/n12669343.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国会认证拜登？三剑客能否阻止        >-009fcc?logoWidth=1" title="国会认证拜登？三剑客能否阻止  " alt="国会认证拜登？三剑客能否阻止  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/dahstt3965/ntdtv/blob/master/gb/2021/01/06/a103026044.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乔州共和党参议员领先之时 一民主党县突叫停计>-009fcc?logoWidth=1" title="乔州共和党参议员领先之时 一民主党县突叫停计票  " alt="乔州共和党参议员领先之时 一民主党县突叫停计票  "></a></p>
 <p><a href="https://github.com/dahstt3965/ntdtv/blob/master/gb/2021/01/06/a103026180.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/至少102名国会议员已承诺 认证会上挑战选举>-009fcc?logoWidth=1" title="至少102名国会议员已承诺 认证会上挑战选举人票  " alt="至少102名国会议员已承诺 认证会上挑战选举人票  "></a></p>
 <p><a href="https://github.com/dahstt3965/ntdtv/blob/master/gb/2021/01/06/a103026244.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/乔州民主党州议员宣布加入共和党：我懂如何战斗>-009fcc?logoWidth=1" title="乔州民主党州议员宣布加入共和党：我懂如何战斗  " alt="乔州民主党州议员宣布加入共和党：我懂如何战斗  "></a></p>
-<p><a href="https://github.com/dahstt3965/ntdtv/blob/master/gb/2021/01/06/a103026252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒：广东发现南非变种中共病毒       >-009fcc?logoWidth=1" title="陆媒：广东发现南非变种中共病毒  " alt="陆媒：广东发现南非变种中共病毒  "></a></p>
-<p><a href="https://github.com/dahstt3965/djy/blob/master/gb/21/1/6/n12671163.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/102名国会议员将挑战选举人票 他们是谁  >-009fcc?logoWidth=1" title="102名国会议员将挑战选举人票 他们是谁  " alt="102名国会议员将挑战选举人票 他们是谁  "></a></p>
-<p><a href="https://github.com/dahstt3965/ntdtv/blob/master/gb/2021/01/06/a103025727.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国民兵集结 誓言抗争到底         >-009fcc?logoWidth=1" title="美国民兵集结 誓言抗争到底  " alt="美国民兵集结 誓言抗争到底  "></a></p>
 <p><a href="https://github.com/dahstt3965/djy/blob/master/gb/21/1/5/n12668830.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拳打伊朗脚踢中共 川普在全球收网      >-009fcc?logoWidth=1" title="拳打伊朗脚踢中共 川普在全球收网  " alt="拳打伊朗脚踢中共 川普在全球收网  "></a></p>
+<p><a href="https://github.com/dahstt3965/djy/blob/master/gb/21/1/6/n12671163.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/102名国会议员将挑战选举人票 他们是谁  >-009fcc?logoWidth=1" title="102名国会议员将挑战选举人票 他们是谁  " alt="102名国会议员将挑战选举人票 他们是谁  "></a></p>
+<p><a href="https://github.com/dahstt3965/ntdtv/blob/master/gb/2021/01/06/a103026252.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆媒：广东发现南非变种中共病毒       >-009fcc?logoWidth=1" title="陆媒：广东发现南非变种中共病毒  " alt="陆媒：广东发现南非变种中共病毒  "></a></p>
+<p><a href="https://github.com/dahstt3965/ntdtv/blob/master/gb/2021/01/06/a103025840.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美金融大亨断言：马云将被囚10年以上    >-009fcc?logoWidth=1" title="美金融大亨断言：马云将被囚10年以上  " alt="美金融大亨断言：马云将被囚10年以上  "></a></p>
+<p><a href="https://github.com/dahstt3965/djy/blob/master/gb/21/1/6/n12671361.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“拯救美国”集会人山人海 川普现身发表演说 >-009fcc?logoWidth=1" title="“拯救美国”集会人山人海 川普现身发表演说  " alt="“拯救美国”集会人山人海 川普现身发表演说  "></a></p>
 <p><a href="https://github.com/dahstt3965/djy/blob/master/gb/21/1/6/n12669386.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/彭斯能推迟认证？大连小粉红尝铁拳      >-009fcc?logoWidth=1" title="彭斯能推迟认证？大连小粉红尝铁拳  " alt="彭斯能推迟认证？大连小粉红尝铁拳  "></a></p>
+<p><a href="https://github.com/dahstt3965/ntdtv/blob/master/gb/2021/01/06/a103025706.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赖小民判死马云失踪 外媒揭习近平用意    >-009fcc?logoWidth=1" title="赖小民判死马云失踪 外媒揭习近平用意  " alt="赖小民判死马云失踪 外媒揭习近平用意  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -257,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://dahstt3965.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?wrcir">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?imcft">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?iomzb">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ttnkq">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -303,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?hhcwc">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?dxotf">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ccqau">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?notwj">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -412,12 +414,12 @@
 <p><strong>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年的腥风血雨，二十多年的凌辱折磨，岁月飞逝，历史见证，迫害善良原本就是违背道义不得民心的...</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;99年中共因法轮功修炼人数超过党员而疯狂镇压，不惜制造一个个谎言，导演天安门自焚案栽赃法轮功，对坚持信仰的学员绑架抄家，用尽酷刑，导致数以百万计的家破人亡、妻离子散！然而中共高估了自己的造假宣传。各国政府纷纷谴责中共暴行，高度肯定法轮功提升道德、净化心灵、强身健体的卓越成效。在国内，声援法轮功的事件此起彼伏。成千上万人为被非法抓捕的学员请愿，演绎了不畏强权反迫害的一幕又一幕。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年过去了。如今法轮功“真善忍”普世价值观，超越民族文化，洪传世界一百多个国家，仅台湾就有八十万人修炼，其主要著作被译成四十多种文字，举世赞誉！而中共江泽民却因罪恶迫害，在海内外被数百万人联署举报，被二十多万人实名起诉。在这场对善良打压中，中共把法制、道德伦理都推向崩溃边缘。民心丧尽、天怒人怨!人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="http://1.171.209.178/UmhjM" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="http://1.171.210.227/UmhjM" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
 </details>
 
 <div align="center">
 <img src="https://raw.githubusercontent.com/dahstt3965/www/master/t/01.jpg">
-<h1><strong><a href="http://1.171.209.178/UmhjM" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
+<h1><strong><a href="http://1.171.210.227/UmhjM" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/dahstt3965/www/master/t/03.jpg"><br>
@@ -477,17 +479,17 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;于中共无所不在的欺骗洗脑与暴力胁迫下，有多少人放弃了诚实宽厚、仁爱谦和的道德底线，变得见风使舵、落井下石，甚至为一己之私而无恶不作。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;稍微盘点中共的罪恶，让人感到心情无比的沉重。了解了中共，才明白什么叫做罪恶滔天，罄竹难书。</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="http://1.171.209.178/UmhjM" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="http://1.171.210.227/UmhjM" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </strong></p>
 <hr>
 <div align="center">
-<p><strong><a href="https://github.com/dahstt3965/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dahstt3965/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dahstt3965/www/master/index.html?q">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dahstt3965/www/blob/master/README.md?q#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/dahstt3965/www/blob/master/README.md?d%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=http://t.cn/A6zkis9P" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/dahstt3965/www/blob/master/README.md?y%231" title="分享本平台"></img>
+<p><strong><a href="https://github.com/dahstt3965/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dahstt3965/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dahstt3965/www/master/index.html?u">高速版平台</a></strong></p>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dahstt3965/www/blob/master/README.md?d#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/dahstt3965/www/blob/master/README.md?f%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=http://t.cn/A6Z0epyV" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/dahstt3965/www/blob/master/README.md?y%231" title="分享本平台"></img>
 <br>
-<a href="https://git.io/uzzzz">https://git.io/uzzzz</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://bit.ly/qqqqz">https://bit.ly/qqqqz</a>
-&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/jjyyy">https://j.mp/jjyyy</a>
+<a href="https://git.io/q2222">https://git.io/q2222</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://bit.ly/vtttv">https://bit.ly/vtttv</a>
+&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/eeees">https://j.mp/eeees</a>
 <br>
 <br>
-<h3><a href="https://dahstt3965.github.io/vd/qr/qr2/#https://github.com/dahstt3965/www/blob/master/README.md?j#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://dahstt3965.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/medbki322/www/blob/master/README.md%3Fk%231%22%2C%22https://github.com/giqyzi3023/www/blob/master/README.md%3Fv%231%22%2C%22https://github.com/yexsyy329/www/blob/master/README.md%3Fs%231%22%2C%22https://github.com/oixpbx3897/www/blob/master/README.md%3Fk%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://dahstt3965.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
+<h3><a href="https://dahstt3965.github.io/vd/qr/qr2/#https://github.com/dahstt3965/www/blob/master/README.md?b#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://dahstt3965.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/eqtrvx309/www/blob/master/README.md%3Fz%231%22%2C%22https://github.com/fmydwl375/www/blob/master/README.md%3Fm%231%22%2C%22https://github.com/neniss317/www/blob/master/README.md%3Fu%231%22%2C%22https://github.com/xdluor3301/www/blob/master/README.md%3Fr%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://dahstt3965.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
 </div>
