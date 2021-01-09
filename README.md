@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/dcvmnq377/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/dcvmnq377/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/hrrrr">git.io/hrrrr</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/bbbbb">git.io/bbbbb</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -20,34 +20,33 @@
 <p><a href="https://github.com/dcvmnq377/ntdtv/blob/master/gb/2021/01/09/a103028478.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/推特封停川普账号 两党议员反应两极分化   >-009fcc?logoWidth=1" title="推特封停川普账号 两党议员反应两极分化  " alt="推特封停川普账号 两党议员反应两极分化  "></a></p>
 <p><a href="https://github.com/dcvmnq377/ntdtv/blob/master/gb/2021/01/09/a103028300.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/外媒纷纷寻马云 分析：马罪如薄熙来 命如肖建>-009fcc?logoWidth=1" title="外媒纷纷寻马云 分析：马罪如薄熙来 命如肖建华  " alt="外媒纷纷寻马云 分析：马罪如薄熙来 命如肖建华  "></a></p>
 <p><a href="https://github.com/dcvmnq377/ntdtv/blob/master/gb/2021/01/09/a103028273.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国政权交替敏感时刻 金正恩宣布发展核武  >-009fcc?logoWidth=1" title="美国政权交替敏感时刻 金正恩宣布发展核武  " alt="美国政权交替敏感时刻 金正恩宣布发展核武  "></a></p>
+<p><a href="https://github.com/dcvmnq377/ntdtv/blob/master/gb/2021/01/09/a103028806.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/传川普将加入 Parler突遭Google >-009fcc?logoWidth=1" title="传川普将加入 Parler突遭Google Play删除  " alt="传川普将加入 Parler突遭Google Play删除  "></a></p>
 <p><a href="https://github.com/dcvmnq377/ntdtv/blob/master/gb/2021/01/09/a103028812.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/Youtube封杀班农“作战室”频道    >-009fcc?logoWidth=1" title="Youtube封杀班农“作战室”频道  " alt="Youtube封杀班农“作战室”频道  "></a></p>
 <p><a href="https://github.com/dcvmnq377/ntdtv/blob/master/gb/2021/01/09/a103028798.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/CNN记者：民主党人周一正式启动弹劾川普  >-009fcc?logoWidth=1" title="CNN记者：民主党人周一正式启动弹劾川普  " alt="CNN记者：民主党人周一正式启动弹劾川普  "></a></p>
 <p><a href="https://github.com/dcvmnq377/ntdtv/blob/master/gb/2021/01/09/a103028774.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/闯入国会的BLM份子重现街头 疑似已获释(视>-009fcc?logoWidth=1" title="闯入国会的BLM份子重现街头 疑似已获释(视频)  " alt="闯入国会的BLM份子重现街头 疑似已获释(视频)  "></a></p>
 <p><a href="https://github.com/dcvmnq377/ntdtv/blob/master/gb/2021/01/09/a103028789.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美大使下周访台  立委：不应迎合中共论调  >-009fcc?logoWidth=1" title="美大使下周访台  立委：不应迎合中共论调  " alt="美大使下周访台  立委：不应迎合中共论调  "></a></p>
-<p><a href="https://github.com/dcvmnq377/ntdtv/blob/master/gb/2021/01/09/a103028770.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/不噤声  川普与团队遭推特永久停权 拟自组新>-009fcc?logoWidth=1" title="不噤声  川普与团队遭推特永久停权 拟自组新平台  " alt="不噤声  川普与团队遭推特永久停权 拟自组新平台  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/dcvmnq377/djy/blob/master/gb/21/1/9/n12677035.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：退役军人大维权 凸显习近平施政困境  >-009fcc?logoWidth=1" title="王赫：退役军人大维权 凸显习近平施政困境  " alt="王赫：退役军人大维权 凸显习近平施政困境  "></a></p>
-<p><a href="https://github.com/dcvmnq377/djy/blob/master/gb/21/1/9/n12676925.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共党媒罕见提“三重严重冲击”    >-009fcc?logoWidth=1" title="钟原：中共党媒罕见提“三重严重冲击”  " alt="钟原：中共党媒罕见提“三重严重冲击”  "></a></p>
 <p><a href="https://github.com/dcvmnq377/djy/blob/master/gb/21/1/8/n12676021.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥：不能压制7500万选民声音     >-009fcc?logoWidth=1" title="蓬佩奥：不能压制7500万选民声音  " alt="蓬佩奥：不能压制7500万选民声音  "></a></p>
-<p><a href="https://github.com/dcvmnq377/djy/blob/master/gb/21/1/8/n12676422.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国专业报告揭秘中共核武器家底       >-009fcc?logoWidth=1" title="美国专业报告揭秘中共核武器家底  " alt="美国专业报告揭秘中共核武器家底  "></a></p>
-<p><a href="https://github.com/dcvmnq377/djy/blob/master/gb/21/1/8/n12675976.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六四抗命军长徐勤先辞世 重病卧床仍遭软禁  >-009fcc?logoWidth=1" title="六四抗命军长徐勤先辞世 重病卧床仍遭软禁  " alt="六四抗命军长徐勤先辞世 重病卧床仍遭软禁  "></a></p>
-<p><a href="https://github.com/dcvmnq377/djy/blob/master/gb/21/1/9/n12676860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河北防疫文件泄新年疫情更危急        >-009fcc?logoWidth=1" title="河北防疫文件泄新年疫情更危急  " alt="河北防疫文件泄新年疫情更危急  "></a></p>
 <p><a href="https://github.com/dcvmnq377/djy/blob/master/gb/21/1/9/n12677526.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登将克鲁兹和霍利比作纳粹 两人犀利反击  >-009fcc?logoWidth=1" title="拜登将克鲁兹和霍利比作纳粹 两人犀利反击  " alt="拜登将克鲁兹和霍利比作纳粹 两人犀利反击  "></a></p>
-<p><a href="https://github.com/dcvmnq377/djy/blob/master/gb/21/1/7/n12672099.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/感谢信暴露中共海外统战据点         >-009fcc?logoWidth=1" title="感谢信暴露中共海外统战据点  " alt="感谢信暴露中共海外统战据点  "></a></p>
-<p><a href="https://github.com/dcvmnq377/djy/blob/master/gb/21/1/8/n12676319.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国药疫苗“附条件上市”大陆多名专家唱衰   >-009fcc?logoWidth=1" title="国药疫苗“附条件上市”大陆多名专家唱衰  " alt="国药疫苗“附条件上市”大陆多名专家唱衰  "></a></p>
-<p><a href="https://github.com/dcvmnq377/djy/blob/master/gb/21/1/8/n12676724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球疫情凶猛 美官员访台中共开骂      >-009fcc?logoWidth=1" title="全球疫情凶猛 美官员访台中共开骂  " alt="全球疫情凶猛 美官员访台中共开骂  "></a></p>
-<p><a href="https://github.com/dcvmnq377/djy/blob/master/gb/21/1/9/n12676904.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件泄新年疫情更危急          >-009fcc?logoWidth=1" title="内部文件泄新年疫情更危急  " alt="内部文件泄新年疫情更危急  "></a></p>
 <p><a href="https://github.com/dcvmnq377/djy/blob/master/gb/21/1/9/n12677720.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/严冬禁煤限电惹众怒 李克强急开国务院常委会 >-009fcc?logoWidth=1" title="严冬禁煤限电惹众怒 李克强急开国务院常委会  " alt="严冬禁煤限电惹众怒 李克强急开国务院常委会  "></a></p>
+<p><a href="https://github.com/dcvmnq377/djy/blob/master/gb/21/1/8/n12676422.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国专业报告揭秘中共核武器家底       >-009fcc?logoWidth=1" title="美国专业报告揭秘中共核武器家底  " alt="美国专业报告揭秘中共核武器家底  "></a></p>
+<p><a href="https://github.com/dcvmnq377/djy/blob/master/gb/21/1/9/n12676925.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共党媒罕见提“三重严重冲击”    >-009fcc?logoWidth=1" title="钟原：中共党媒罕见提“三重严重冲击”  " alt="钟原：中共党媒罕见提“三重严重冲击”  "></a></p>
+<p><a href="https://github.com/dcvmnq377/djy/blob/master/gb/21/1/9/n12676860.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河北防疫文件泄新年疫情更危急        >-009fcc?logoWidth=1" title="河北防疫文件泄新年疫情更危急  " alt="河北防疫文件泄新年疫情更危急  "></a></p>
+<p><a href="https://github.com/dcvmnq377/djy/blob/master/gb/21/1/9/n12677035.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：退役军人大维权 凸显习近平施政困境  >-009fcc?logoWidth=1" title="王赫：退役军人大维权 凸显习近平施政困境  " alt="王赫：退役军人大维权 凸显习近平施政困境  "></a></p>
+<p><a href="https://github.com/dcvmnq377/djy/blob/master/gb/21/1/7/n12672099.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/感谢信暴露中共海外统战据点         >-009fcc?logoWidth=1" title="感谢信暴露中共海外统战据点  " alt="感谢信暴露中共海外统战据点  "></a></p>
+<p><a href="https://github.com/dcvmnq377/djy/blob/master/gb/21/1/8/n12676724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球疫情凶猛 美官员访台中共开骂      >-009fcc?logoWidth=1" title="全球疫情凶猛 美官员访台中共开骂  " alt="全球疫情凶猛 美官员访台中共开骂  "></a></p>
+<p><a href="https://github.com/dcvmnq377/djy/blob/master/gb/21/1/8/n12675076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭秘捷克总统泽曼和中共的中间人（上）    >-009fcc?logoWidth=1" title="揭秘捷克总统泽曼和中共的中间人（上）  " alt="揭秘捷克总统泽曼和中共的中间人（上）  "></a></p>
+<p><a href="https://github.com/dcvmnq377/djy/blob/master/gb/21/1/8/n12676319.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国药疫苗“附条件上市”大陆多名专家唱衰   >-009fcc?logoWidth=1" title="国药疫苗“附条件上市”大陆多名专家唱衰  " alt="国药疫苗“附条件上市”大陆多名专家唱衰  "></a></p>
+<p><a href="https://github.com/dcvmnq377/djy/blob/master/gb/21/1/8/n12676278.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭秘捷克总统和中共的中间人（下）      >-009fcc?logoWidth=1" title="揭秘捷克总统和中共的中间人（下）  " alt="揭秘捷克总统和中共的中间人（下）  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/dcvmnq377/djy/blob/master/gb/21/1/8/n12676724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情凶猛？中国1800万人被封锁      >-009fcc?logoWidth=1" title="疫情凶猛？中国1800万人被封锁  " alt="疫情凶猛？中国1800万人被封锁  "></a></p>
-<p><a href="https://github.com/dcvmnq377/djy/blob/master/gb/21/1/8/n12675076.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭秘捷克总统泽曼和中共的中间人（上）    >-009fcc?logoWidth=1" title="揭秘捷克总统泽曼和中共的中间人（上）  " alt="揭秘捷克总统泽曼和中共的中间人（上）  "></a></p>
 <p><a href="https://github.com/dcvmnq377/ntdtv/blob/master/gb/2021/01/09/a103028158.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陆树恒实名向追查国际举报中共活摘法轮功学员器>-009fcc?logoWidth=1" title="陆树恒实名向追查国际举报中共活摘法轮功学员器官罪行  " alt="陆树恒实名向追查国际举报中共活摘法轮功学员器官罪行  "></a></p>
 <p><a href="https://github.com/dcvmnq377/djy/blob/master/gb/21/1/8/n12676319.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国药疫苗“附条件上市” 大陆多名专家公开唱衰>-009fcc?logoWidth=1" title="国药疫苗“附条件上市” 大陆多名专家公开唱衰  " alt="国药疫苗“附条件上市” 大陆多名专家公开唱衰  "></a></p>
-<p><a href="https://github.com/dcvmnq377/djy/blob/master/gb/21/1/8/n12676278.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭秘捷克总统和中共的中间人（下）      >-009fcc?logoWidth=1" title="揭秘捷克总统和中共的中间人（下）  " alt="揭秘捷克总统和中共的中间人（下）  "></a></p>
 <p><a href="https://github.com/dcvmnq377/ntdtv/blob/master/gb/2021/01/08/a103027952.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/真实的川普与彭斯的背叛           >-009fcc?logoWidth=1" title="真实的川普与彭斯的背叛  " alt="真实的川普与彭斯的背叛  "></a></p>
 <p><a href="https://github.com/dcvmnq377/ntdtv/blob/master/gb/2021/01/09/a103028222.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国寒冬中遭遇疫情、电荒 李克强紧急发话  >-009fcc?logoWidth=1" title="中国寒冬中遭遇疫情、电荒 李克强紧急发话  " alt="中国寒冬中遭遇疫情、电荒 李克强紧急发话  "></a></p>
 <p><a href="https://github.com/dcvmnq377/djy/blob/master/gb/21/1/9/n12677695.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/石家庄3天检出354阳性 集中隔离逾万人  >-009fcc?logoWidth=1" title="石家庄3天检出354阳性 集中隔离逾万人  " alt="石家庄3天检出354阳性 集中隔离逾万人  "></a></p>
 <p><a href="https://github.com/dcvmnq377/djy/blob/master/gb/21/1/9/n12677428.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美发现逾60英变异病毒病例         >-009fcc?logoWidth=1" title="美发现逾60英变异病毒病例  " alt="美发现逾60英变异病毒病例  "></a></p>
+<p><a href="https://github.com/dcvmnq377/djy/blob/master/gb/21/1/8/n12675976.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六四抗命军长徐勤先辞世 重病卧床仍遭软禁  >-009fcc?logoWidth=1" title="六四抗命军长徐勤先辞世 重病卧床仍遭软禁  " alt="六四抗命军长徐勤先辞世 重病卧床仍遭软禁  "></a></p>
 <p><a href="https://github.com/dcvmnq377/djy/blob/master/gb/21/1/8/n12676516.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西安利用大数据隔离密接者 亲历者诉惊恐   >-009fcc?logoWidth=1" title="西安利用大数据隔离密接者 亲历者诉惊恐  " alt="西安利用大数据隔离密接者 亲历者诉惊恐  "></a></p>
 <p><a href="https://github.com/dcvmnq377/ntdtv/blob/master/gb/2021/01/08/a103027928.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普跌入选举陷阱 魔鬼统治了世界 共产党占领>-009fcc?logoWidth=1" title="川普跌入选举陷阱 魔鬼统治了世界 共产党占领了美国  " alt="川普跌入选举陷阱 魔鬼统治了世界 共产党占领了美国  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -261,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://dcvmnq377.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?qoitx">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?jytmt">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ibtvq">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?osopp">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?jsuyj">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?mpcyl">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?yvlwe">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?uwtrz">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -416,12 +415,12 @@
 <p><strong>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年的腥风血雨，二十多年的凌辱折磨，岁月飞逝，历史见证，迫害善良原本就是违背道义不得民心的...</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;99年中共因法轮功修炼人数超过党员而疯狂镇压，不惜制造一个个谎言，导演天安门自焚案栽赃法轮功，对坚持信仰的学员绑架抄家，用尽酷刑，导致数以百万计的家破人亡、妻离子散！然而中共高估了自己的造假宣传。各国政府纷纷谴责中共暴行，高度肯定法轮功提升道德、净化心灵、强身健体的卓越成效。在国内，声援法轮功的事件此起彼伏。成千上万人为被非法抓捕的学员请愿，演绎了不畏强权反迫害的一幕又一幕。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年过去了。如今法轮功“真善忍”普世价值观，超越民族文化，洪传世界一百多个国家，仅台湾就有八十万人修炼，其主要著作被译成四十多种文字，举世赞誉！而中共江泽民却因罪恶迫害，在海内外被数百万人联署举报，被二十多万人实名起诉。在这场对善良打压中，中共把法制、道德伦理都推向崩溃边缘。民心丧尽、天怒人怨!人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="http://111.241.137.113/UmhjM" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="http://36.233.139.182/UmhjM" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
 </details>
 
 <div align="center">
 <img src="https://raw.githubusercontent.com/dcvmnq377/www/master/t/01.jpg">
-<h1><strong><a href="http://111.241.137.113/UmhjM" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
+<h1><strong><a href="http://36.233.139.182/UmhjM" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/dcvmnq377/www/master/t/03.jpg"><br>
@@ -481,17 +480,17 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;于中共无所不在的欺骗洗脑与暴力胁迫下，有多少人放弃了诚实宽厚、仁爱谦和的道德底线，变得见风使舵、落井下石，甚至为一己之私而无恶不作。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;稍微盘点中共的罪恶，让人感到心情无比的沉重。了解了中共，才明白什么叫做罪恶滔天，罄竹难书。</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="http://111.241.137.113/UmhjM" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="http://36.233.139.182/UmhjM" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </strong></p>
 <hr>
 <div align="center">
 <p><strong><a href="https://github.com/dcvmnq377/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/dcvmnq377/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ghcdn.rawgit.org/dcvmnq377/www/master/index.html?j">高速版平台</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dcvmnq377/www/blob/master/README.md?k#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/dcvmnq377/www/blob/master/README.md?h%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=http://t.cn/A6wohDU7" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/dcvmnq377/www/blob/master/README.md?e%231" title="分享本平台"></img>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/dcvmnq377/www/blob/master/README.md?l#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/dcvmnq377/www/blob/master/README.md?e%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=http://t.cn/A6Zkqetj" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/dcvmnq377/www/blob/master/README.md?n%231" title="分享本平台"></img>
 <br>
-<a href="https://git.io/hrrrr">https://git.io/hrrrr</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://bit.ly/iii55">https://bit.ly/iii55</a>
-&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/v6666">https://j.mp/v6666</a>
+<a href="https://git.io/bbbbb">https://git.io/bbbbb</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://bit.ly/ssss9">https://bit.ly/ssss9</a>
+&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/uuuu8">https://j.mp/uuuu8</a>
 <br>
 <br>
-<h3><a href="https://dcvmnq377.github.io/vd/qr/qr2/#https://github.com/dcvmnq377/www/blob/master/README.md?h#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://dcvmnq377.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/cfvleo391/www/blob/master/README.md%3Fk%231%22%2C%22https://github.com/okxz2368/www/blob/master/README.md%3Fq%231%22%2C%22https://github.com/tacn272/www/blob/master/README.md%3Fq%231%22%2C%22https://github.com/nxlkkb378/www/blob/master/README.md%3Fl%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://dcvmnq377.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
+<h3><a href="https://dcvmnq377.github.io/vd/qr/qr2/#https://github.com/dcvmnq377/www/blob/master/README.md?p#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://dcvmnq377.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/uzeexd216/www/blob/master/README.md%3Fk%231%22%2C%22https://github.com/mthry289/www/blob/master/README.md%3Fe%231%22%2C%22https://github.com/nnmhge3513/www/blob/master/README.md%3Fo%231%22%2C%22https://github.com/dzcyph345/www/blob/master/README.md%3Fp%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://dcvmnq377.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
 </div>
