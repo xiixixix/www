@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/injttp3586/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/injttp3586/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/rrrrrrrr">git.io/rrrrrrrr</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/ussss">git.io/ussss</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/injttp3586/ntdtv/blob/master/gb/2021/01/18/a103034568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网民热议：庚子年当选的美国总统 都死于任内 >-009fcc?logoWidth=1" title="网民热议：庚子年当选的美国总统 都死于任内  " alt="网民热议：庚子年当选的美国总统 都死于任内  "></a></p>
 <p><a href="https://github.com/injttp3586/ntdtv/blob/master/gb/2021/01/18/a103034563.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国再坠火流星 网民惊呼：不祥之兆！(视频)>-009fcc?logoWidth=1" title="中国再坠火流星 网民惊呼：不祥之兆！(视频)  " alt="中国再坠火流星 网民惊呼：不祥之兆！(视频)  "></a></p>
 <p><a href="https://github.com/injttp3586/ntdtv/blob/master/gb/2021/01/18/a103034485.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/9000非法移民压境 川普：边境紧急状态再延>-009fcc?logoWidth=1" title="9000非法移民压境 川普：边境紧急状态再延一年  " alt="9000非法移民压境 川普：边境紧急状态再延一年  "></a></p>
+<p><a href="https://github.com/injttp3586/ntdtv/blob/master/gb/2021/01/18/a103034898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贺锦丽正式辞去参议员职务          >-009fcc?logoWidth=1" title="贺锦丽正式辞去参议员职务  " alt="贺锦丽正式辞去参议员职务  "></a></p>
+<p><a href="https://github.com/injttp3586/ntdtv/blob/master/gb/2021/01/18/a103034889.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/接种辉瑞疫苗后 13名以色列人出现面瘫   >-009fcc?logoWidth=1" title="接种辉瑞疫苗后 13名以色列人出现面瘫  " alt="接种辉瑞疫苗后 13名以色列人出现面瘫  "></a></p>
 <p><a href="https://github.com/injttp3586/ntdtv/blob/master/gb/2021/01/18/a103034875.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/纽约州议会设3层安保防暴乱 只见警察和记者 >-009fcc?logoWidth=1" title="纽约州议会设3层安保防暴乱 只见警察和记者  " alt="纽约州议会设3层安保防暴乱 只见警察和记者  "></a></p>
 <p><a href="https://github.com/injttp3586/ntdtv/blob/master/gb/2021/01/18/a103034718.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重启“救助”富人计划 民主党谋为富人减税  >-009fcc?logoWidth=1" title="重启“救助”富人计划 民主党谋为富人减税  " alt="重启“救助”富人计划 民主党谋为富人减税  "></a></p>
 <p><a href="https://github.com/injttp3586/ntdtv/blob/master/gb/2021/01/18/a103034852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/津巴布韦防长指责 中共是疫情罪魁祸首    >-009fcc?logoWidth=1" title="津巴布韦防长指责 中共是疫情罪魁祸首  " alt="津巴布韦防长指责 中共是疫情罪魁祸首  "></a></p>
-<p><a href="https://github.com/injttp3586/ntdtv/blob/master/gb/2021/01/18/a103034795.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/就职典礼彩排日 美国会大厦一度被封     >-009fcc?logoWidth=1" title="就职典礼彩排日 美国会大厦一度被封  " alt="就职典礼彩排日 美国会大厦一度被封  "></a></p>
-<p><a href="https://github.com/injttp3586/ntdtv/blob/master/gb/2021/01/18/a103034816.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥一天发数十推文 再揭中共真面目    >-009fcc?logoWidth=1" title="蓬佩奥一天发数十推文 再揭中共真面目  " alt="蓬佩奥一天发数十推文 再揭中共真面目  "></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/injttp3586/djy/blob/master/gb/21/1/18/n12695668.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中情局刻意淡化中共干预大选？        >-009fcc?logoWidth=1" title="中情局刻意淡化中共干预大选？  " alt="中情局刻意淡化中共干预大选？  "></a></p>
 <p><a href="https://github.com/injttp3586/djy/blob/master/gb/21/1/18/n12696073.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国会大厦附近冒烟 拜登就职彩排人员疏散   >-009fcc?logoWidth=1" title="国会大厦附近冒烟 拜登就职彩排人员疏散  " alt="国会大厦附近冒烟 拜登就职彩排人员疏散  "></a></p>
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://injttp3586.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?atogq">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?bousf">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?vozhj">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?wzolc">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?valwx">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?rublf">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?afzif">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?mjduh">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -483,12 +483,12 @@
 <hr>
 <div align="center">
 <p><strong><a href="https://github.com/injttp3586/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/injttp3586/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/injttp3586/www/blob/master/README.md?r#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/injttp3586/www/blob/master/README.md?m%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=http://t.cn/A6wwNuTT" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/injttp3586/www/blob/master/README.md?y%231" title="分享本平台"></img>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/injttp3586/www/blob/master/README.md?c#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/injttp3586/www/blob/master/README.md?k%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=http://t.cn/A6zk66uu" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/injttp3586/www/blob/master/README.md?h%231" title="分享本平台"></img>
 <br>
-<a href="https://git.io/rrrrrrrr">https://git.io/rrrrrrrr</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/xxxxe">https://is.gd/xxxxe</a>
-&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/j888j">https://j.mp/j888j</a>
+<a href="https://git.io/ussss">https://git.io/ussss</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/yyyys">https://is.gd/yyyys</a>
+&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/99n99">https://j.mp/99n99</a>
 <br>
 <br>
-<h3><a href="https://injttp3586.github.io/vd/qr/qr2/#https://github.com/injttp3586/www/blob/master/README.md?f#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://injttp3586.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/bmmgw2934/www/blob/master/README.md%3Fh%231%22%2C%22https://github.com/nlrebu313/www/blob/master/README.md%3Fk%231%22%2C%22https://github.com/vsrhmu3414/www/blob/master/README.md%3Fj%231%22%2C%22https://github.com/sbcwca310/www/blob/master/README.md%3Fk%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://injttp3586.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
+<h3><a href="https://injttp3586.github.io/vd/qr/qr2/#https://github.com/injttp3586/www/blob/master/README.md?x#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://injttp3586.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/pperzl3088/www/blob/master/README.md%3Fs%231%22%2C%22https://github.com/hcwqzq223/www/blob/master/README.md%3Fw%231%22%2C%22https://github.com/dueiwa2503/www/blob/master/README.md%3Fi%231%22%2C%22https://github.com/ryrnnu318/www/blob/master/README.md%3Fa%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://injttp3586.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
 </div>
