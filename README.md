@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/cwpsfz3041/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/cwpsfz3041/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/kxxxx">git.io/kxxxx</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/6pppp">git.io/6pppp</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -40,15 +40,15 @@
 <p><a href="https://github.com/cwpsfz3041/djy/blob/master/gb/21/2/3/n12731177.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共党媒称“反将美国一军”是何意？  >-009fcc?logoWidth=1" title="钟原：中共党媒称＂反将美国一军＂是何意？>>" alt="钟原：中共党媒称＂反将美国一军＂是何意？>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/cwpsfz3041/djy/blob/master/gb/21/2/2/n12728478.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平指示的“厕所革命” 遭官媒群批    >-009fcc?logoWidth=1" title="习近平指示的＂厕所革命＂　遭官媒群批　　>>" alt="习近平指示的＂厕所革命＂　遭官媒群批　　>>"></a></p>
-<p><a href="https://github.com/cwpsfz3041/ntdtv/blob/master/gb/2021/02/03/a103046358.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前大陆军官：中共对台“以战逼降”让拜登服软 >-009fcc?logoWidth=1" title="前大陆军官：中共对台＂以战逼降＂让拜登服>>" alt="前大陆军官：中共对台＂以战逼降＂让拜登服>>"></a></p>
+<p><a href="https://github.com/cwpsfz3041/ntdtv/blob/master/gb/2021/02/03/a103046102.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/贺锦丽“菜鸟级失误” CNN罕批拜登政府犯大>-009fcc?logoWidth=1" title="贺锦丽＂菜鸟级失误＂　ＣＮＮ罕批拜登政府>>" alt="贺锦丽＂菜鸟级失误＂　ＣＮＮ罕批拜登政府>>"></a></p>
 <p><a href="https://github.com/cwpsfz3041/djy/blob/master/gb/21/2/3/n12730621.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两岸十大政治人物排名 朱镕基居首习近平靠后 >-009fcc?logoWidth=1" title="两岸十大政治人物排名　朱椋苹邮紫敖娇?>" alt="两岸十大政治人物排名　朱椋苹邮紫敖娇?>"></a></p>
 <p><a href="https://github.com/cwpsfz3041/djy/blob/master/gb/21/2/3/n12731067.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官方出版社新年礼盒 五福藏“祸”字   >-009fcc?logoWidth=1" title="中共官方出版社新年礼盒　五福藏＂祸＂字　>>" alt="中共官方出版社新年礼盒　五福藏＂祸＂字　>>"></a></p>
+<p><a href="https://github.com/cwpsfz3041/ntdtv/blob/master/gb/2021/02/03/a103046358.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前大陆军官：中共对台“以战逼降”让拜登服软 >-009fcc?logoWidth=1" title="前大陆军官：中共对台＂以战逼降＂让拜登服>>" alt="前大陆军官：中共对台＂以战逼降＂让拜登服>>"></a></p>
 <p><a href="https://github.com/cwpsfz3041/ntdtv/blob/master/gb/2021/02/03/a103046200.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/弹劾审判前时间“不够” 拜登司法部长确认受阻>-009fcc?logoWidth=1" title="弹劾审判前时间＂不够＂　拜登司法部长确认>>" alt="弹劾审判前时间＂不够＂　拜登司法部长确认>>"></a></p>
-<p><a href="https://github.com/cwpsfz3041/ntdtv/blob/master/gb/2021/02/03/a103046135.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫苗对变种病毒有效吗？抗新冠忽视1个重要问题>-009fcc?logoWidth=1" title="疫苗对变种病毒有效吗？抗新冠忽视１个重要>>" alt="疫苗对变种病毒有效吗？抗新冠忽视１个重要>>"></a></p>
 <p><a href="https://github.com/cwpsfz3041/djy/blob/master/gb/21/2/2/n12727377.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/前大陆军官：中共“以战逼降”逼拜登服软   >-009fcc?logoWidth=1" title="前大陆军官：中共＂以战逼降＂逼拜登服软　>>" alt="前大陆军官：中共＂以战逼降＂逼拜登服软　>>"></a></p>
 <p><a href="https://github.com/cwpsfz3041/djy/blob/master/gb/21/2/3/n12730332.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共病毒沈阳一号病例死亡 官方未通报    >-009fcc?logoWidth=1" title="中共病毒沈阳一号病例死亡　官方未通报　　>>" alt="中共病毒沈阳一号病例死亡　官方未通报　　>>"></a></p>
+<p><a href="https://github.com/cwpsfz3041/ntdtv/blob/master/gb/2021/02/03/a103046135.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫苗对变种病毒有效吗？抗新冠忽视1个重要问题>-009fcc?logoWidth=1" title="疫苗对变种病毒有效吗？抗新冠忽视１个重要>>" alt="疫苗对变种病毒有效吗？抗新冠忽视１个重要>>"></a></p>
 <p><a href="https://github.com/cwpsfz3041/ntdtv/blob/master/gb/2021/02/03/a103046193.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫发言人嘲讽太空部队 众院高级议员要求道歉>-009fcc?logoWidth=1" title="白宫发言人嘲讽太空部队　众院高级议员要求>>" alt="白宫发言人嘲讽太空部队　众院高级议员要求>>"></a></p>
-<p><a href="https://github.com/cwpsfz3041/ntdtv/blob/master/gb/2021/02/02/a103045418.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/疫情之外还有三重威胁 人类或毫无准备？   >-009fcc?logoWidth=1" title="疫情之外还有三重威胁　人类或毫无准备？　>>" alt="疫情之外还有三重威胁　人类或毫无准备？　>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -260,9 +260,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://cwpsfz3041.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?fjvwj">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?shhlr">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?zxids">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?uxhoj">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -306,8 +306,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?dvhfq">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?gpqrs">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?lhdhd">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?iozpy">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -484,12 +484,12 @@
 <hr>
 <div align="center">
 <p><strong><a href="https://github.com/cwpsfz3041/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/cwpsfz3041/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cwpsfz3041/www/blob/master/README.md?s#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/cwpsfz3041/www/blob/master/README.md?i%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=http://t.cn/A67FXrTZ" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/cwpsfz3041/www/blob/master/README.md?v%231" title="分享本平台"></img>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/cwpsfz3041/www/blob/master/README.md?e#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/cwpsfz3041/www/blob/master/README.md?y%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=http://t.cn/A6ApcSbS" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/cwpsfz3041/www/blob/master/README.md?i%231" title="分享本平台"></img>
 <br>
-<a href="https://git.io/kxxxx">https://git.io/kxxxx</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://bit.ly/n7777">https://bit.ly/n7777</a>
-&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/qqqqu">https://j.mp/qqqqu</a>
+<a href="https://git.io/6pppp">https://git.io/6pppp</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://bit.ly/qqqqz">https://bit.ly/qqqqz</a>
+&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/jjj66">https://j.mp/jjj66</a>
 <br>
 <br>
-<h3><a href="https://cwpsfz3041.github.io/vd/qr/qr2/#https://github.com/cwpsfz3041/www/blob/master/README.md?s#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://cwpsfz3041.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/aybfac341/www/blob/master/README.md%3Fn%231%22%2C%22https://github.com/uzxpls3131/www/blob/master/README.md%3Fp%231%22%2C%22https://github.com/dectke3550/www/blob/master/README.md%3Fi%231%22%2C%22https://github.com/jtswrk284/www/blob/master/README.md%3Fq%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://cwpsfz3041.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
+<h3><a href="https://cwpsfz3041.github.io/vd/qr/qr2/#https://github.com/cwpsfz3041/www/blob/master/README.md?d#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://cwpsfz3041.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/zoelzd3252/www/blob/master/README.md%3Ft%231%22%2C%22https://github.com/bogtzy313/www/blob/master/README.md%3Fx%231%22%2C%22https://github.com/wjprhd3339/www/blob/master/README.md%3Fv%231%22%2C%22https://github.com/qvis220/www/blob/master/README.md%3Fz%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://cwpsfz3041.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
 </div>
