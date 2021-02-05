@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/tyhool308/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/tyhool308/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/cccc8">git.io/cccc8</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/dddd2">git.io/dddd2</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/tyhool308/ntdtv/blob/master/gb/2021/02/05/a103047443.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“更长电报”瞄准习近平 美前高官：败笔   >-009fcc?logoWidth=1" title="＂更长电报＂瞄准习近平　美前高官：败笔　>>" alt="＂更长电报＂瞄准习近平　美前高官：败笔　>>"></a></p>
 <p><a href="https://github.com/tyhool308/ntdtv/blob/master/gb/2021/02/05/a103047410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平考察贵阳视频曝光 网友：封门封区像防病>-009fcc?logoWidth=1" title="习近平考察贵阳视频曝光　网友：封门封区像>>" alt="习近平考察贵阳视频曝光　网友：封门封区像>>"></a></p>
 <p><a href="https://github.com/tyhool308/ntdtv/blob/master/gb/2021/02/05/a103047387.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登对华政策引担忧 王丹：美国将付出代价  >-009fcc?logoWidth=1" title="拜登对华政策引担忧　王丹：美国将付出代价>>" alt="拜登对华政策引担忧　王丹：美国将付出代价>>"></a></p>
+<p><a href="https://github.com/tyhool308/ntdtv/blob/master/gb/2021/02/05/a103047965.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平任命气候特使 拜登气候特使说很快见面 >-009fcc?logoWidth=1" title="习近平任命气候特使　拜登气候特使说很快见>>" alt="习近平任命气候特使　拜登气候特使说很快见>>"></a></p>
+<p><a href="https://github.com/tyhool308/ntdtv/blob/master/gb/2021/02/05/a103047959.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/威州口罩令刚被议会否决 州长一小时后又发一项>-009fcc?logoWidth=1" title="威州口罩令刚被议会否决　州长一小时后又发>>" alt="威州口罩令刚被议会否决　州长一小时后又发>>"></a></p>
 <p><a href="https://github.com/tyhool308/ntdtv/blob/master/gb/2021/02/05/a103047940.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/再拒承诺制裁华为 拜登商务部长任命遇阻   >-009fcc?logoWidth=1" title="再拒承诺制裁华为　拜登商务部长任命遇阻　>>" alt="再拒承诺制裁华为　拜登商务部长任命遇阻　>>"></a></p>
 <p><a href="https://github.com/tyhool308/ntdtv/blob/master/gb/2021/02/05/a103047853.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共袒护缅军点燃缅仇华情绪 华人为自保谴责北>-009fcc?logoWidth=1" title="中共袒护缅军点燃缅仇华情绪　华人为自保谴>>" alt="中共袒护缅军点燃缅仇华情绪　华人为自保谴>>"></a></p>
 <p><a href="https://github.com/tyhool308/ntdtv/blob/master/gb/2021/02/05/a103047783.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/呼兰小区封三层如监狱  每栋楼都有专属围墙(>-009fcc?logoWidth=1" title="呼兰小区封三层如监狱　　每栋楼都有专属围>>" alt="呼兰小区封三层如监狱　　每栋楼都有专属围>>"></a></p>
-<p><a href="https://github.com/tyhool308/ntdtv/blob/master/gb/2021/02/05/a103047734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/助搜“极端分子” 美国银行将客户数据秘交FB>-009fcc?logoWidth=1" title="助搜＂极端分子＂　美国银行将客户数据秘交>>" alt="助搜＂极端分子＂　美国银行将客户数据秘交>>"></a></p>
-<p><a href="https://github.com/tyhool308/ntdtv/blob/master/gb/2021/02/05/a103047837.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/24泛民悼念六四被诉 黎智英乘甲级重犯囚车出>-009fcc?logoWidth=1" title="２４泛民悼念六四被诉　黎智英乘甲级重犯囚>>" alt="２４泛民悼念六四被诉　黎智英乘甲级重犯囚>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/tyhool308/djy/blob/master/gb/21/2/5/n12734336.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：拜登正式表态 习近平应很失望     >-009fcc?logoWidth=1" title="钟原：拜登正式表态　习近平应很失望　　　>>" alt="钟原：拜登正式表态　习近平应很失望　　　>>"></a></p>
 <p><a href="https://github.com/tyhool308/djy/blob/master/gb/21/2/4/n12734066.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登政府露底牌？川普预言成真        >-009fcc?logoWidth=1" title="拜登政府露底牌？川普预言成真　　　　　　>>" alt="拜登政府露底牌？川普预言成真　　　　　　>>"></a></p>
@@ -39,17 +39,18 @@
 <p><a href="https://github.com/tyhool308/djy/blob/master/gb/21/2/4/n12733311.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瑞典媒体眼中的“勇敢人”感恩李洪志大师   >-009fcc?logoWidth=1" title="瑞典媒体眼中的＂勇敢人＂感恩李洪志大师　>>" alt="瑞典媒体眼中的＂勇敢人＂感恩李洪志大师　>>"></a></p>
 <p><a href="https://github.com/tyhool308/djy/blob/master/gb/21/2/4/n12733740.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官员访“贫困户”茅台五粮液泄豪奢家底  >-009fcc?logoWidth=1" title="中共官员访＂贫困户＂茅台五粮液泄豪奢家底>>" alt="中共官员访＂贫困户＂茅台五粮液泄豪奢家底>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/tyhool308/ntdtv/blob/master/gb/2021/02/05/a103047463.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/【时事小品】习二傻升官记          >-009fcc?logoWidth=1" title="【时事小品】习二傻升官记　　　　　　　　>>" alt="【时事小品】习二傻升官记　　　　　　　　>>"></a></p>
 <p><a href="https://github.com/tyhool308/ntdtv/blob/master/gb/2021/02/05/a103047351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/特别报告：中共跨国镇压 波及350万人   >-009fcc?logoWidth=1" title="特别报告：中共跨国镇压　波及３５０万人　>>" alt="特别报告：中共跨国镇压　波及３５０万人　>>"></a></p>
-<p><a href="https://github.com/tyhool308/ntdtv/blob/master/gb/2021/02/04/a103046836.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“世界末日时钟”仅剩100秒 人类面临危险 >-009fcc?logoWidth=1" title="＂世界末日时钟＂仅剩１００秒　人类面临危>>" alt="＂世界末日时钟＂仅剩１００秒　人类面临危>>"></a></p>
 <p><a href="https://github.com/tyhool308/djy/blob/master/gb/21/2/4/n12733740.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官员探访“贫困户” 茅台泄豪奢家底 官方>-009fcc?logoWidth=1" title="中共官员探访＂贫困户＂　茅台泄豪奢家底　>>" alt="中共官员探访＂贫困户＂　茅台泄豪奢家底　>>"></a></p>
+<p><a href="https://github.com/tyhool308/ntdtv/blob/master/gb/2021/02/04/a103046836.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“世界末日时钟”仅剩100秒 人类面临危险 >-009fcc?logoWidth=1" title="＂世界末日时钟＂仅剩１００秒　人类面临危>>" alt="＂世界末日时钟＂仅剩１００秒　人类面临危>>"></a></p>
 <p><a href="https://github.com/tyhool308/ntdtv/blob/master/gb/2021/02/05/a103047724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登内阁最强对手 霍利1月筹款创纪录    >-009fcc?logoWidth=1" title="拜登内阁最强对手　霍利１月筹款创纪录　　>>" alt="拜登内阁最强对手　霍利１月筹款创纪录　　>>"></a></p>
 <p><a href="https://github.com/tyhool308/djy/blob/master/gb/21/2/4/n12733613.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习考察“脱贫”后的贵州 运动式治国的背后  >-009fcc?logoWidth=1" title="习考察＂脱贫＂后的贵州　运动式治国的背后>>" alt="习考察＂脱贫＂后的贵州　运动式治国的背后>>"></a></p>
 <p><a href="https://github.com/tyhool308/djy/blob/master/gb/21/2/5/n12734772.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/组图：世卫专家访武汉病毒所 中共如临大敌  >-009fcc?logoWidth=1" title="组图：世卫专家访武汉病毒所　中共如临大敌>>" alt="组图：世卫专家访武汉病毒所　中共如临大敌>>"></a></p>
+<p><a href="https://github.com/tyhool308/ntdtv/blob/master/gb/2021/02/05/a103047734.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/助搜“极端分子” 美国银行将客户数据秘交FB>-009fcc?logoWidth=1" title="助搜＂极端分子＂　美国银行将客户数据秘交>>" alt="助搜＂极端分子＂　美国银行将客户数据秘交>>"></a></p>
 <p><a href="https://github.com/tyhool308/ntdtv/blob/master/gb/2021/02/05/a103047375.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登政府露底牌？川普预言成真        >-009fcc?logoWidth=1" title="拜登政府露底牌？川普预言成真　　　　　　>>" alt="拜登政府露底牌？川普预言成真　　　　　　>>"></a></p>
 <p><a href="https://github.com/tyhool308/djy/blob/master/gb/21/2/5/n12734973.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共施压圭亚那 分析：测试拜登政府底线   >-009fcc?logoWidth=1" title="中共施压圭亚那　分析：测试拜登政府底线　>>" alt="中共施压圭亚那　分析：测试拜登政府底线　>>"></a></p>
 <p><a href="https://github.com/tyhool308/djy/blob/master/gb/21/2/4/n12733065.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆“华夏幸福”爆雷 分析：轮到割大韭菜了 >-009fcc?logoWidth=1" title="大陆＂华夏幸福＂爆雷　分析：轮到割大韭菜>>" alt="大陆＂华夏幸福＂爆雷　分析：轮到割大韭菜>>"></a></p>
 <p><a href="https://github.com/tyhool308/ntdtv/blob/master/gb/2021/02/05/a103047339.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赊刀人预言再现必有大灾相随，2021年10月>-009fcc?logoWidth=1" title="赊刀人预言再现必有大灾相随，２０２１年１>>" alt="赊刀人预言再现必有大灾相随，２０２１年１>>"></a></p>
-<p><a href="https://github.com/tyhool308/ntdtv/blob/master/gb/2021/02/02/a103045247.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/6种食物便宜又有效 你的肝脏很需要     >-009fcc?logoWidth=1" title="６种食物便宜又有效　你的肝脏很需要　　　>>" alt="６种食物便宜又有效　你的肝脏很需要　　　>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -261,9 +262,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://tyhool308.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?aquvo">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?pscds">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ndrlx">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?alvdz">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -307,8 +308,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?jiimo">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?uibtb">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?wbjob">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?khqhh">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -485,12 +486,12 @@
 <hr>
 <div align="center">
 <p><strong><a href="https://github.com/tyhool308/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/tyhool308/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tyhool308/www/blob/master/README.md?z#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/tyhool308/www/blob/master/README.md?r%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=http://t.cn/A6zk6yb7" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/tyhool308/www/blob/master/README.md?s%231" title="分享本平台"></img>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/tyhool308/www/blob/master/README.md?d#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/tyhool308/www/blob/master/README.md?m%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=http://t.cn/A6hs5ojj" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/tyhool308/www/blob/master/README.md?v%231" title="分享本平台"></img>
 <br>
-<a href="https://git.io/cccc8">https://git.io/cccc8</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://bit.ly/ff5ff">https://bit.ly/ff5ff</a>
-&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/9nnn9">https://j.mp/9nnn9</a>
+<a href="https://git.io/dddd2">https://git.io/dddd2</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://bit.ly/uujjj">https://bit.ly/uujjj</a>
+&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/rryyy">https://j.mp/rryyy</a>
 <br>
 <br>
-<h3><a href="https://tyhool308.github.io/vd/qr/qr2/#https://github.com/tyhool308/www/blob/master/README.md?m#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://tyhool308.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/nsxsof363/www/blob/master/README.md%3Fp%231%22%2C%22https://github.com/toqp2112/www/blob/master/README.md%3Fy%231%22%2C%22https://github.com/wiysls362/www/blob/master/README.md%3Fq%231%22%2C%22https://github.com/qnbcdo211/www/blob/master/README.md%3Fs%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://tyhool308.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
+<h3><a href="https://tyhool308.github.io/vd/qr/qr2/#https://github.com/tyhool308/www/blob/master/README.md?o#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://tyhool308.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/rinesu353/www/blob/master/README.md%3Fs%231%22%2C%22https://github.com/ferqxx327/www/blob/master/README.md%3Fb%231%22%2C%22https://github.com/nxlkkb378/www/blob/master/README.md%3Fh%231%22%2C%22https://github.com/lnbrjb3424/www/blob/master/README.md%3Fg%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://tyhool308.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
 </div>
