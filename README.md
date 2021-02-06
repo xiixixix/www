@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/knikkv387/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/knikkv387/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/zrrrr">git.io/zrrrr</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/szzzz">git.io/szzzz</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/knikkv387/ntdtv/blob/master/gb/2021/02/06/a103048330.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/布林肯与杨洁篪通话：将追究中共责任     >-009fcc?logoWidth=1" title="布林肯与杨洁篪通话：将追究中共责任　　　>>" alt="布林肯与杨洁篪通话：将追究中共责任　　　>>"></a></p>
 <p><a href="https://github.com/knikkv387/ntdtv/blob/master/gb/2021/02/06/a103048346.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/神秘预言四度惊现正史 提前一百多年预告“霸王>-009fcc?logoWidth=1" title="神秘预言四度惊现正史　提前一百多年预告＂>>" alt="神秘预言四度惊现正史　提前一百多年预告＂>>"></a></p>
 <p><a href="https://github.com/knikkv387/ntdtv/blob/master/gb/2021/02/06/a103048230.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫专家访武汉与石正丽讨论 疑点越问越多  >-009fcc?logoWidth=1" title="世卫专家访武汉与石正丽讨论　疑点越问越多>>" alt="世卫专家访武汉与石正丽讨论　疑点越问越多>>"></a></p>
+<p><a href="https://github.com/knikkv387/ntdtv/blob/master/gb/2021/02/06/a103048710.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/佩洛西自违禁令绕过安检 共和党人敦促罚款遭拒>-009fcc?logoWidth=1" title="佩洛西自违禁令绕过安检　共和党人敦促罚款>>" alt="佩洛西自违禁令绕过安检　共和党人敦促罚款>>"></a></p>
 <p><a href="https://github.com/knikkv387/ntdtv/blob/master/gb/2021/02/06/a103048724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川普社媒沉寂一月首发帖文 小川普：他将继续战>-009fcc?logoWidth=1" title="川普社媒沉寂一月首发帖文　小川普：他将继>>" alt="川普社媒沉寂一月首发帖文　小川普：他将继>>"></a></p>
 <p><a href="https://github.com/knikkv387/ntdtv/blob/master/gb/2021/02/06/a103048704.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：大疫汹汹 人类会不会重蹈覆辙？   >-009fcc?logoWidth=1" title="李正宽：大疫汹汹　人类会不会重蹈覆辙？　>>" alt="李正宽：大疫汹汹　人类会不会重蹈覆辙？　>>"></a></p>
 <p><a href="https://github.com/knikkv387/ntdtv/blob/master/gb/2021/02/06/a103048559.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/克鲁兹：拜登内阁冲向中共怀抱        >-009fcc?logoWidth=1" title="克鲁兹：拜登内阁冲向中共怀抱　　　　　　>>" alt="克鲁兹：拜登内阁冲向中共怀抱　　　　　　>>"></a></p>
 <p><a href="https://github.com/knikkv387/ntdtv/blob/master/gb/2021/02/06/a103048556.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高能炸药失踪 南加州军事基地疑被盗     >-009fcc?logoWidth=1" title="高能炸药失踪　南加州军事基地疑被盗　　　>>" alt="高能炸药失踪　南加州军事基地疑被盗　　　>>"></a></p>
-<p><a href="https://github.com/knikkv387/ntdtv/blob/master/gb/2021/02/06/a103048608.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被众院委员会除名 格林：很高兴获得更多自由时>-009fcc?logoWidth=1" title="被众院委员会除名　格林：很高兴获得更多自>>" alt="被众院委员会除名　格林：很高兴获得更多自>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/knikkv387/djy/blob/master/gb/21/2/6/n12736566.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平及女儿户籍信息被泄内情 上传人发声  >-009fcc?logoWidth=1" title="习近平及女儿户籍信息被泄内情　上传人发声>>" alt="习近平及女儿户籍信息被泄内情　上传人发声>>"></a></p>
 <p><a href="https://github.com/knikkv387/djy/blob/master/gb/21/2/5/n12735999.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登联盟梦碎 中共战狼秒变脸        >-009fcc?logoWidth=1" title="拜登联盟梦碎　中共战狼秒变脸　　　　　　>>" alt="拜登联盟梦碎　中共战狼秒变脸　　　　　　>>"></a></p>
@@ -259,9 +259,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://knikkv387.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?bgdta">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?uvqzq">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?mmnzz">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?mkwnh">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -305,8 +305,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?marbp">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ulyxf">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?oaxgx">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?eapnt">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -483,12 +483,12 @@
 <hr>
 <div align="center">
 <p><strong><a href="https://github.com/knikkv387/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/knikkv387/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/knikkv387/www/blob/master/README.md?a#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/knikkv387/www/blob/master/README.md?c%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=http://t.cn/A6Z3uEzY" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/knikkv387/www/blob/master/README.md?u%231" title="分享本平台"></img>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/knikkv387/www/blob/master/README.md?e#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/knikkv387/www/blob/master/README.md?f%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=http://t.cn/A6ZMDhXI" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/knikkv387/www/blob/master/README.md?y%231" title="分享本平台"></img>
 <br>
-<a href="https://git.io/zrrrr">https://git.io/zrrrr</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://bit.ly/g999g">https://bit.ly/g999g</a>
-&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/aaaaq">https://j.mp/aaaaq</a>
+<a href="https://git.io/szzzz">https://git.io/szzzz</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://bit.ly/rrrrd">https://bit.ly/rrrrd</a>
+&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/bbbjj">https://j.mp/bbbjj</a>
 <br>
 <br>
-<h3><a href="https://knikkv387.github.io/vd/qr/qr2/#https://github.com/knikkv387/www/blob/master/README.md?u#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://knikkv387.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/qoozsh211/www/blob/master/README.md%3Fw%231%22%2C%22https://github.com/syqanp3655/www/blob/master/README.md%3Fx%231%22%2C%22https://github.com/nekroj3812/www/blob/master/README.md%3Ft%231%22%2C%22https://github.com/ohifsq339/www/blob/master/README.md%3Fo%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://knikkv387.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
+<h3><a href="https://knikkv387.github.io/vd/qr/qr2/#https://github.com/knikkv387/www/blob/master/README.md?r#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://knikkv387.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/cnubuw2345/www/blob/master/README.md%3Fx%231%22%2C%22https://github.com/crlhi259/www/blob/master/README.md%3Fz%231%22%2C%22https://github.com/glqtwk3205/www/blob/master/README.md%3Fp%231%22%2C%22https://github.com/lsjuws344/www/blob/master/README.md%3Fk%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://knikkv387.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
 </div>
