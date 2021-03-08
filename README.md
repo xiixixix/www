@@ -9,22 +9,22 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/coojvy365/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/coojvy365/www/master/t/www.jpg"></a><br>
-<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/hhhhp">git.io/hhhhp</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/bbbbj">git.io/bbbbj</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 个别情况打不开或没显示图片，刷新一下，建议用海外浏览器打开本平台。<br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
-<p><a href="https://github.com/coojvy365/ntdtv/blob/master/gb/2021/03/08/a103069246.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/CNN：习近平找到接班人/“两会”拍马暗藏内>-009fcc?logoWidth=1" title="ＣＮＮ：习近平找到接班人／＂两会＂拍马暗>>" alt="ＣＮＮ：习近平找到接班人／＂两会＂拍马暗>>"></a></p>
+<p><a href="https://github.com/coojvy365/ntdtv/blob/master/gb/2021/03/08/a103069246.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/CNN：习近平找到接班人，就是习      >-009fcc?logoWidth=1" title="ＣＮＮ：习近平找到接班人，就是习　　　　>>" alt="ＣＮＮ：习近平找到接班人，就是习　　　　>>"></a></p>
 <p><a href="https://github.com/coojvy365/ntdtv/blob/master/gb/2021/03/08/a103069142.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平称“平视世界”引热议 王丹：有点散光 >-009fcc?logoWidth=1" title="习近平称＂平视世界＂引热议　王丹：有点散>>" alt="习近平称＂平视世界＂引热议　王丹：有点散>>"></a></p>
 <p><a href="https://github.com/coojvy365/ntdtv/blob/master/gb/2021/03/08/a103069128.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王岐山8提习近平 “两会”拍马暗藏内斗   >-009fcc?logoWidth=1" title="王岐山８提习近平　＂两会＂拍马暗藏内斗　>>" alt="王岐山８提习近平　＂两会＂拍马暗藏内斗　>>"></a></p>
 <p><a href="https://github.com/coojvy365/ntdtv/blob/master/gb/2021/03/08/a103069126.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/赵本山女儿一天花64万 网民：眼睛都不眨  >-009fcc?logoWidth=1" title="赵本山女儿一天花６４万　网民：眼睛都不眨>>" alt="赵本山女儿一天花６４万　网民：眼睛都不眨>>"></a></p>
 <p><a href="https://github.com/coojvy365/ntdtv/blob/master/gb/2021/03/08/a103069106.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆客机爆“空战” 机长与乘务长互殴牙断骨折>-009fcc?logoWidth=1" title="大陆客机爆＂空战＂　机长与乘务长互殴牙断>>" alt="大陆客机爆＂空战＂　机长与乘务长互殴牙断>>"></a></p>
 <p><a href="https://github.com/coojvy365/ntdtv/blob/master/gb/2021/03/08/a103069101.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华为被迫养猪 中共前部长：成制造强国至少需3>-009fcc?logoWidth=1" title="华为被迫养猪　中共前部长：成制造强国至少>>" alt="华为被迫养猪　中共前部长：成制造强国至少>>"></a></p>
 <p><a href="https://github.com/coojvy365/ntdtv/blob/master/gb/2021/02/22/a103059205.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港第3例 接种中国科兴疫苗后死亡     >-009fcc?logoWidth=1" title="香港第３例　接种中国科兴疫苗后死亡　　　>>" alt="香港第３例　接种中国科兴疫苗后死亡　　　>>"></a></p>
-<p><a href="https://github.com/coojvy365/ntdtv/blob/master/gb/2021/03/08/a103069258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港第3例 接种中国科兴疫苗后死亡     >-009fcc?logoWidth=1" title="香港第３例　接种中国科兴疫苗后死亡　　　>>" alt="香港第３例　接种中国科兴疫苗后死亡　　　>>"></a></p>
 <p><a href="https://github.com/coojvy365/ntdtv/blob/master/gb/2021/03/08/a103069251.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/CNN：习近平找到接班人了，他叫习近平   >-009fcc?logoWidth=1" title="ＣＮＮ：习近平找到接班人了，他叫习近平　>>" alt="ＣＮＮ：习近平找到接班人了，他叫习近平　>>"></a></p>
 <p><a href="https://github.com/coojvy365/ntdtv/blob/master/gb/2021/03/08/a103069224.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：中共活摘器官 这笔账总是要算的   >-009fcc?logoWidth=1" title="王友群：中共活摘器官　这笔账总是要算的　>>" alt="王友群：中共活摘器官　这笔账总是要算的　>>"></a></p>
 <p><a href="https://github.com/coojvy365/ntdtv/blob/master/gb/2021/03/08/a103069218.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：疫情下 新唐人国际钢琴大赛意义非凡  >-009fcc?logoWidth=1" title="专家：疫情下　新唐人国际钢琴大赛意义非凡>>" alt="专家：疫情下　新唐人国际钢琴大赛意义非凡>>"></a></p>
+<p><a href="https://github.com/coojvy365/ntdtv/blob/master/gb/2021/03/08/a103069207.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登对中共光说不做？专家忧举棋不定恐酿祸  >-009fcc?logoWidth=1" title="拜登对中共光说不做？专家忧举棋不定恐酿祸>>" alt="拜登对中共光说不做？专家忧举棋不定恐酿祸>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/7/n12795144.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共两会现罕见一幕 习近平桌前有两茶杯   >-009fcc?logoWidth=1" title="中共两会现罕见一幕　习近平桌前有两茶杯　>>" alt="中共两会现罕见一幕　习近平桌前有两茶杯　>>"></a></p>
 <p><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/7/n12795531.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/提议器官捐献率纳入城市考核 人大代表挨轰  >-009fcc?logoWidth=1" title="提议器官捐献率纳入城市考核　人大代表挨轰>>" alt="提议器官捐献率纳入城市考核　人大代表挨轰>>"></a></p>
@@ -40,6 +40,7 @@
 <p><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/7/n12795361.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/盘点拒当“举手机器”的中共人大代表     >-009fcc?logoWidth=1" title="盘点拒当＂举手机器＂的中共人大代表　　　>>" alt="盘点拒当＂举手机器＂的中共人大代表　　　>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/coojvy365/ntdtv/blob/master/gb/2021/03/08/a103069182.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/扭转军方政变局面 缅甸至少9个工会发动全面罢>-009fcc?logoWidth=1" title="扭转军方政变局面　缅甸至少９个工会发动全>>" alt="扭转军方政变局面　缅甸至少９个工会发动全>>"></a></p>
+<p><a href="https://github.com/coojvy365/ntdtv/blob/master/gb/2021/03/08/a103069258.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/香港第3例 接种中国科兴疫苗后死亡     >-009fcc?logoWidth=1" title="香港第３例　接种中国科兴疫苗后死亡　　　>>" alt="香港第３例　接种中国科兴疫苗后死亡　　　>>"></a></p>
 <p><a href="https://github.com/coojvy365/ntdtv/blob/master/gb/2021/03/08/a103069070.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美资深记者：习近平将我逼成了对华强硬派   >-009fcc?logoWidth=1" title="美资深记者：习近平将我逼成了对华强硬派　>>" alt="美资深记者：习近平将我逼成了对华强硬派　>>"></a></p>
 <p><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/7/n12795407.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共前工信部长：成为制造强国至少还需30年 >-009fcc?logoWidth=1" title="中共前工信部长：成为制造强国至少还需３０>>" alt="中共前工信部长：成为制造强国至少还需３０>>"></a></p>
 <p><a href="https://github.com/coojvy365/djy/blob/master/gb/21/3/7/n12795636.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专访反送中前线勇武青年：忧香港未来     >-009fcc?logoWidth=1" title="专访反送中前线勇武青年：忧香港未来　　　>>" alt="专访反送中前线勇武青年：忧香港未来　　　>>"></a></p>
@@ -267,9 +268,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://coojvy365.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?stger">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?vulcw">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?czpwo">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?xqwfa">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -313,8 +314,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?hkjmi">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?lqahg">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?owirr">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?yvllr">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -421,12 +422,12 @@
 <p><strong>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年的腥风血雨，二十多年的凌辱折磨，岁月飞逝，历史见证，迫害善良原本就是违背道义不得民心的...</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;99年中共因法轮功修炼人数超过党员而疯狂镇压，不惜制造一个个谎言，导演天安门自焚案栽赃法轮功，对坚持信仰的学员绑架抄家，用尽酷刑，导致数以百万计的家破人亡、妻离子散！然而中共高估了自己的造假宣传。各国政府纷纷谴责中共暴行，高度肯定法轮功提升道德、净化心灵、强身健体的卓越成效。在国内，声援法轮功的事件此起彼伏。成千上万人为被非法抓捕的学员请愿，演绎了不畏强权反迫害的一幕又一幕。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年过去了。如今法轮功“真善忍”普世价值观，超越民族文化，洪传世界一百多个国家，仅台湾就有八十万人修炼，其主要著作被译成四十多种文字，举世赞誉！而中共江泽民却因罪恶迫害，在海内外被数百万人联署举报，被二十多万人实名起诉。在这场对善良打压中，中共把法制、道德伦理都推向崩溃边缘。民心丧尽、天怒人怨!人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="http://dt2f18xlfsh2p.cloudfront.net/UmhjM" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="http://d3260xquojf1z9.cloudfront.net/UmhjM" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
 </details>
 
 <div align="center">
 <img src="https://raw.githubusercontent.com/coojvy365/www/master/t/01.jpg">
-<h1><strong><a href="http://dt2f18xlfsh2p.cloudfront.net/UmhjM" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
+<h1><strong><a href="http://d3260xquojf1z9.cloudfront.net/UmhjM" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/coojvy365/www/master/t/03.jpg"><br>
@@ -486,17 +487,17 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;于中共无所不在的欺骗洗脑与暴力胁迫下，有多少人放弃了诚实宽厚、仁爱谦和的道德底线，变得见风使舵、落井下石，甚至为一己之私而无恶不作。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;稍微盘点中共的罪恶，让人感到心情无比的沉重。了解了中共，才明白什么叫做罪恶滔天，罄竹难书。</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="http://dt2f18xlfsh2p.cloudfront.net/UmhjM" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="http://d3260xquojf1z9.cloudfront.net/UmhjM" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </strong></p>
 <hr>
 <div align="center">
 <p><strong><a href="https://github.com/coojvy365/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/coojvy365/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/coojvy365/www/blob/master/README.md?q#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/coojvy365/www/blob/master/README.md?z%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=http://t.cn/A6ztbPaQ" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/coojvy365/www/blob/master/README.md?l%231" title="分享本平台"></img>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/coojvy365/www/blob/master/README.md?k#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/coojvy365/www/blob/master/README.md?c%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=http://t.cn/A6ZSjvtQ" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/coojvy365/www/blob/master/README.md?k%231" title="分享本平台"></img>
 <br>
-<a href="https://git.io/hhhhp">https://git.io/hhhhp</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://bit.ly/9999k">https://bit.ly/9999k</a>
-&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/syyys">https://j.mp/syyys</a>
+<a href="https://git.io/bbbbj">https://git.io/bbbbj</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://bit.ly/eeepp">https://bit.ly/eeepp</a>
+&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/iii44">https://j.mp/iii44</a>
 <br>
 <br>
-<h3><a href="https://coojvy365.github.io/vd/qr/qr2/#https://github.com/coojvy365/www/blob/master/README.md?w#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://coojvy365.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/tgeock398/www/blob/master/README.md%3Fn%231%22%2C%22https://github.com/sdujul2815/www/blob/master/README.md%3Fe%231%22%2C%22https://github.com/rgxx210/www/blob/master/README.md%3Fb%231%22%2C%22https://github.com/zszkrj387/www/blob/master/README.md%3Fs%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://coojvy365.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
+<h3><a href="https://coojvy365.github.io/vd/qr/qr2/#https://github.com/coojvy365/www/blob/master/README.md?p#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://coojvy365.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/mvkxau331/www/blob/master/README.md%3Fl%231%22%2C%22https://github.com/bmmgw2934/www/blob/master/README.md%3Fl%231%22%2C%22https://github.com/ipq239/www/blob/master/README.md%3Fs%231%22%2C%22https://github.com/ykuxep306/www/blob/master/README.md%3Fp%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://coojvy365.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
 </div>
