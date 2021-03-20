@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/waxsdm3107/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/waxsdm3107/www/master/t/www.jpg"></a><br>
-<p><details open><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/urrrr">git.io/urrrr</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details open><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/hpppp">git.io/hpppp</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 如果打不开，隔一会儿再刷新一下。<br>  
 </details>
 <br>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/waxsdm3107/ntdtv/blob/master/gb/2021/03/20/a103077611.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪搅局阿拉斯加 分析：习近平对拜登最大试>-009fcc?logoWidth=1" title="杨洁篪搅局阿拉斯加　分析：习近平对拜登最>>" alt="杨洁篪搅局阿拉斯加　分析：习近平对拜登最>>"></a></p>
 <p><a href="https://github.com/waxsdm3107/ntdtv/blob/master/gb/2021/03/20/a103077594.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中高层会晤后美国单方发声明(中文翻译)  >-009fcc?logoWidth=1" title="美中高层会晤后美国单方发声明（中文翻译）>>" alt="美中高层会晤后美国单方发声明（中文翻译）>>"></a></p>
 <p><a href="https://github.com/waxsdm3107/ntdtv/blob/master/gb/2021/03/20/a103077583.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/“西门庆告潘金莲”或逆转？检察官：女辅警无罪>-009fcc?logoWidth=1" title="＂西门庆告潘金莲＂或逆转？检察官：女辅警>>" alt="＂西门庆告潘金莲＂或逆转？检察官：女辅警>>"></a></p>
+<p><a href="https://github.com/waxsdm3107/ntdtv/blob/master/gb/2021/03/20/a103077914.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中会晤后  美方称或放宽中国人签证限制  >-009fcc?logoWidth=1" title="美中会晤后　　美方称或放宽中国人签证限制>>" alt="美中会晤后　　美方称或放宽中国人签证限制>>"></a></p>
 <p><a href="https://github.com/waxsdm3107/ntdtv/blob/master/gb/2021/03/20/a103077913.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/1/3国民接种中国疫苗  智利疫情不降反升 >-009fcc?logoWidth=1" title="１／３国民接种中国疫苗　　智利疫情不降反>>" alt="１／３国民接种中国疫苗　　智利疫情不降反>>"></a></p>
 <p><a href="https://github.com/waxsdm3107/ntdtv/blob/master/gb/2021/03/20/a103077927.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/西安医生打完两剂疫苗仍确诊 专家洗地惹众怒 >-009fcc?logoWidth=1" title="西安医生打完两剂疫苗仍确诊　专家洗地惹众>>" alt="西安医生打完两剂疫苗仍确诊　专家洗地惹众>>"></a></p>
 <p><a href="https://github.com/waxsdm3107/ntdtv/blob/master/gb/2021/03/20/a103077862.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/打中国疫苗两天后  巴基斯坦总理确诊中共肺炎>-009fcc?logoWidth=1" title="打中国疫苗两天后　　巴基斯坦总理确诊中共>>" alt="打中国疫苗两天后　　巴基斯坦总理确诊中共>>"></a></p>
 <p><a href="https://github.com/waxsdm3107/ntdtv/blob/master/gb/2021/03/20/a103077886.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国老人被不打麻药动手术 儿子怒吼（视频） >-009fcc?logoWidth=1" title="中国老人被不打麻药动手术　儿子怒吼（视频>>" alt="中国老人被不打麻药动手术　儿子怒吼（视频>>"></a></p>
-<p><a href="https://github.com/waxsdm3107/ntdtv/blob/master/gb/2021/03/20/a103077738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/马来西亚朝鲜断交 朝鲜外交官被勒令两天内撤离>-009fcc?logoWidth=1" title="马来西亚朝鲜断交　朝鲜外交官被勒令两天内>>" alt="马来西亚朝鲜断交　朝鲜外交官被勒令两天内>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/waxsdm3107/djy/blob/master/gb/21/3/19/n12823243.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/两战狼疯狂布林肯吃惊 习看低拜登？     >-009fcc?logoWidth=1" title="两战狼疯狂布林肯吃惊　习看低拜登？　　　>>" alt="两战狼疯狂布林肯吃惊　习看低拜登？　　　>>"></a></p>
 <p><a href="https://github.com/waxsdm3107/djy/blob/master/gb/21/3/19/n12822410.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/玉清心：弑母案频发 中国社会道德急速崩溃  >-009fcc?logoWidth=1" title="玉清心：弑母案频发　中国社会道德急速崩溃>>" alt="玉清心：弑母案频发　中国社会道德急速崩溃>>"></a></p>
@@ -40,15 +40,13 @@
 <p><a href="https://github.com/waxsdm3107/djy/blob/master/gb/21/3/20/n12824269.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进吹中方阿拉斯加“吵得好” 网民打脸  >-009fcc?logoWidth=1" title="胡锡进吹中方阿拉斯加＂吵得好＂　网民打脸>>" alt="胡锡进吹中方阿拉斯加＂吵得好＂　网民打脸>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/waxsdm3107/ntdtv/blob/master/gb/2021/03/20/a103077571.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江苏军嫂控丈夫和女军人婚外情 阅读量超10亿>-009fcc?logoWidth=1" title="江苏军嫂控丈夫和女军人婚外情　阅读量超１>>" alt="江苏军嫂控丈夫和女军人婚外情　阅读量超１>>"></a></p>
-<p><a href="https://github.com/waxsdm3107/ntdtv/blob/master/gb/2021/03/20/a103077509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪吃泡面 美帝为何不管饭？       >-009fcc?logoWidth=1" title="杨洁篪吃泡面　美帝为何不管饭？　　　　　>>" alt="杨洁篪吃泡面　美帝为何不管饭？　　　　　>>"></a></p>
-<p><a href="https://github.com/waxsdm3107/ntdtv/blob/master/gb/2021/03/20/a103077618.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙古官场强震 6官员同日落马       >-009fcc?logoWidth=1" title="内蒙古官场强震　６官员同日落马　　　　　>>" alt="内蒙古官场强震　６官员同日落马　　　　　>>"></a></p>
 <p><a href="https://github.com/waxsdm3107/djy/blob/master/gb/21/3/20/n12823443.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/川讨薪民工公判照再热传 曝中共统治危机   >-009fcc?logoWidth=1" title="川讨薪民工公判照再热传　曝中共统治危机　>>" alt="川讨薪民工公判照再热传　曝中共统治危机　>>"></a></p>
 <p><a href="https://github.com/waxsdm3107/djy/blob/master/gb/21/3/19/n12822898.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共官媒发杨洁篪“吃泡面”视频 黑美国？  >-009fcc?logoWidth=1" title="中共官媒发杨洁篪＂吃泡面＂视频　黑美国？>>" alt="中共官媒发杨洁篪＂吃泡面＂视频　黑美国？>>"></a></p>
-<p><a href="https://github.com/waxsdm3107/ntdtv/blob/master/gb/2021/03/20/a103077565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫：不会让中方“演戏”分散注意力     >-009fcc?logoWidth=1" title="白宫：不会让中方＂演戏＂分散注意力　　　>>" alt="白宫：不会让中方＂演戏＂分散注意力　　　>>"></a></p>
+<p><a href="https://github.com/waxsdm3107/ntdtv/blob/master/gb/2021/03/20/a103077509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪吃泡面 美帝为何不管饭？       >-009fcc?logoWidth=1" title="杨洁篪吃泡面　美帝为何不管饭？　　　　　>>" alt="杨洁篪吃泡面　美帝为何不管饭？　　　　　>>"></a></p>
+<p><a href="https://github.com/waxsdm3107/ntdtv/blob/master/gb/2021/03/20/a103077618.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内蒙古官场强震 6官员同日落马       >-009fcc?logoWidth=1" title="内蒙古官场强震　６官员同日落马　　　　　>>" alt="内蒙古官场强震　６官员同日落马　　　　　>>"></a></p>
 <p><a href="https://github.com/waxsdm3107/djy/blob/master/gb/21/3/20/n12823422.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中会谈充满火药味背后           >-009fcc?logoWidth=1" title="美中会谈充满火药味背后　　　　　　　　　>>" alt="美中会谈充满火药味背后　　　　　　　　　>>"></a></p>
 <p><a href="https://github.com/waxsdm3107/djy/blob/master/gb/21/3/20/n12823844.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王赫：中美会谈 美方落入中共四个陷阱    >-009fcc?logoWidth=1" title="王赫：中美会谈　美方落入中共四个陷阱　　>>" alt="王赫：中美会谈　美方落入中共四个陷阱　　>>"></a></p>
-<p><a href="https://github.com/waxsdm3107/ntdtv/blob/master/gb/2021/03/20/a103077550.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海洋大战！70杀人鲸围捕16米蓝鲸 缠斗4小>-009fcc?logoWidth=1" title="海洋大战！７０杀人鲸围捕１６米蓝鲸　缠斗>>" alt="海洋大战！７０杀人鲸围捕１６米蓝鲸　缠斗>>"></a></p>
-<p><a href="https://github.com/waxsdm3107/ntdtv/blob/master/gb/2021/03/19/a103076689.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/济南女大学生自杀 遗书曝光：爸爸，放过我吧 >-009fcc?logoWidth=1" title="济南女大学生自杀　遗书曝光：爸爸，放过我>>" alt="济南女大学生自杀　遗书曝光：爸爸，放过我>>"></a></p>
+<p><a href="https://github.com/waxsdm3107/ntdtv/blob/master/gb/2021/03/20/a103077565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/白宫：不会让中方“演戏”分散注意力     >-009fcc?logoWidth=1" title="白宫：不会让中方＂演戏＂分散注意力　　　>>" alt="白宫：不会让中方＂演戏＂分散注意力　　　>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -267,9 +265,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://waxsdm3107.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ggqgz">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?evybn">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?qvexl">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?dtgpu">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -313,8 +311,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?hfpdr">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?szqxh">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?kwmcu">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?sgbta">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -491,12 +489,12 @@
 <hr>
 <div align="center">
 <p><strong><a href="https://github.com/waxsdm3107/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/waxsdm3107/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/waxsdm3107/www/blob/master/README.md?f#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/waxsdm3107/www/blob/master/README.md?c%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=http://t.cn/A6zIpD2A" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/waxsdm3107/www/blob/master/README.md?m%231" title="分享本平台"></img>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/waxsdm3107/www/blob/master/README.md?e#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/waxsdm3107/www/blob/master/README.md?l%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=http://t.cn/A6ZkqkBw" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/waxsdm3107/www/blob/master/README.md?g%231" title="分享本平台"></img>
 <br>
-<a href="https://git.io/urrrr">https://git.io/urrrr</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://bit.ly/uuuu2">https://bit.ly/uuuu2</a>
-&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/vv8vv">https://j.mp/vv8vv</a>
+<a href="https://git.io/hpppp">https://git.io/hpppp</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://bit.ly/b6666">https://bit.ly/b6666</a>
+&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/4444b">https://j.mp/4444b</a>
 <br>
 <br>
-<h3><a href="https://waxsdm3107.github.io/vd/qr/qr2/#https://github.com/waxsdm3107/www/blob/master/README.md?a#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://waxsdm3107.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/hhzeoc3486/www/blob/master/README.md%3Fd%231%22%2C%22https://github.com/senfqo3954/www/blob/master/README.md%3Fh%231%22%2C%22https://github.com/ublry267/www/blob/master/README.md%3Fh%231%22%2C%22https://github.com/eiemjl335/www/blob/master/README.md%3Ff%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://waxsdm3107.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
+<h3><a href="https://waxsdm3107.github.io/vd/qr/qr2/#https://github.com/waxsdm3107/www/blob/master/README.md?j#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://waxsdm3107.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/zmvsty371/www/blob/master/README.md%3Fp%231%22%2C%22https://github.com/ttdnyr3079/www/blob/master/README.md%3Fn%231%22%2C%22https://github.com/fxljth3580/www/blob/master/README.md%3Fz%231%22%2C%22https://github.com/wicklt351/www/blob/master/README.md%3Fw%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://waxsdm3107.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
 </div>
