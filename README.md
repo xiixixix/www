@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/loyxaz397/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/loyxaz397/www/master/t/www.jpg"></a><br>
-<p><details open><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/ggggq">git.io/ggggq</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details open><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/tmmmm">git.io/tmmmm</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 如果打不开，隔一会儿再刷新一下。<br>  
 </details>
 <br>
@@ -26,22 +26,24 @@
 <p><a href="https://github.com/loyxaz397/ntdtv/blob/master/gb/2021/04/04/a103088425.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹“不便透露” 挺新疆虚构记者原是央视主>-009fcc?logoWidth=1" title="华春莹＂不便透露＂　挺新疆虚构记者原是央>>" alt="华春莹＂不便透露＂　挺新疆虚构记者原是央>>"></a></p>
 <p><a href="https://github.com/loyxaz397/ntdtv/blob/master/gb/2021/04/03/a103088201.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美职棒移出亚特兰大 克鲁兹反击       >-009fcc?logoWidth=1" title="美职棒移出亚特兰大　克鲁兹反击　　　　　>>" alt="美职棒移出亚特兰大　克鲁兹反击　　　　　>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/loyxaz397/djy/blob/master/gb/21/4/3/n12855501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共惹毛华尔街？五国海军军演        >-009fcc?logoWidth=1" title="中共惹毛华尔街？五国海军军演　　　　　　>>" alt="中共惹毛华尔街？五国海军军演　　　　　　>>"></a></p>
-<p><a href="https://github.com/loyxaz397/djy/blob/master/gb/21/4/1/n12852292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/史前杰作？月亮七大谜团（下）        >-009fcc?logoWidth=1" title="史前杰作？月亮七大谜团（下）　　　　　　>>" alt="史前杰作？月亮七大谜团（下）　　　　　　>>"></a></p>
 <p><a href="https://github.com/loyxaz397/djy/blob/master/gb/21/4/3/n12856757.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习把媒体变战场 中国公民最危险       >-009fcc?logoWidth=1" title="习把媒体变战场　中国公民最危险　　　　　>>" alt="习把媒体变战场　中国公民最危险　　　　　>>"></a></p>
+<p><a href="https://github.com/loyxaz397/djy/blob/master/gb/21/4/3/n12856203.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/差了100万人%3F!  中共统计维族人口前后不>-009fcc?logoWidth=1" title="差了１００万人？！　　中共统计维族人口前>>" alt="差了１００万人？！　　中共统计维族人口前>>"></a></p>
+<p><a href="https://github.com/loyxaz397/djy/blob/master/gb/21/4/3/n12856596.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆备孕人员被逼打疫苗 官媒忽改口引不满  >-009fcc?logoWidth=1" title="大陆备孕人员被逼打疫苗　官媒忽改口引不满>>" alt="大陆备孕人员被逼打疫苗　官媒忽改口引不满>>"></a></p>
+<p><a href="https://github.com/loyxaz397/djy/blob/master/gb/21/4/3/n12856254.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/康奈尔大学教授投票 推翻北大合作中资项目  >-009fcc?logoWidth=1" title="康奈尔大学教授投票　推翻北大合作中资项目>>" alt="康奈尔大学教授投票　推翻北大合作中资项目>>"></a></p>
 <p><a href="https://github.com/loyxaz397/djy/blob/master/gb/21/4/2/n12855290.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：第四任中共党魁秦邦宪的最后结局   >-009fcc?logoWidth=1" title="王友群：第四任中共党魁秦邦宪的最后结局　>>" alt="王友群：第四任中共党魁秦邦宪的最后结局　>>"></a></p>
-<p><a href="https://github.com/loyxaz397/djy/blob/master/gb/21/4/3/n12856558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共甩锅缅甸难掩大陆疫情爆发     >-009fcc?logoWidth=1" title="钟原：中共甩锅缅甸难掩大陆疫情爆发　　　>>" alt="钟原：中共甩锅缅甸难掩大陆疫情爆发　　　>>"></a></p>
-<p><a href="https://github.com/loyxaz397/djy/blob/master/gb/21/4/2/n12855178.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王伟撞机真相？中共高调纪念露馅       >-009fcc?logoWidth=1" title="王伟撞机真相？中共高调纪念露馅　　　　　>>" alt="王伟撞机真相？中共高调纪念露馅　　　　　>>"></a></p>
-<p><a href="https://github.com/loyxaz397/djy/blob/master/gb/21/4/3/n12856368.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平悼太鲁阁号事故 中共军机再扰台    >-009fcc?logoWidth=1" title="习近平悼太鲁阁号事故　中共军机再扰台　　>>" alt="习近平悼太鲁阁号事故　中共军机再扰台　　>>"></a></p>
+<p><a href="https://github.com/loyxaz397/djy/blob/master/gb/21/4/3/n12855501.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共惹毛华尔街？五国海军军演        >-009fcc?logoWidth=1" title="中共惹毛华尔街？五国海军军演　　　　　　>>" alt="中共惹毛华尔街？五国海军军演　　　　　　>>"></a></p>
+<p><a href="https://github.com/loyxaz397/djy/blob/master/gb/21/4/2/n12854435.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：拜登美式大跃进有个“拦路虎”    >-009fcc?logoWidth=1" title="何清涟：拜登美式大跃进有个＂拦路虎＂　　>>" alt="何清涟：拜登美式大跃进有个＂拦路虎＂　　>>"></a></p>
 <p><a href="https://github.com/loyxaz397/djy/blob/master/gb/21/4/1/n12851523.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/文件泄苏州当局瞒报多起事件         >-009fcc?logoWidth=1" title="文件泄苏州当局瞒报多起事件　　　　　　　>>" alt="文件泄苏州当局瞒报多起事件　　　　　　　>>"></a></p>
 <p><a href="https://github.com/loyxaz397/djy/blob/master/gb/21/4/2/n12855045.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆房产开发商陷资金困境 烂尾楼激增    >-009fcc?logoWidth=1" title="大陆房产开发商陷资金困境　烂尾楼激增　　>>" alt="大陆房产开发商陷资金困境　烂尾楼激增　　>>"></a></p>
 <p><a href="https://github.com/loyxaz397/djy/blob/master/gb/21/4/3/n12856782.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/克鲁兹反击职棒 中共造假记者穿帮      >-009fcc?logoWidth=1" title="克鲁兹反击职棒　中共造假记者穿帮　　　　>>" alt="克鲁兹反击职棒　中共造假记者穿帮　　　　>>"></a></p>
-<p><a href="https://github.com/loyxaz397/djy/blob/master/gb/21/4/2/n12854435.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/何清涟：拜登美式大跃进有个“拦路虎”    >-009fcc?logoWidth=1" title="何清涟：拜登美式大跃进有个＂拦路虎＂　　>>" alt="何清涟：拜登美式大跃进有个＂拦路虎＂　　>>"></a></p>
-<p><a href="https://github.com/loyxaz397/djy/blob/master/gb/21/4/3/n12856612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：华为业绩增长 为何增率陷10年最低？ >-009fcc?logoWidth=1" title="分析：华为业绩增长　为何增率陷１０年最低>>" alt="分析：华为业绩增长　为何增率陷１０年最低>>"></a></p>
+<p><a href="https://github.com/loyxaz397/djy/blob/master/gb/21/4/1/n12852292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/史前杰作？月亮七大谜团（下）        >-009fcc?logoWidth=1" title="史前杰作？月亮七大谜团（下）　　　　　　>>" alt="史前杰作？月亮七大谜团（下）　　　　　　>>"></a></p>
+<p><a href="https://github.com/loyxaz397/djy/blob/master/gb/21/4/3/n12856558.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/钟原：中共甩锅缅甸难掩大陆疫情爆发     >-009fcc?logoWidth=1" title="钟原：中共甩锅缅甸难掩大陆疫情爆发　　　>>" alt="钟原：中共甩锅缅甸难掩大陆疫情爆发　　　>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/loyxaz397/ntdtv/blob/master/gb/2021/04/04/a103088397.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/红朝王妃的命运早被预言注定！神奇的“相骨”之>-009fcc?logoWidth=1" title="红朝王妃的命运早被预言注定！神奇的＂相骨>>" alt="红朝王妃的命运早被预言注定！神奇的＂相骨>>"></a></p>
 <p><a href="https://github.com/loyxaz397/djy/blob/master/gb/21/4/3/n12856249.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南宫密接义工隔离至今 诉心声        >-009fcc?logoWidth=1" title="南宫密接义工隔离至今　诉心声　　　　　　>>" alt="南宫密接义工隔离至今　诉心声　　　　　　>>"></a></p>
 <p><a href="https://github.com/loyxaz397/ntdtv/blob/master/gb/2021/04/03/a103088038.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国疫苗你想知道的7个问题         >-009fcc?logoWidth=1" title="中国疫苗你想知道的７个问题　　　　　　　>>" alt="中国疫苗你想知道的７个问题　　　　　　　>>"></a></p>
+<p><a href="https://github.com/loyxaz397/djy/blob/master/gb/21/4/3/n12856368.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平悼太鲁阁号事故 中共军机再扰台    >-009fcc?logoWidth=1" title="习近平悼太鲁阁号事故　中共军机再扰台　　>>" alt="习近平悼太鲁阁号事故　中共军机再扰台　　>>"></a></p>
+<p><a href="https://github.com/loyxaz397/djy/blob/master/gb/21/4/3/n12856612.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：华为业绩增长 为何增率陷10年最低？ >-009fcc?logoWidth=1" title="分析：华为业绩增长　为何增率陷１０年最低>>" alt="分析：华为业绩增长　为何增率陷１０年最低>>"></a></p>
 <p><a href="https://github.com/loyxaz397/ntdtv/blob/master/gb/2021/04/03/a103087963.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台铁事故 80国政要慰问 习近平头衔惹疑  >-009fcc?logoWidth=1" title="台铁事故　８０国政要慰问　习近平头衔惹疑>>" alt="台铁事故　８０国政要慰问　习近平头衔惹疑>>"></a></p>
 <p><a href="https://github.com/loyxaz397/ntdtv/blob/master/gb/2021/04/03/a103088197.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/马国外长称王毅“大哥”挨批 被指贪腐前首相堂>-009fcc?logoWidth=1" title="马国外长称王毅＂大哥＂挨批　被指贪腐前首>>" alt="马国外长称王毅＂大哥＂挨批　被指贪腐前首>>"></a></p>
 <p><a href="https://github.com/loyxaz397/djy/blob/master/gb/21/4/2/n12853565.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：中共如何全面统战台湾         >-009fcc?logoWidth=1" title="分析：中共如何全面统战台湾　　　　　　　>>" alt="分析：中共如何全面统战台湾　　　　　　　>>"></a></p>
@@ -266,9 +268,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://loyxaz397.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?kqphh">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?khuvl">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?rtyso">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?bmznq">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -312,8 +314,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?xzzas">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?tfaio">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?myfhh">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?cjctf">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -490,12 +492,12 @@
 <hr>
 <div align="center">
 <p><strong><a href="https://github.com/loyxaz397/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/loyxaz397/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/loyxaz397/www/blob/master/README.md?l#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/loyxaz397/www/blob/master/README.md?y%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://bit.ly/s6666" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/loyxaz397/www/blob/master/README.md?h%231" title="分享本平台"></img>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/loyxaz397/www/blob/master/README.md?c#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/loyxaz397/www/blob/master/README.md?g%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://bit.ly/bb7bb" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/loyxaz397/www/blob/master/README.md?a%231" title="分享本平台"></img>
 <br>
-<a href="https://git.io/ggggq">https://git.io/ggggq</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://bit.ly/s6666">https://bit.ly/s6666</a>
-&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/6zzz6">https://j.mp/6zzz6</a>
+<a href="https://git.io/tmmmm">https://git.io/tmmmm</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://bit.ly/bb7bb">https://bit.ly/bb7bb</a>
+&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/5sss5">https://j.mp/5sss5</a>
 <br>
 <br>
-<h3><a href="https://loyxaz397.github.io/vd/qr/qr2/#https://github.com/loyxaz397/www/blob/master/README.md?f#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://loyxaz397.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/nbjhgz3458/www/blob/master/README.md%3Fr%231%22%2C%22https://github.com/mdeswy3230/www/blob/master/README.md%3Fl%231%22%2C%22https://github.com/cfzsql364/www/blob/master/README.md%3Ff%231%22%2C%22https://github.com/dzzssy286/www/blob/master/README.md%3Fz%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://loyxaz397.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
+<h3><a href="https://loyxaz397.github.io/vd/qr/qr2/#https://github.com/loyxaz397/www/blob/master/README.md?g#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://loyxaz397.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/zfyjih353/www/blob/master/README.md%3Fh%231%22%2C%22https://github.com/pwewdg396/www/blob/master/README.md%3Fi%231%22%2C%22https://github.com/akypvc391/www/blob/master/README.md%3Fs%231%22%2C%22https://github.com/ltyfq284/www/blob/master/README.md%3Ff%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://loyxaz397.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
 </div>
