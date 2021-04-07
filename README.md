@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/wziqcp3854/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/wziqcp3854/www/master/t/www.jpg"></a><br>
-<p><details open><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/jjjj2">git.io/jjjj2</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details open><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/rrrr7">git.io/rrrr7</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 如果打不开，隔一会儿再刷新一下。<br>  
 </details>
 <br>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/wziqcp3854/ntdtv/blob/master/gb/2021/04/07/a103090488.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/挑动民族情绪失败？王毅新“金句”引炮轰   >-009fcc?logoWidth=1" title="挑动民族情绪失败？王毅新＂金句＂引炮轰　>>" alt="挑动民族情绪失败？王毅新＂金句＂引炮轰　>>"></a></p>
 <p><a href="https://github.com/wziqcp3854/ntdtv/blob/master/gb/2021/04/06/a103090441.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南京大学碎尸案家属提告一周撤诉：压力太大  >-009fcc?logoWidth=1" title="南京大学碎尸案家属提告一周撤诉：压力太大>>" alt="南京大学碎尸案家属提告一周撤诉：压力太大>>"></a></p>
 <p><a href="https://github.com/wziqcp3854/ntdtv/blob/master/gb/2021/04/06/a103090347.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅称不接受“高人一等国家” 评论翻车指向中>-009fcc?logoWidth=1" title="王毅称不接受＂高人一等国家＂　评论翻车指>>" alt="王毅称不接受＂高人一等国家＂　评论翻车指>>"></a></p>
+<p><a href="https://github.com/wziqcp3854/ntdtv/blob/master/gb/2021/04/07/a103090625.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本罕见对中共强硬 专家：与台湾有关    >-009fcc?logoWidth=1" title="日本罕见对中共强硬　专家：与台湾有关　　>>" alt="日本罕见对中共强硬　专家：与台湾有关　　>>"></a></p>
 <p><a href="https://github.com/wziqcp3854/ntdtv/blob/master/gb/2021/04/07/a103090568.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/怵目惊心 太鲁阁号最后车厢“支离破碎”拖出隧>-009fcc?logoWidth=1" title="怵目惊心　太鲁阁号最后车厢＂支离破碎＂拖>>" alt="怵目惊心　太鲁阁号最后车厢＂支离破碎＂拖>>"></a></p>
 <p><a href="https://github.com/wziqcp3854/ntdtv/blob/master/gb/2021/04/07/a103090522.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭中共海上无赖战法 白宫拒疫苗护照     >-009fcc?logoWidth=1" title="揭中共海上无赖战法　白宫拒疫苗护照　　　>>" alt="揭中共海上无赖战法　白宫拒疫苗护照　　　>>"></a></p>
 <p><a href="https://github.com/wziqcp3854/ntdtv/blob/master/gb/2021/04/07/a103090521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/只用台湾防疫物资 所罗门省长拒中共行贿   >-009fcc?logoWidth=1" title="只用台湾防疫物资　所罗门省长拒中共行贿　>>" alt="只用台湾防疫物资　所罗门省长拒中共行贿　>>"></a></p>
 <p><a href="https://github.com/wziqcp3854/ntdtv/blob/master/gb/2021/03/22/a103078521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝大陆居民打疫苗亡 官方不报导      >-009fcc?logoWidth=1" title="网曝大陆居民打疫苗亡　官方不报导　　　　>>" alt="网曝大陆居民打疫苗亡　官方不报导　　　　>>"></a></p>
-<p><a href="https://github.com/wziqcp3854/ntdtv/blob/master/gb/2021/04/07/a103090492.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/死不起葬不起 大陆殡葬业高暴利       >-009fcc?logoWidth=1" title="死不起葬不起　大陆殡葬业高暴利　　　　　>>" alt="死不起葬不起　大陆殡葬业高暴利　　　　　>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/wziqcp3854/djy/blob/master/gb/21/4/6/n12862505.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/武汉陵园挤爆 王毅一句话网络炸锅      >-009fcc?logoWidth=1" title="武汉陵园挤爆　王毅一句话网络炸锅　　　　>>" alt="武汉陵园挤爆　王毅一句话网络炸锅　　　　>>"></a></p>
 <p><a href="https://github.com/wziqcp3854/djy/blob/master/gb/21/4/6/n12862143.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/沈舟：中共航母公开挑衅却又示弱？      >-009fcc?logoWidth=1" title="沈舟：中共航母公开挑衅却又示弱？　　　　>>" alt="沈舟：中共航母公开挑衅却又示弱？　　　　>>"></a></p>
@@ -44,6 +44,7 @@
 <p><a href="https://github.com/wziqcp3854/ntdtv/blob/master/gb/2021/04/06/a103089728.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/江苏婆婆迎儿媳入门 发现新娘竟是亲生女   >-009fcc?logoWidth=1" title="江苏婆婆迎儿媳入门　发现新娘竟是亲生女　>>" alt="江苏婆婆迎儿媳入门　发现新娘竟是亲生女　>>"></a></p>
 <p><a href="https://github.com/wziqcp3854/djy/blob/master/gb/21/4/6/n12861593.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/弗洛伊德案你所不知道的过程         >-009fcc?logoWidth=1" title="弗洛伊德案你所不知道的过程　　　　　　　>>" alt="弗洛伊德案你所不知道的过程　　　　　　　>>"></a></p>
 <p><a href="https://github.com/wziqcp3854/ntdtv/blob/master/gb/2021/04/06/a103090168.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/烧五星旗戴噤声面具 缅甸人抗议中共阻国际谴责>-009fcc?logoWidth=1" title="烧五星旗戴噤声面具　缅甸人抗议中共阻国际>>" alt="烧五星旗戴噤声面具　缅甸人抗议中共阻国际>>"></a></p>
+<p><a href="https://github.com/wziqcp3854/ntdtv/blob/master/gb/2021/04/07/a103090492.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/死不起葬不起 大陆殡葬业高暴利       >-009fcc?logoWidth=1" title="死不起葬不起　大陆殡葬业高暴利　　　　　>>" alt="死不起葬不起　大陆殡葬业高暴利　　　　　>>"></a></p>
 <p><a href="https://github.com/wziqcp3854/djy/blob/master/gb/21/4/6/n12861292.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/成都新房室内跃层仅高1米3 业主跪着走   >-009fcc?logoWidth=1" title="成都新房室内跃层仅高１米３　业主跪着走　>>" alt="成都新房室内跃层仅高１米３　业主跪着走　>>"></a></p>
 <p><a href="https://github.com/wziqcp3854/ntdtv/blob/master/gb/2021/04/06/a103090230.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/托马斯大法官：社交媒体公司即将面临清算   >-009fcc?logoWidth=1" title="托马斯大法官：社交媒体公司即将面临清算　>>" alt="托马斯大法官：社交媒体公司即将面临清算　>>"></a></p>
 <p><a href="https://github.com/wziqcp3854/ntdtv/blob/master/gb/2021/04/06/a103090308.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网曝大陆居民打疫苗亡 官方甩锅“基础病”(视>-009fcc?logoWidth=1" title="网曝大陆居民打疫苗亡　官方甩锅＂基础病＂>>" alt="网曝大陆居民打疫苗亡　官方甩锅＂基础病＂>>"></a></p>
@@ -269,9 +270,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://wziqcp3854.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?nwjks">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?fdywe">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?aayyf">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?yswpv">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -315,8 +316,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?klnmw">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?gytjy">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?yyywa">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?hvfsw">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -493,12 +494,12 @@
 <hr>
 <div align="center">
 <p><strong><a href="https://github.com/wziqcp3854/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/wziqcp3854/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wziqcp3854/www/blob/master/README.md?s#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/wziqcp3854/www/blob/master/README.md?u%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://bit.ly/aaarr" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/wziqcp3854/www/blob/master/README.md?b%231" title="分享本平台"></img>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/wziqcp3854/www/blob/master/README.md?y#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/wziqcp3854/www/blob/master/README.md?c%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://bit.ly/ggddd" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/wziqcp3854/www/blob/master/README.md?i%231" title="分享本平台"></img>
 <br>
-<a href="https://git.io/jjjj2">https://git.io/jjjj2</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://bit.ly/aaarr">https://bit.ly/aaarr</a>
-&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/q666q">https://j.mp/q666q</a>
+<a href="https://git.io/rrrr7">https://git.io/rrrr7</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://bit.ly/ggddd">https://bit.ly/ggddd</a>
+&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/4vvvv">https://j.mp/4vvvv</a>
 <br>
 <br>
-<h3><a href="https://wziqcp3854.github.io/vd/qr/qr2/#https://github.com/wziqcp3854/www/blob/master/README.md?b#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://wziqcp3854.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/zx2957/www/blob/master/README.md%3Fz%231%22%2C%22https://github.com/kigtks3814/www/blob/master/README.md%3Fc%231%22%2C%22https://github.com/unusjz360/www/blob/master/README.md%3Fq%231%22%2C%22https://github.com/gzqcfn374/www/blob/master/README.md%3Fs%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://wziqcp3854.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
+<h3><a href="https://wziqcp3854.github.io/vd/qr/qr2/#https://github.com/wziqcp3854/www/blob/master/README.md?o#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://wziqcp3854.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/wbcvav387/www/blob/master/README.md%3Fy%231%22%2C%22https://github.com/pxexow3039/www/blob/master/README.md%3Ft%231%22%2C%22https://github.com/icmgze2870/www/blob/master/README.md%3Fn%231%22%2C%22https://github.com/dxiqxf361/www/blob/master/README.md%3Ft%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://wziqcp3854.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
 </div>
