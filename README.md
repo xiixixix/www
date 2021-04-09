@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/shlovk385/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/shlovk385/www/master/t/www.jpg"></a><br>
-<p><details open><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/nnnng">git.io/nnnng</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details open><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/ppppi">git.io/ppppi</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 如果打不开，隔一会儿再刷新一下。<br>  
 </details>
 <br>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/shlovk385/ntdtv/blob/master/gb/2021/04/08/a103091671.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/华春莹公开说谎 被一段视频戳破       >-009fcc?logoWidth=1" title="华春莹公开说谎　被一段视频戳破　　　　　>>" alt="华春莹公开说谎　被一段视频戳破　　　　　>>"></a></p>
 <p><a href="https://github.com/shlovk385/ntdtv/blob/master/gb/2021/04/08/a103091641.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/震撼爆料：杨洁篪妻女在美信息查实 或涉偷税 >-009fcc?logoWidth=1" title="震撼爆料：杨洁篪妻女在美信息查实　或涉偷>>" alt="震撼爆料：杨洁篪妻女在美信息查实　或涉偷>>"></a></p>
 <p><a href="https://github.com/shlovk385/ntdtv/blob/master/gb/2021/04/08/a103091618.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨洁篪妻女在美信息查实/陈敏尔仕途有变？  >-009fcc?logoWidth=1" title="杨洁篪妻女在美信息查实／陈敏尔仕途有变？>>" alt="杨洁篪妻女在美信息查实／陈敏尔仕途有变？>>"></a></p>
+<p><a href="https://github.com/shlovk385/ntdtv/blob/master/gb/2021/04/09/a103092100.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/抵制奥运 美退缩 国会女死因爆光      >-009fcc?logoWidth=1" title="抵制奥运　美退缩　国会女死因爆光　　　　>>" alt="抵制奥运　美退缩　国会女死因爆光　　　　>>"></a></p>
+<p><a href="https://github.com/shlovk385/ntdtv/blob/master/gb/2021/04/09/a103092095.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/3月份 至少99名法轮功学员遭冤判     >-009fcc?logoWidth=1" title="３月份　至少９９名法轮功学员遭冤判　　　>>" alt="３月份　至少９９名法轮功学员遭冤判　　　>>"></a></p>
+<p><a href="https://github.com/shlovk385/ntdtv/blob/master/gb/2021/04/09/a103092063.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/山东强奸幼女案 传公安抓受害人未果 探望者遭>-009fcc?logoWidth=1" title="山东强奸幼女案　传公安抓受害人未果　探望>>" alt="山东强奸幼女案　传公安抓受害人未果　探望>>"></a></p>
 <p><a href="https://github.com/shlovk385/ntdtv/blob/master/gb/2021/04/08/a103091724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为过去的沉默后悔 缅甸人在军政府暴力下觉醒 >-009fcc?logoWidth=1" title="为过去的沉默后悔　缅甸人在军政府暴力下觉>>" alt="为过去的沉默后悔　缅甸人在军政府暴力下觉>>"></a></p>
 <p><a href="https://github.com/shlovk385/ntdtv/blob/master/gb/2021/03/22/a103078521.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/打中国疫苗后 菲总统卫队126人确诊    >-009fcc?logoWidth=1" title="打中国疫苗后　菲总统卫队１２６人确诊　　>>" alt="打中国疫苗后　菲总统卫队１２６人确诊　　>>"></a></p>
-<p><a href="https://github.com/shlovk385/ntdtv/blob/master/gb/2021/04/08/a103091974.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北斗系统掉线出人命 中共定位技术再受质疑  >-009fcc?logoWidth=1" title="北斗系统掉线出人命　中共定位技术再受质疑>>" alt="北斗系统掉线出人命　中共定位技术再受质疑>>"></a></p>
-<p><a href="https://github.com/shlovk385/ntdtv/blob/master/gb/2021/04/08/a103091970.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美中航母对阵台海 余茂春赞同美奉行“战略清晰>-009fcc?logoWidth=1" title="美中航母对阵台海　余茂春赞同美奉行＂战略>>" alt="美中航母对阵台海　余茂春赞同美奉行＂战略>>"></a></p>
-<p><a href="https://github.com/shlovk385/ntdtv/blob/master/gb/2021/04/08/a103091947.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拒中资稀土开采项目 格陵兰岛选举变天    >-009fcc?logoWidth=1" title="拒中资稀土开采项目　格陵兰岛选举变天　　>>" alt="拒中资稀土开采项目　格陵兰岛选举变天　　>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/shlovk385/djy/blob/master/gb/21/4/8/n12867819.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/日本对中共政策方向性转折 专家揭深层原因  >-009fcc?logoWidth=1" title="日本对中共政策方向性转折　专家揭深层原因>>" alt="日本对中共政策方向性转折　专家揭深层原因>>"></a></p>
 <p><a href="https://github.com/shlovk385/djy/blob/master/gb/21/4/8/n12867255.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美祭新禁令 中国超级计算机七实体上黑名单  >-009fcc?logoWidth=1" title="美祭新禁令　中国超级计算机七实体上黑名单>>" alt="美祭新禁令　中国超级计算机七实体上黑名单>>"></a></p>
@@ -42,6 +42,7 @@
 <p><a href="https://github.com/shlovk385/djy/blob/master/gb/21/4/8/n12867732.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共北斗系统背后的敛财术 货车司机爆更多内幕>-009fcc?logoWidth=1" title="中共北斗系统背后的敛财术　货车司机爆更多>>" alt="中共北斗系统背后的敛财术　货车司机爆更多>>"></a></p>
 <p><a href="https://github.com/shlovk385/ntdtv/blob/master/gb/2021/04/08/a103091582.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/陈敏尔仕途有变？重庆市委秘书长异动引猜测  >-009fcc?logoWidth=1" title="陈敏尔仕途有变？重庆市委秘书长异动引猜测>>" alt="陈敏尔仕途有变？重庆市委秘书长异动引猜测>>"></a></p>
 <p><a href="https://github.com/shlovk385/ntdtv/blob/master/gb/2021/04/08/a103091733.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伊朗货船红海爆炸 美官员: 以色列干的   >-009fcc?logoWidth=1" title="伊朗货船红海爆炸　美官员：　以色列干的　>>" alt="伊朗货船红海爆炸　美官员：　以色列干的　>>"></a></p>
+<p><a href="https://github.com/shlovk385/ntdtv/blob/master/gb/2021/04/08/a103091974.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北斗系统掉线出人命 中共定位技术再受质疑  >-009fcc?logoWidth=1" title="北斗系统掉线出人命　中共定位技术再受质疑>>" alt="北斗系统掉线出人命　中共定位技术再受质疑>>"></a></p>
 <p><a href="https://github.com/shlovk385/djy/blob/master/gb/21/4/8/n12867475.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：江泽民“四二五”的信及其严重后果  >-009fcc?logoWidth=1" title="王友群：江泽民＂四二五＂的信及其严重后果>>" alt="王友群：江泽民＂四二五＂的信及其严重后果>>"></a></p>
 <p><a href="https://github.com/shlovk385/djy/blob/master/gb/21/4/8/n12867482.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大陆再有环保志愿者出事 失联前视频揭非法排污>-009fcc?logoWidth=1" title="大陆再有环保志愿者出事　失联前视频揭非法>>" alt="大陆再有环保志愿者出事　失联前视频揭非法>>"></a></p>
 <p><a href="https://github.com/shlovk385/ntdtv/blob/master/gb/2021/04/08/a103091675.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/你为什么会穷？银行用这7步偷走你的钱    >-009fcc?logoWidth=1" title="你为什么会穷？银行用这７步偷走你的钱　　>>" alt="你为什么会穷？银行用这７步偷走你的钱　　>>"></a></p>
@@ -267,9 +268,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://shlovk385.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?skofb">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?xaiog">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?vgang">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?qfmkr">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -313,8 +314,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?sgmht">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?gkijr">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?uuwyn">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ispxg">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -491,12 +492,12 @@
 <hr>
 <div align="center">
 <p><strong><a href="https://github.com/shlovk385/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/shlovk385/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/shlovk385/www/blob/master/README.md?k#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/shlovk385/www/blob/master/README.md?w%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://bit.ly/idddd" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/shlovk385/www/blob/master/README.md?v%231" title="分享本平台"></img>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/shlovk385/www/blob/master/README.md?i#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/shlovk385/www/blob/master/README.md?x%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://bit.ly/22vvv" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/shlovk385/www/blob/master/README.md?l%231" title="分享本平台"></img>
 <br>
-<a href="https://git.io/nnnng">https://git.io/nnnng</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://bit.ly/idddd">https://bit.ly/idddd</a>
-&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/333ff">https://j.mp/333ff</a>
+<a href="https://git.io/ppppi">https://git.io/ppppi</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://bit.ly/22vvv">https://bit.ly/22vvv</a>
+&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/7ddd7">https://j.mp/7ddd7</a>
 <br>
 <br>
-<h3><a href="https://shlovk385.github.io/vd/qr/qr2/#https://github.com/shlovk385/www/blob/master/README.md?u#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://shlovk385.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/hp202/www/blob/master/README.md%3Fi%231%22%2C%22https://github.com/avlfge336/www/blob/master/README.md%3Fe%231%22%2C%22https://github.com/qbshnk333/www/blob/master/README.md%3Fb%231%22%2C%22https://github.com/ndmpxu3731/www/blob/master/README.md%3Fu%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://shlovk385.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
+<h3><a href="https://shlovk385.github.io/vd/qr/qr2/#https://github.com/shlovk385/www/blob/master/README.md?v#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://shlovk385.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/gbqmvr389/www/blob/master/README.md%3Fb%231%22%2C%22https://github.com/fmydwl375/www/blob/master/README.md%3Fl%231%22%2C%22https://github.com/qebocj387/www/blob/master/README.md%3Fd%231%22%2C%22https://github.com/p2685/www/blob/master/README.md%3Ff%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://shlovk385.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
 </div>
