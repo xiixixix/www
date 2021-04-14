@@ -9,22 +9,22 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/nfnkod3022/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/nfnkod3022/www/master/t/www.jpg"></a><br>
-<p><details open><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/5iiii">git.io/5iiii</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details open><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/yeeee">git.io/yeeee</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 如果打不开，隔一会儿再刷新一下。<br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/nfnkod3022/ntdtv/blob/master/gb/2021/04/14/a103095875.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美报告将中共列头号威胁：离间美欧 逼台统一 >-009fcc?logoWidth=1" title="美报告将中共列头号威胁：离间美欧　逼台统>>" alt="美报告将中共列头号威胁：离间美欧　逼台统>>"></a></p>
+<p><a href="https://github.com/nfnkod3022/ntdtv/blob/master/gb/2021/04/14/a103095797.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/消失逾10日习密谋大事？/美报告将中共列头号>-009fcc?logoWidth=1" title="消失逾１０日习密谋大事？／美报告将中共列>>" alt="消失逾１０日习密谋大事？／美报告将中共列>>"></a></p>
 <p><a href="https://github.com/nfnkod3022/ntdtv/blob/master/gb/2021/04/14/a103095756.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网络热炒马云预言：中国企业家无一善终    >-009fcc?logoWidth=1" title="网络热炒马云预言：中国企业家无一善终　　>>" alt="网络热炒马云预言：中国企业家无一善终　　>>"></a></p>
 <p><a href="https://github.com/nfnkod3022/ntdtv/blob/master/gb/2021/04/14/a103095740.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/揭密毛泽东夫人江青的生活细节 令人瞠目结舌 >-009fcc?logoWidth=1" title="揭密毛泽东夫人江青的生活细节　令人瞠目结>>" alt="揭密毛泽东夫人江青的生活细节　令人瞠目结>>"></a></p>
 <p><a href="https://github.com/nfnkod3022/ntdtv/blob/master/gb/2021/04/14/a103095699.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖南官员当众强暴海归女企业家 法院轻判理由惊>-009fcc?logoWidth=1" title="湖南官员当众强暴海归女企业家　法院轻判理>>" alt="湖南官员当众强暴海归女企业家　法院轻判理>>"></a></p>
 <p><a href="https://github.com/nfnkod3022/ntdtv/blob/master/gb/2021/04/14/a103095686.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平密谋大事？与“国妖”罕见消失逾十日  >-009fcc?logoWidth=1" title="习近平密谋大事？与＂国妖＂罕见消失逾十日>>" alt="习近平密谋大事？与＂国妖＂罕见消失逾十日>>"></a></p>
-<p><a href="https://github.com/nfnkod3022/ntdtv/blob/master/gb/2021/04/14/a103095673.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国产航母“山东舰”日供7餐 大陆网民骂：饭桶>-009fcc?logoWidth=1" title="国产航母＂山东舰＂日供７餐　大陆网民骂：>>" alt="国产航母＂山东舰＂日供７餐　大陆网民骂：>>"></a></p>
-<p><a href="https://github.com/nfnkod3022/ntdtv/blob/master/gb/2021/04/14/a103095637.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/另类海盗？美媒揭中共隐秘部队“小蓝人”   >-009fcc?logoWidth=1" title="另类海盗？美媒揭中共隐秘部队＂小蓝人＂　>>" alt="另类海盗？美媒揭中共隐秘部队＂小蓝人＂　>>"></a></p>
+<p><a href="https://github.com/nfnkod3022/ntdtv/blob/master/gb/2021/04/14/a103095852.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反习派蠢蠢欲动 中共犯台加速亡       >-009fcc?logoWidth=1" title="反习派蠢蠢欲动　中共犯台加速亡　　　　　>>" alt="反习派蠢蠢欲动　中共犯台加速亡　　　　　>>"></a></p>
 <p><a href="https://github.com/nfnkod3022/ntdtv/blob/master/gb/2021/04/14/a103095814.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/专家：辽宁号演练草草收场 被美舰逼向北逃  >-009fcc?logoWidth=1" title="专家：辽宁号演练草草收场　被美舰逼向北逃>>" alt="专家：辽宁号演练草草收场　被美舰逼向北逃>>"></a></p>
 <p><a href="https://github.com/nfnkod3022/ntdtv/blob/master/gb/2021/04/14/a103095827.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拒签效忠声明 港府逼129名公务员“退休” >-009fcc?logoWidth=1" title="拒签效忠声明　港府逼１２９名公务员＂退休>>" alt="拒签效忠声明　港府逼１２９名公务员＂退休>>"></a></p>
 <p><a href="https://github.com/nfnkod3022/ntdtv/blob/master/gb/2021/04/14/a103095821.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆维权人士崔斌 遭中共残酷迫害      >-009fcc?logoWidth=1" title="重庆维权人士崔斌　遭中共残酷迫害　　　　>>" alt="重庆维权人士崔斌　遭中共残酷迫害　　　　>>"></a></p>
 <p><a href="https://github.com/nfnkod3022/ntdtv/blob/master/gb/2021/04/14/a103095780.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/北京猛兽区女游客下车 网友怒：又给老虎送外卖>-009fcc?logoWidth=1" title="北京猛兽区女游客下车　网友怒：又给老虎送>>" alt="北京猛兽区女游客下车　网友怒：又给老虎送>>"></a></p>
-<p><a href="https://github.com/nfnkod3022/ntdtv/blob/master/gb/2021/04/14/a103095765.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大纪元美首都新闻会 公布袭击事件更多细节  >-009fcc?logoWidth=1" title="大纪元美首都新闻会　公布袭击事件更多细节>>" alt="大纪元美首都新闻会　公布袭击事件更多细节>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/nfnkod3022/djy/blob/master/gb/21/4/13/n12877908.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：曾庆红老家的大贪官史文清      >-009fcc?logoWidth=1" title="王友群：曾庆红老家的大贪官史文清　　　　>>" alt="王友群：曾庆红老家的大贪官史文清　　　　>>"></a></p>
 <p><a href="https://github.com/nfnkod3022/djy/blob/master/gb/21/4/13/n12877868.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/杨威：李克强出面对美放软管用吗？      >-009fcc?logoWidth=1" title="杨威：李克强出面对美放软管用吗？　　　　>>" alt="杨威：李克强出面对美放软管用吗？　　　　>>"></a></p>
@@ -39,15 +39,15 @@
 <p><a href="https://github.com/nfnkod3022/djy/blob/master/gb/21/4/13/n12876984.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美议员：疫情让美国“开了眼” 中共是鳄鱼  >-009fcc?logoWidth=1" title="美议员：疫情让美国＂开了眼＂　中共是鳄鱼>>" alt="美议员：疫情让美国＂开了眼＂　中共是鳄鱼>>"></a></p>
 <p><a href="https://github.com/nfnkod3022/djy/blob/master/gb/21/4/13/n12878216.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/媒体发行人：中共攻击是给大纪元的荣誉勋章  >-009fcc?logoWidth=1" title="媒体发行人：中共攻击是给大纪元的荣誉勋章>>" alt="媒体发行人：中共攻击是给大纪元的荣誉勋章>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/nfnkod3022/ntdtv/blob/master/gb/2021/04/13/a103095230.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《意外》观众反响热烈：《转法轮》救赎灵魂  >-009fcc?logoWidth=1" title="《意外》观众反响热烈：《转法轮》救赎灵魂>>" alt="《意外》观众反响热烈：《转法轮》救赎灵魂>>"></a></p>
+<p><a href="https://github.com/nfnkod3022/ntdtv/blob/master/gb/2021/04/14/a103095812.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登派老友访台 访问团抵达松山机场     >-009fcc?logoWidth=1" title="拜登派老友访台　访问团抵达松山机场　　　>>" alt="拜登派老友访台　访问团抵达松山机场　　　>>"></a></p>
+<p><a href="https://github.com/nfnkod3022/djy/blob/master/gb/21/4/14/n12878979.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/骚扰抑郁症女学生 湖北沙市教师被调查    >-009fcc?logoWidth=1" title="骚扰抑郁症女学生　湖北沙市教师被调查　　>>" alt="骚扰抑郁症女学生　湖北沙市教师被调查　　>>"></a></p>
+<p><a href="https://github.com/nfnkod3022/djy/blob/master/gb/21/4/14/n12879161.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登挚友陶德率团访台 专机抵台       >-009fcc?logoWidth=1" title="拜登挚友陶德率团访台　专机抵台　　　　　>>" alt="拜登挚友陶德率团访台　专机抵台　　　　　>>"></a></p>
+<p><a href="https://github.com/nfnkod3022/ntdtv/blob/master/gb/2021/04/14/a103095839.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/对一颗韭菜来说，因为被冤枉，该沉默还是反抗？>-009fcc?logoWidth=1" title="对一颗韭菜来说，因为被冤枉，该沉默还是反>>" alt="对一颗韭菜来说，因为被冤枉，该沉默还是反>>"></a></p>
+<p><a href="https://github.com/nfnkod3022/ntdtv/blob/master/gb/2021/04/14/a103095580.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习明泽信息泄露案轰动国际 多国外交官介入调查>-009fcc?logoWidth=1" title="习明泽信息泄露案轰动国际　多国外交官介入>>" alt="习明泽信息泄露案轰动国际　多国外交官介入>>"></a></p>
 <p><a href="https://github.com/nfnkod3022/djy/blob/master/gb/21/4/13/n12877650.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/李正宽：三星堆藏密钥 打开尘封历史之锁？  >-009fcc?logoWidth=1" title="李正宽：三星堆藏密钥　打开尘封历史之锁？>>" alt="李正宽：三星堆藏密钥　打开尘封历史之锁？>>"></a></p>
 <p><a href="https://github.com/nfnkod3022/djy/blob/master/gb/21/4/14/n12878406.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共承认疫苗效差 美军蔑视辽宁号      >-009fcc?logoWidth=1" title="中共承认疫苗效差　美军蔑视辽宁号　　　　>>" alt="中共承认疫苗效差　美军蔑视辽宁号　　　　>>"></a></p>
-<p><a href="https://github.com/nfnkod3022/ntdtv/blob/master/gb/2021/04/14/a103095711.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国再爆高致病禽流感 禽传人致死率近7成  >-009fcc?logoWidth=1" title="中国再爆高致病禽流感　禽传人致死率近７成>>" alt="中国再爆高致病禽流感　禽传人致死率近７成>>"></a></p>
 <p><a href="https://github.com/nfnkod3022/ntdtv/blob/master/gb/2021/04/14/a103095623.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/高中生也备战打仗？中共下令军训3年至少56堂>-009fcc?logoWidth=1" title="高中生也备战打仗？中共下令军训３年至少５>>" alt="高中生也备战打仗？中共下令军训３年至少５>>"></a></p>
-<p><a href="https://github.com/nfnkod3022/djy/blob/master/gb/21/4/14/n12878514.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国电信湖南区网络瘫痪 疑黑客攻击官方辟谣 >-009fcc?logoWidth=1" title="中国电信湖南区网络瘫痪　疑黑客攻击官方辟>>" alt="中国电信湖南区网络瘫痪　疑黑客攻击官方辟>>"></a></p>
-<p><a href="https://github.com/nfnkod3022/djy/blob/master/gb/21/4/13/n12877690.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习急武统 台军力增 美议员吁除鳄鱼     >-009fcc?logoWidth=1" title="习急武统　台军力增　美议员吁除鳄鱼　　　>>" alt="习急武统　台军力增　美议员吁除鳄鱼　　　>>"></a></p>
-<p><a href="https://github.com/nfnkod3022/ntdtv/blob/master/gb/2021/04/13/a103094804.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/国产疫苗出了什么事？官方蹊跷转变态度    >-009fcc?logoWidth=1" title="国产疫苗出了什么事？官方蹊跷转变态度　　>>" alt="国产疫苗出了什么事？官方蹊跷转变态度　　>>"></a></p>
-<p><a href="https://github.com/nfnkod3022/ntdtv/blob/master/gb/2021/04/13/a103095149.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/最神秘的秘密社团在控制世界         >-009fcc?logoWidth=1" title="最神秘的秘密社团在控制世界　　　　　　　>>" alt="最神秘的秘密社团在控制世界　　　　　　　>>"></a></p>
+<p><a href="https://github.com/nfnkod3022/ntdtv/blob/master/gb/2021/04/13/a103095352.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/扎克伯格给底特律$740万 川普输掉密西根文>-009fcc?logoWidth=1" title="扎克伯格给底特律＄７４０万　川普输掉密西>>" alt="扎克伯格给底特律＄７４０万　川普输掉密西>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -266,9 +266,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://nfnkod3022.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?nzokx">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?xeqkt">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?olxkm">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?dpvul">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -312,8 +312,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?fpgbz">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?alzka">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?nvufs">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?rtuzs">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -490,12 +490,12 @@
 <hr>
 <div align="center">
 <p><strong><a href="https://github.com/nfnkod3022/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/nfnkod3022/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nfnkod3022/www/blob/master/README.md?h#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/nfnkod3022/www/blob/master/README.md?o%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://bit.ly/eeemm" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/nfnkod3022/www/blob/master/README.md?w%231" title="分享本平台"></img>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/nfnkod3022/www/blob/master/README.md?o#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/nfnkod3022/www/blob/master/README.md?h%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://bit.ly/aaaaq" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/nfnkod3022/www/blob/master/README.md?m%231" title="分享本平台"></img>
 <br>
-<a href="https://git.io/5iiii">https://git.io/5iiii</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://bit.ly/eeemm">https://bit.ly/eeemm</a>
-&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/999xx">https://j.mp/999xx</a>
+<a href="https://git.io/yeeee">https://git.io/yeeee</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://bit.ly/aaaaq">https://bit.ly/aaaaq</a>
+&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/aaarr">https://j.mp/aaarr</a>
 <br>
 <br>
-<h3><a href="https://nfnkod3022.github.io/vd/qr/qr2/#https://github.com/nfnkod3022/www/blob/master/README.md?u#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://nfnkod3022.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/tjrqlt3680/www/blob/master/README.md%3Fu%231%22%2C%22https://github.com/dhfknp3246/www/blob/master/README.md%3Fa%231%22%2C%22https://github.com/weyerd3881/www/blob/master/README.md%3Fq%231%22%2C%22https://github.com/harlek3030/www/blob/master/README.md%3Fm%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://nfnkod3022.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
+<h3><a href="https://nfnkod3022.github.io/vd/qr/qr2/#https://github.com/nfnkod3022/www/blob/master/README.md?b#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://nfnkod3022.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/kogwnn388/www/blob/master/README.md%3Fj%231%22%2C%22https://github.com/jvvlwt3997/www/blob/master/README.md%3Fy%231%22%2C%22https://github.com/f2032/www/blob/master/README.md%3Fi%231%22%2C%22https://github.com/ublsmv3253/www/blob/master/README.md%3Fs%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://nfnkod3022.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
 </div>
