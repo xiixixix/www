@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/ajoxsl3321/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ajoxsl3321/www/master/t/www.jpg"></a><br>
-<p><details open><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/hhhhd">git.io/hhhhd</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details open><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/j8888">git.io/j8888</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 如果打不开，隔一会儿再刷新一下。<br>  
 </details>
 <br>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/ajoxsl3321/ntdtv/blob/master/gb/2021/06/04/a103134753.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/变种病毒无药可治 广州护士确诊 两大医院急停>-009fcc?logoWidth=1" title="变种病毒无药可治　广州护士确诊　两大医院>>" alt="变种病毒无药可治　广州护士确诊　两大医院>>"></a></p>
 <p><a href="https://github.com/ajoxsl3321/ntdtv/blob/master/gb/2021/06/04/a103135056.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/胡锡进为六四狡辩提“国家暴力” 网讽: 终于>-009fcc?logoWidth=1" title="胡锡进为六四狡辩提＂国家暴力＂　网讽：　>>" alt="胡锡进为六四狡辩提＂国家暴力＂　网讽：　>>"></a></p>
 <p><a href="https://github.com/ajoxsl3321/ntdtv/blob/master/gb/2021/06/04/a103134913.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美病毒调查：中共军方2019年参与研发了人化>-009fcc?logoWidth=1" title="美病毒调查：中共军方２０１９年参与研发了>>" alt="美病毒调查：中共军方２０１９年参与研发了>>"></a></p>
+<p><a href="https://github.com/ajoxsl3321/ntdtv/blob/master/gb/2021/06/05/a103135605.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/大S徐熙媛宣布离婚 丈夫汪小菲：“我不知情”>-009fcc?logoWidth=1" title="大Ｓ徐熙媛宣布离婚　丈夫汪小菲：＂我不知>>" alt="大Ｓ徐熙媛宣布离婚　丈夫汪小菲：＂我不知>>"></a></p>
 <p><a href="https://github.com/ajoxsl3321/ntdtv/blob/master/gb/2021/06/05/a103135573.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫要员与中共关系曝光 劝26名专家为武毒所>-009fcc?logoWidth=1" title="世卫要员与中共关系曝光　劝２６名专家为武>>" alt="世卫要员与中共关系曝光　劝２６名专家为武>>"></a></p>
 <p><a href="https://github.com/ajoxsl3321/ntdtv/blob/master/gb/2021/06/05/a103135518.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/被遗忘的百年历史（IV）1990 至2009>-009fcc?logoWidth=1" title="被遗忘的百年历史（ＩＶ）１９９０　至２０>>" alt="被遗忘的百年历史（ＩＶ）１９９０　至２０>>"></a></p>
 <p><a href="https://github.com/ajoxsl3321/ntdtv/blob/master/gb/2021/06/05/a103135533.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蓬佩奥调查武汉病毒起源 曾遭白宫内部激烈反对>-009fcc?logoWidth=1" title="蓬佩奥调查武汉病毒起源　曾遭白宫内部激烈>>" alt="蓬佩奥调查武汉病毒起源　曾遭白宫内部激烈>>"></a></p>
 <p><a href="https://github.com/ajoxsl3321/ntdtv/blob/master/gb/2021/06/05/a103135545.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/云南野象迷航为何不用麻醉枪？专家曝关键原因 >-009fcc?logoWidth=1" title="云南野象迷航为何不用麻醉枪？专家曝关键原>>" alt="云南野象迷航为何不用麻醉枪？专家曝关键原>>"></a></p>
-<p><a href="https://github.com/ajoxsl3321/ntdtv/blob/master/gb/2021/06/05/a103135532.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惊传打假球 俄罗斯女选手法网赛后被捕    >-009fcc?logoWidth=1" title="惊传打假球　俄罗斯女选手法网赛后被捕　　>>" alt="惊传打假球　俄罗斯女选手法网赛后被捕　　>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ajoxsl3321/djy/blob/master/gb/21/6/4/n13000101.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广州疫控升级封城近 蓬佩奥遇内敌？     >-009fcc?logoWidth=1" title="广州疫控升级封城近　蓬佩奥遇内敌？　　　>>" alt="广州疫控升级封城近　蓬佩奥遇内敌？　　　>>"></a></p>
 <p><a href="https://github.com/ajoxsl3321/djy/blob/master/gb/21/6/4/n12999371.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共隐形机模型公开 美媒：抄袭黑鹰隐形机  >-009fcc?logoWidth=1" title="中共隐形机模型公开　美媒：抄袭黑鹰隐形机>>" alt="中共隐形机模型公开　美媒：抄袭黑鹰隐形机>>"></a></p>
@@ -39,14 +39,12 @@
 <p><a href="https://github.com/ajoxsl3321/djy/blob/master/gb/21/6/3/n12997286.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/古代瘟疫启示：一些人不染疫         >-009fcc?logoWidth=1" title="古代瘟疫启示：一些人不染疫　　　　　　　>>" alt="古代瘟疫启示：一些人不染疫　　　　　　　>>"></a></p>
 <p><a href="https://github.com/ajoxsl3321/djy/blob/master/gb/21/6/4/n12998380.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/绝望中看到中国的希望 一位留美博士的故事  >-009fcc?logoWidth=1" title="绝望中看到中国的希望　一位留美博士的故事>>" alt="绝望中看到中国的希望　一位留美博士的故事>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
-<p><a href="https://github.com/ajoxsl3321/ntdtv/blob/master/gb/2021/06/05/a103135566.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六四32年中共更惧怕 广州毒株上热搜    >-009fcc?logoWidth=1" title="六四３２年中共更惧怕　广州毒株上热搜　　>>" alt="六四３２年中共更惧怕　广州毒株上热搜　　>>"></a></p>
+<p><a href="https://github.com/ajoxsl3321/ntdtv/blob/master/gb/2021/06/05/a103135491.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/海南三亚前书记童道驰被捕 周小川曾喊他回中国>-009fcc?logoWidth=1" title="海南三亚前书记童道驰被捕　周小川曾喊他回>>" alt="海南三亚前书记童道驰被捕　周小川曾喊他回>>"></a></p>
 <p><a href="https://github.com/ajoxsl3321/djy/blob/master/gb/21/6/4/n12997739.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/六四32年中共更惧怕 广州毒株上热搜    >-009fcc?logoWidth=1" title="六四３２年中共更惧怕　广州毒株上热搜　　>>" alt="六四３２年中共更惧怕　广州毒株上热搜　　>>"></a></p>
 <p><a href="https://github.com/ajoxsl3321/djy/blob/master/gb/21/6/4/n12999794.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美政府UFO报告将出炉 会给出最终结论吗？ >-009fcc?logoWidth=1" title="美政府ＵＦＯ报告将出炉　会给出最终结论吗>>" alt="美政府ＵＦＯ报告将出炉　会给出最终结论吗>>"></a></p>
-<p><a href="https://github.com/ajoxsl3321/ntdtv/blob/master/gb/2021/06/02/a103133785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/变种病毒无药可治 广州护士确诊 两大医院急停>-009fcc?logoWidth=1" title="变种病毒无药可治　广州护士确诊　两大医院>>" alt="变种病毒无药可治　广州护士确诊　两大医院>>"></a></p>
-<p><a href="https://github.com/ajoxsl3321/ntdtv/blob/master/gb/2021/06/05/a103135434.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/港版国安法后首个六四 港人悼念遍地开花   >-009fcc?logoWidth=1" title="港版国安法后首个六四　港人悼念遍地开花　>>" alt="港版国安法后首个六四　港人悼念遍地开花　>>"></a></p>
+<p><a href="https://github.com/ajoxsl3321/ntdtv/blob/master/gb/2021/06/04/a103135237.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/福建宣布高考后不公布试题和答案 引发舆论反弹>-009fcc?logoWidth=1" title="福建宣布高考后不公布试题和答案　引发舆论>>" alt="福建宣布高考后不公布试题和答案　引发舆论>>"></a></p>
 <p><a href="https://github.com/ajoxsl3321/djy/blob/master/gb/21/6/4/n12999788.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：哈尔滨护士爆料 再证中共瞒染疫死亡数>-009fcc?logoWidth=1" title="周晓辉：哈尔滨护士爆料　再证中共瞒染疫死>>" alt="周晓辉：哈尔滨护士爆料　再证中共瞒染疫死>>"></a></p>
 <p><a href="https://github.com/ajoxsl3321/djy/blob/master/gb/21/6/4/n12999736.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/为何勿忘六四？日本醒悟痛击中共       >-009fcc?logoWidth=1" title="为何勿忘六四？日本醒悟痛击中共　　　　　>>" alt="为何勿忘六四？日本醒悟痛击中共　　　　　>>"></a></p>
-<p><a href="https://github.com/ajoxsl3321/ntdtv/blob/master/gb/2021/06/04/a103134694.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/惊掉下巴！超自然生物桥上行走        >-009fcc?logoWidth=1" title="惊掉下巴！超自然生物桥上行走　　　　　　>>" alt="惊掉下巴！超自然生物桥上行走　　　　　　>>"></a></p>
 <p><a href="https://github.com/ajoxsl3321/ntdtv/blob/master/gb/2021/06/04/a103134945.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/荒淫无度的霸道女总裁一心礼佛，达摩不屑佛国盛>-009fcc?logoWidth=1" title="荒淫无度的霸道女总裁一心礼佛，达摩不屑佛>>" alt="荒淫无度的霸道女总裁一心礼佛，达摩不屑佛>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
@@ -267,9 +265,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://ajoxsl3321.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?rcfdc">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?izhvl">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?vwvhf">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?yyayw">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -313,8 +311,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?pbtzw">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?nydhd">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?otmmo">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ordno">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -491,12 +489,12 @@
 <hr>
 <div align="center">
 <p><strong><a href="https://github.com/ajoxsl3321/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ajoxsl3321/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ajoxsl3321/www/blob/master/README.md?k#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ajoxsl3321/www/blob/master/README.md?s%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://j.mp/hhhff" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ajoxsl3321/www/blob/master/README.md?u%231" title="分享本平台"></img>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ajoxsl3321/www/blob/master/README.md?s#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ajoxsl3321/www/blob/master/README.md?z%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://j.mp/j999j" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ajoxsl3321/www/blob/master/README.md?m%231" title="分享本平台"></img>
 <br>
-<a href="https://git.io/hhhhd">https://git.io/hhhhd</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/ttqtt">https://is.gd/ttqtt</a>
-&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/hhhff">https://j.mp/hhhff</a>
+<a href="https://git.io/j8888">https://git.io/j8888</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/eggggg">https://is.gd/eggggg</a>
+&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/j999j">https://j.mp/j999j</a>
 <br>
 <br>
-<h3><a href="https://ajoxsl3321.github.io/vd/qr/qr2/#https://github.com/ajoxsl3321/www/blob/master/README.md?p#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ajoxsl3321.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/oesaqp3717/www/blob/master/README.md%3Fi%231%22%2C%22https://github.com/dcubgz363/www/blob/master/README.md%3Ft%231%22%2C%22https://github.com/wcb2286/www/blob/master/README.md%3Fm%231%22%2C%22https://github.com/ewwcqx3979/www/blob/master/README.md%3Fa%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ajoxsl3321.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
+<h3><a href="https://ajoxsl3321.github.io/vd/qr/qr2/#https://github.com/ajoxsl3321/www/blob/master/README.md?w#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ajoxsl3321.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/tekmce3838/www/blob/master/README.md%3Fb%231%22%2C%22https://github.com/lkqnay312/www/blob/master/README.md%3Fq%231%22%2C%22https://github.com/crlhi259/www/blob/master/README.md%3Fk%231%22%2C%22https://github.com/virneq315/www/blob/master/README.md%3Fg%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ajoxsl3321.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
 </div>
