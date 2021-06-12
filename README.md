@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/vafwmd3527/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/vafwmd3527/www/master/t/www.jpg"></a><br>
-<p><details open><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/9tttt">git.io/9tttt</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details open><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/tgggg">git.io/tgggg</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 如果打不开，隔一会儿再刷新一下。<br>  
 </details>
 <br>
@@ -34,8 +34,8 @@
 <p><a href="https://github.com/vafwmd3527/djy/blob/master/gb/21/6/11/n13014345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/意大利对中政策急变 学者：反共联盟成形   >-009fcc?logoWidth=1" title="意大利对中政策急变　学者：反共联盟成形　>>" alt="意大利对中政策急变　学者：反共联盟成形　>>"></a></p>
 <p><a href="https://github.com/vafwmd3527/djy/blob/master/gb/21/6/11/n13016503.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共为何急推反制裁法？ 学者解析      >-009fcc?logoWidth=1" title="中共为何急推反制裁法？　学者解析　　　　>>" alt="中共为何急推反制裁法？　学者解析　　　　>>"></a></p>
 <p><a href="https://github.com/vafwmd3527/djy/blob/master/gb/21/6/4/n12998099.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/内部文件曝中共全方位迫害法轮功       >-009fcc?logoWidth=1" title="内部文件曝中共全方位迫害法轮功　　　　　>>" alt="内部文件曝中共全方位迫害法轮功　　　　　>>"></a></p>
-<p><a href="https://github.com/vafwmd3527/djy/blob/master/gb/21/6/11/n13016395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：延安的1万5千个特务是怎么回事？  >-009fcc?logoWidth=1" title="王友群：延安的１万５千个特务是怎么回事？>>" alt="王友群：延安的１万５千个特务是怎么回事？>>"></a></p>
 <p><a href="https://github.com/vafwmd3527/djy/blob/master/gb/21/6/12/n13016669.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/各国争相表态吓坏中共高层          >-009fcc?logoWidth=1" title="各国争相表态吓坏中共高层　　　　　　　　>>" alt="各国争相表态吓坏中共高层　　　　　　　　>>"></a></p>
+<p><a href="https://github.com/vafwmd3527/djy/blob/master/gb/21/6/11/n13016395.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王友群：延安的1万5千个特务是怎么回事？  >-009fcc?logoWidth=1" title="王友群：延安的１万５千个特务是怎么回事？>>" alt="王友群：延安的１万５千个特务是怎么回事？>>"></a></p>
 <p><a href="https://github.com/vafwmd3527/djy/blob/master/gb/21/6/8/n13008509.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/男孩天堂一游 带给您新的思考        >-009fcc?logoWidth=1" title="男孩天堂一游　带给您新的思考　　　　　　>>" alt="男孩天堂一游　带给您新的思考　　　　　　>>"></a></p>
 <p><a href="https://github.com/vafwmd3527/djy/blob/master/gb/21/6/11/n13016464.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/反外国制裁法 北京挥“七伤拳”？      >-009fcc?logoWidth=1" title="反外国制裁法　北京挥＂七伤拳＂？　　　　>>" alt="反外国制裁法　北京挥＂七伤拳＂？　　　　>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
@@ -269,9 +269,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://vafwmd3527.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?serya">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?zsfum">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?wxgxb">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?smtiv">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -315,8 +315,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?njhtq">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?urbpl">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?npjnb">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?xcpye">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -493,12 +493,12 @@
 <hr>
 <div align="center">
 <p><strong><a href="https://github.com/vafwmd3527/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/vafwmd3527/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vafwmd3527/www/blob/master/README.md?n#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/vafwmd3527/www/blob/master/README.md?k%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://j.mp/4444h" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/vafwmd3527/www/blob/master/README.md?h%231" title="分享本平台"></img>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/vafwmd3527/www/blob/master/README.md?o#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/vafwmd3527/www/blob/master/README.md?i%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://j.mp/fjjjj" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/vafwmd3527/www/blob/master/README.md?g%231" title="分享本平台"></img>
 <br>
-<a href="https://git.io/9tttt">https://git.io/9tttt</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/7ttttt">https://is.gd/7ttttt</a>
-&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/4444h">https://j.mp/4444h</a>
+<a href="https://git.io/tgggg">https://git.io/tgggg</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/qqqqp">https://is.gd/qqqqp</a>
+&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/fjjjj">https://j.mp/fjjjj</a>
 <br>
 <br>
-<h3><a href="https://vafwmd3527.github.io/vd/qr/qr2/#https://github.com/vafwmd3527/www/blob/master/README.md?f#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://vafwmd3527.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/ouvbwa307/www/blob/master/README.md%3Fi%231%22%2C%22https://github.com/bsmkec3726/www/blob/master/README.md%3Fd%231%22%2C%22https://github.com/xugnwm345/www/blob/master/README.md%3Fp%231%22%2C%22https://github.com/miarbj3813/www/blob/master/README.md%3Fk%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://vafwmd3527.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
+<h3><a href="https://vafwmd3527.github.io/vd/qr/qr2/#https://github.com/vafwmd3527/www/blob/master/README.md?o#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://vafwmd3527.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/qjjjpl398/www/blob/master/README.md%3Fr%231%22%2C%22https://github.com/jtdlwb326/www/blob/master/README.md%3Fb%231%22%2C%22https://github.com/gbcgjz3710/www/blob/master/README.md%3Ff%231%22%2C%22https://github.com/ngn280/www/blob/master/README.md%3Fu%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://vafwmd3527.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
 </div>
