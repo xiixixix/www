@@ -9,22 +9,22 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/ffdgji348/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/ffdgji348/www/master/t/www.jpg"></a><br>
-<p><details open><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/rrrrx">git.io/rrrrx</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details open><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/igggg">git.io/igggg</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 如果打不开，隔一会儿再刷新一下。<br>  
 </details>
 <br>
 <h1><p><strong>新闻热点 海外报道</strong></p></h1>
+<p><a href="https://github.com/ffdgji348/ntdtv/blob/master/gb/2021/06/12/a103140859.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/伤人先伤己 习近平陷“七伤拳”噩梦     >-009fcc?logoWidth=1" title="伤人先伤己　习近平陷＂七伤拳＂噩梦　　　>>" alt="伤人先伤己　习近平陷＂七伤拳＂噩梦　　　>>"></a></p>
 <p><a href="https://github.com/ffdgji348/ntdtv/blob/master/gb/2021/06/11/a103140351.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王沪宁与张维为关系曝光 /广东疫情恶化   >-009fcc?logoWidth=1" title="王沪宁与张维为关系曝光　／广东疫情恶化　>>" alt="王沪宁与张维为关系曝光　／广东疫情恶化　>>"></a></p>
 <p><a href="https://github.com/ffdgji348/ntdtv/blob/master/gb/2021/06/11/a103140358.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/模拟共军突袭台湾 神秘机构助美军“一招制敌”>-009fcc?logoWidth=1" title="模拟共军突袭台湾　神秘机构助美军＂一招制>>" alt="模拟共军突袭台湾　神秘机构助美军＂一招制>>"></a></p>
 <p><a href="https://github.com/ffdgji348/ntdtv/blob/master/gb/2021/06/11/a103140299.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王沪宁与张维为关系曝光 两人疑合力为习挖坑 >-009fcc?logoWidth=1" title="王沪宁与张维为关系曝光　两人疑合力为习挖>>" alt="王沪宁与张维为关系曝光　两人疑合力为习挖>>"></a></p>
 <p><a href="https://github.com/ffdgji348/ntdtv/blob/master/gb/2021/06/11/a103140305.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东疫情恶化：端午节停赛龙舟 广州长途全停运>-009fcc?logoWidth=1" title="广东疫情恶化：端午节停赛龙舟　广州长途全>>" alt="广东疫情恶化：端午节停赛龙舟　广州长途全>>"></a></p>
 <p><a href="https://github.com/ffdgji348/ntdtv/blob/master/gb/2021/06/11/a103140279.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习近平误判？反外国制裁法被讽“砸脚法”   >-009fcc?logoWidth=1" title="习近平误判？反外国制裁法被讽＂砸脚法＂　>>" alt="习近平误判？反外国制裁法被讽＂砸脚法＂　>>"></a></p>
-<p><a href="https://github.com/ffdgji348/ntdtv/blob/master/gb/2021/06/11/a103140033.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/浙江突降暴雨 山体滑坡、房屋倒塌多人死伤(视>-009fcc?logoWidth=1" title="浙江突降暴雨　山体滑坡、房屋倒塌多人死伤>>" alt="浙江突降暴雨　山体滑坡、房屋倒塌多人死伤>>"></a></p>
+<p><a href="https://github.com/ffdgji348/ntdtv/blob/master/gb/2021/06/11/a103140718.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/世卫专家资助武毒所 曾自曝中国同事改造冠状病>-009fcc?logoWidth=1" title="世卫专家资助武毒所　曾自曝中国同事改造冠>>" alt="世卫专家资助武毒所　曾自曝中国同事改造冠>>"></a></p>
 <p><a href="https://github.com/ffdgji348/ntdtv/blob/master/gb/2021/06/11/a103140422.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/地球有五大洋？美国国家地理学会正式命名“南大>-009fcc?logoWidth=1" title="地球有五大洋？美国国家地理学会正式命名＂>>" alt="地球有五大洋？美国国家地理学会正式命名＂>>"></a></p>
 <p><a href="https://github.com/ffdgji348/ntdtv/blob/master/gb/2021/06/11/a103140790.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/《无间道》 将成绝唱 疫苗大战打响     >-009fcc?logoWidth=1" title="《无间道》　将成绝唱　疫苗大战打响　　　>>" alt="《无间道》　将成绝唱　疫苗大战打响　　　>>"></a></p>
 <p><a href="https://github.com/ffdgji348/ntdtv/blob/master/gb/2021/06/11/a103140785.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人权组织悼共产主义受难者颁自由勋章奖    >-009fcc?logoWidth=1" title="人权组织悼共产主义受难者颁自由勋章奖　　>>" alt="人权组织悼共产主义受难者颁自由勋章奖　　>>"></a></p>
 <p><a href="https://github.com/ffdgji348/ntdtv/blob/master/gb/2021/06/11/a103140771.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/CDC：年轻人患心脏疾病或与疫苗有关    >-009fcc?logoWidth=1" title="ＣＤＣ：年轻人患心脏疾病或与疫苗有关　　>>" alt="ＣＤＣ：年轻人患心脏疾病或与疫苗有关　　>>"></a></p>
-<p><a href="https://github.com/ffdgji348/ntdtv/blob/master/gb/2021/06/11/a103140767.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美国失业人数连跌五周 25州提前停发$300>-009fcc?logoWidth=1" title="美国失业人数连跌五周　２５州提前停发＄３>>" alt="美国失业人数连跌五周　２５州提前停发＄３>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/ffdgji348/djy/blob/master/gb/21/6/11/n13016362.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/七国峰会周五开场 中国问题是最紧迫议题   >-009fcc?logoWidth=1" title="七国峰会周五开场　中国问题是最紧迫议题　>>" alt="七国峰会周五开场　中国问题是最紧迫议题　>>"></a></p>
 <p><a href="https://github.com/ffdgji348/djy/blob/master/gb/21/6/11/n13015814.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/科大讯飞股价闪崩 助中共监控遭美制裁    >-009fcc?logoWidth=1" title="科大讯飞股价闪崩　助中共监控遭美制裁　　>>" alt="科大讯飞股价闪崩　助中共监控遭美制裁　　>>"></a></p>
@@ -266,9 +266,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://ffdgji348.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?qypng">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?avwsn">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?rcrfy">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?jxcyj">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -312,8 +312,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?awriv">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?vrddb">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?unujb">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?tebsw">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -490,12 +490,12 @@
 <hr>
 <div align="center">
 <p><strong><a href="https://github.com/ffdgji348/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/ffdgji348/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ffdgji348/www/blob/master/README.md?g#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ffdgji348/www/blob/master/README.md?s%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://j.mp/4444y" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ffdgji348/www/blob/master/README.md?r%231" title="分享本平台"></img>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/ffdgji348/www/blob/master/README.md?j#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ffdgji348/www/blob/master/README.md?l%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://j.mp/czzzc" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/ffdgji348/www/blob/master/README.md?y%231" title="分享本平台"></img>
 <br>
-<a href="https://git.io/rrrrx">https://git.io/rrrrx</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/jzzzzz">https://is.gd/jzzzzz</a>
-&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/4444y">https://j.mp/4444y</a>
+<a href="https://git.io/igggg">https://git.io/igggg</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/xgggg">https://is.gd/xgggg</a>
+&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/czzzc">https://j.mp/czzzc</a>
 <br>
 <br>
-<h3><a href="https://ffdgji348.github.io/vd/qr/qr2/#https://github.com/ffdgji348/www/blob/master/README.md?s#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ffdgji348.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/ewwcqx3979/www/blob/master/README.md%3Fd%231%22%2C%22https://github.com/hviotz3804/www/blob/master/README.md%3Fv%231%22%2C%22https://github.com/rpoxpl398/www/blob/master/README.md%3Fj%231%22%2C%22https://github.com/ka2303/www/blob/master/README.md%3Fq%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ffdgji348.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
+<h3><a href="https://ffdgji348.github.io/vd/qr/qr2/#https://github.com/ffdgji348/www/blob/master/README.md?g#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ffdgji348.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/bafyob305/www/blob/master/README.md%3Fb%231%22%2C%22https://github.com/twfknp314/www/blob/master/README.md%3Fv%231%22%2C%22https://github.com/qjshlj3484/www/blob/master/README.md%3Fs%231%22%2C%22https://github.com/miondt3036/www/blob/master/README.md%3Fb%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://ffdgji348.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
 </div>
