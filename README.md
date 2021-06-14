@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/hipqzb3459/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/hipqzb3459/www/master/t/www.jpg"></a><br>
-<p><details open><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/ffffn">git.io/ffffn</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details open><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/ttttttt">git.io/ttttttt</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 如果打不开，隔一会儿再刷新一下。<br>  
 </details>
 <br>
@@ -20,11 +20,11 @@
 <p><a href="https://github.com/hipqzb3459/ntdtv/blob/master/gb/2021/06/14/a103142082.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/消失56年 美国一架飞机残骸重见天日    >-009fcc?logoWidth=1" title="消失５６年　美国一架飞机残骸重见天日　　>>" alt="消失５６年　美国一架飞机残骸重见天日　　>>"></a></p>
 <p><a href="https://github.com/hipqzb3459/ntdtv/blob/master/gb/2021/06/14/a103142057.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湖北大爆炸震动中南海 习近平为党庆紧急发声 >-009fcc?logoWidth=1" title="湖北大爆炸震动中南海　习近平为党庆紧急发>>" alt="湖北大爆炸震动中南海　习近平为党庆紧急发>>"></a></p>
 <p><a href="https://github.com/hipqzb3459/ntdtv/blob/master/gb/2021/06/13/a103142035.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/G7峰会协议：提供疫苗 挑战中共 征税最低税>-009fcc?logoWidth=1" title="Ｇ７峰会协议：提供疫苗　挑战中共　征税最>>" alt="Ｇ７峰会协议：提供疫苗　挑战中共　征税最>>"></a></p>
+<p><a href="https://github.com/hipqzb3459/ntdtv/blob/master/gb/2021/06/14/a103142247.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/广东核电厂惊传核泄露 当局不断修改数据避免关>-009fcc?logoWidth=1" title="广东核电厂惊传核泄露　当局不断修改数据避>>" alt="广东核电厂惊传核泄露　当局不断修改数据避>>"></a></p>
 <p><a href="https://github.com/hipqzb3459/ntdtv/blob/master/gb/2021/06/14/a103142220.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/确诊肺栓塞猝死风险高 专家：心肺功能异常要注>-009fcc?logoWidth=1" title="确诊肺栓塞猝死风险高　专家：心肺功能异常>>" alt="确诊肺栓塞猝死风险高　专家：心肺功能异常>>"></a></p>
 <p><a href="https://github.com/hipqzb3459/ntdtv/blob/master/gb/2021/06/14/a103142193.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/台媒：平视世界遇上躺平 中共战狼难掩疲惫  >-009fcc?logoWidth=1" title="台媒：平视世界遇上躺平　中共战狼难掩疲惫>>" alt="台媒：平视世界遇上躺平　中共战狼难掩疲惫>>"></a></p>
 <p><a href="https://github.com/hipqzb3459/ntdtv/blob/master/gb/2021/06/14/a103142164.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/活摘器官你真了解？来龙去脉图解一次看懂   >-009fcc?logoWidth=1" title="活摘器官你真了解？来龙去脉图解一次看懂　>>" alt="活摘器官你真了解？来龙去脉图解一次看懂　>>"></a></p>
 <p><a href="https://github.com/hipqzb3459/ntdtv/blob/master/gb/2021/06/14/a103142154.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/上海教师倡“一夫多妻”刺激生育 被紧急停职 >-009fcc?logoWidth=1" title="上海教师倡＂一夫多妻＂刺激生育　被紧急停>>" alt="上海教师倡＂一夫多妻＂刺激生育　被紧急停>>"></a></p>
-<p><a href="https://github.com/hipqzb3459/ntdtv/blob/master/gb/2021/06/14/a103142125.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/事实核查 中共未使一亿人脱贫        >-009fcc?logoWidth=1" title="事实核查　中共未使一亿人脱贫　　　　　　>>" alt="事实核查　中共未使一亿人脱贫　　　　　　>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/13/n13019426.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：心腹被起诉 王岐山处境高危？     >-009fcc?logoWidth=1" title="分析：心腹被起诉　王岐山处境高危？　　　>>" alt="分析：心腹被起诉　王岐山处境高危？　　　>>"></a></p>
 <p><a href="https://github.com/hipqzb3459/djy/blob/master/gb/21/6/14/n13020079.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王维洛：长江流域灾害的由来（1）      >-009fcc?logoWidth=1" title="王维洛：长江流域灾害的由来（１）　　　　>>" alt="王维洛：长江流域灾害的由来（１）　　　　>>"></a></p>
@@ -267,9 +267,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://hipqzb3459.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?fjmbc">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?gkfrj">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ietbe">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?cjqve">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -313,8 +313,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?oshzd">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?fgivr">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?inggn">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?gbwif">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -421,12 +421,12 @@
 <p><strong>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年的腥风血雨，二十多年的凌辱折磨，岁月飞逝，历史见证，迫害善良原本就是违背道义不得民心的...</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;99年中共因法轮功修炼人数超过党员而疯狂镇压，不惜制造一个个谎言，导演天安门自焚案栽赃法轮功，对坚持信仰的学员绑架抄家，用尽酷刑，导致数以百万计的家破人亡、妻离子散！然而中共高估了自己的造假宣传。各国政府纷纷谴责中共暴行，高度肯定法轮功提升道德、净化心灵、强身健体的卓越成效。在国内，声援法轮功的事件此起彼伏。成千上万人为被非法抓捕的学员请愿，演绎了不畏强权反迫害的一幕又一幕。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年过去了。如今法轮功“真善忍”普世价值观，超越民族文化，洪传世界一百多个国家，仅台湾就有八十万人修炼，其主要著作被译成四十多种文字，举世赞誉！而中共江泽民却因罪恶迫害，在海内外被数百万人联署举报，被二十多万人实名起诉。在这场对善良打压中，中共把法制、道德伦理都推向崩溃边缘。民心丧尽、天怒人怨!人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="http://124.12.52.102/UmhjM" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="http://220.136.147.233/UmhjM" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
 </details>
 
 <div align="center">
 <img src="https://raw.githubusercontent.com/hipqzb3459/www/master/t/01.jpg">
-<h1><strong><a href="http://124.12.52.102/UmhjM" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
+<h1><strong><a href="http://220.136.147.233/UmhjM" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/hipqzb3459/www/master/t/03.jpg"><br>
@@ -486,17 +486,17 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;于中共无所不在的欺骗洗脑与暴力胁迫下，有多少人放弃了诚实宽厚、仁爱谦和的道德底线，变得见风使舵、落井下石，甚至为一己之私而无恶不作。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;稍微盘点中共的罪恶，让人感到心情无比的沉重。了解了中共，才明白什么叫做罪恶滔天，罄竹难书。</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="http://124.12.52.102/UmhjM" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="http://220.136.147.233/UmhjM" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </strong></p>
 <hr>
 <div align="center">
 <p><strong><a href="https://github.com/hipqzb3459/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/hipqzb3459/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hipqzb3459/www/blob/master/README.md?p#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/hipqzb3459/www/blob/master/README.md?x%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://j.mp/666kk" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/hipqzb3459/www/blob/master/README.md?n%231" title="分享本平台"></img>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/hipqzb3459/www/blob/master/README.md?a#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/hipqzb3459/www/blob/master/README.md?g%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://j.mp/44eee" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/hipqzb3459/www/blob/master/README.md?m%231" title="分享本平台"></img>
 <br>
-<a href="https://git.io/ffffn">https://git.io/ffffn</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/zzizz">https://is.gd/zzizz</a>
-&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/666kk">https://j.mp/666kk</a>
+<a href="https://git.io/ttttttt">https://git.io/ttttttt</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/yppppp">https://is.gd/yppppp</a>
+&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/44eee">https://j.mp/44eee</a>
 <br>
 <br>
-<h3><a href="https://hipqzb3459.github.io/vd/qr/qr2/#https://github.com/hipqzb3459/www/blob/master/README.md?s#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://hipqzb3459.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/jpmljf3654/www/blob/master/README.md%3Fb%231%22%2C%22https://github.com/lntccx3999/www/blob/master/README.md%3Fs%231%22%2C%22https://github.com/ovsqyd366/www/blob/master/README.md%3Fh%231%22%2C%22https://github.com/hhinct3416/www/blob/master/README.md%3Fv%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://hipqzb3459.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
+<h3><a href="https://hipqzb3459.github.io/vd/qr/qr2/#https://github.com/hipqzb3459/www/blob/master/README.md?a#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://hipqzb3459.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/ryqken3354/www/blob/master/README.md%3Fx%231%22%2C%22https://github.com/lepzng3693/www/blob/master/README.md%3Fz%231%22%2C%22https://github.com/klropk3175/www/blob/master/README.md%3Ft%231%22%2C%22https://github.com/aempzt3907/www/blob/master/README.md%3Fx%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://hipqzb3459.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
 </div>
