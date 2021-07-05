@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/atiszk3034/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/atiszk3034/www/master/t/www.jpg"></a><br>
-<p><details open><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/zkkkk">git.io/zkkkk</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details open><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/uuuu5">git.io/uuuu5</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 如果打不开，隔一会儿再刷新一下。<br>  
 </details>
 <br>
@@ -39,18 +39,18 @@
 <p><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/4/n13066352.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/田云：中纪委最新反腐数据曝惊人腐败     >-009fcc?logoWidth=1" title="田云：中纪委最新反腐数据曝惊人腐败　　　>>" alt="田云：中纪委最新反腐数据曝惊人腐败　　　>>"></a></p>
 <p><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/4/n13066820.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/英文大纪元：中共毁灭的是中国的精华     >-009fcc?logoWidth=1" title="英文大纪元：中共毁灭的是中国的精华　　　>>" alt="英文大纪元：中共毁灭的是中国的精华　　　>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/atiszk3034/ntdtv/blob/master/gb/2021/07/04/a103157753.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国掀起毛泽东热 盘点55条见光死的毛言论 >-009fcc?logoWidth=1" title="中国掀起毛泽东热　盘点５５条见光死的毛言>>" alt="中国掀起毛泽东热　盘点５５条见光死的毛言>>"></a></p>
 <p><a href="https://github.com/atiszk3034/ntdtv/blob/master/gb/2021/07/04/a103158127.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美媒：中共前年九月已预谋把新冠病毒嫁祸美国 >-009fcc?logoWidth=1" title="美媒：中共前年九月已预谋把新冠病毒嫁祸美>>" alt="美媒：中共前年九月已预谋把新冠病毒嫁祸美>>"></a></p>
 <p><a href="https://github.com/atiszk3034/ntdtv/blob/master/gb/2021/07/04/a103157835.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/敏感数据给美国？滴滴出行突遭中共审查    >-009fcc?logoWidth=1" title="敏感数据给美国？滴滴出行突遭中共审查　　>>" alt="敏感数据给美国？滴滴出行突遭中共审查　　>>"></a></p>
 <p><a href="https://github.com/atiszk3034/ntdtv/blob/master/gb/2021/07/04/a103157871.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中美高层何时接触？中共外长王毅：“哼哼”  >-009fcc?logoWidth=1" title="中美高层何时接触？中共外长王毅：＂哼哼＂>>" alt="中美高层何时接触？中共外长王毅：＂哼哼＂>>"></a></p>
-<p><a href="https://github.com/atiszk3034/ntdtv/blob/master/gb/2021/07/05/a103158140.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/现身党庆 重量级红后代名单曝光       >-009fcc?logoWidth=1" title="现身党庆　重量级红后代名单曝光　　　　　>>" alt="现身党庆　重量级红后代名单曝光　　　　　>>"></a></p>
 <p><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/4/n13066167.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/分析：武汉军运会前中共已预谋将病毒嫁祸美军 >-009fcc?logoWidth=1" title="分析：武汉军运会前中共已预谋将病毒嫁祸美>>" alt="分析：武汉军运会前中共已预谋将病毒嫁祸美>>"></a></p>
 <p><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/4/n13067219.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/全球EndCCP签名破百万 荷兰议员声援  >-009fcc?logoWidth=1" title="全球ＥｎｄＣＣＰ签名破百万　荷兰议员声援>>" alt="全球ＥｎｄＣＣＰ签名破百万　荷兰议员声援>>"></a></p>
+<p><a href="https://github.com/atiszk3034/ntdtv/blob/master/gb/2021/07/05/a103158140.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/现身党庆 重量级红后代名单曝光       >-009fcc?logoWidth=1" title="现身党庆　重量级红后代名单曝光　　　　　>>" alt="现身党庆　重量级红后代名单曝光　　　　　>>"></a></p>
 <p><a href="https://github.com/atiszk3034/ntdtv/blob/master/gb/2021/07/04/a103157794.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中印边境持续增兵 军力创数十年之最     >-009fcc?logoWidth=1" title="中樱⑦境持续增兵　军力创数十年之最　　　>>" alt="中樱⑦境持续增兵　军力创数十年之最　　　>>"></a></p>
-<p><a href="https://github.com/atiszk3034/ntdtv/blob/master/gb/2021/07/04/a103157808.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瞌睡预言家凯西 精准预言未来 再现上一期文明>-009fcc?logoWidth=1" title="瞌睡预言家凯西　精准预言未来　再现上一期>>" alt="瞌睡预言家凯西　精准预言未来　再现上一期>>"></a></p>
 <p><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/4/n13067229.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/官媒配合习近平讲话抛攻台方案 专家：纸上谈兵>-009fcc?logoWidth=1" title="官媒配合习近平讲话抛攻台方案　专家：纸上>>" alt="官媒配合习近平讲话抛攻台方案　专家：纸上>>"></a></p>
 <p><a href="https://github.com/atiszk3034/djy/blob/master/gb/21/7/4/n13066315.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/湘雅医院曝丑闻 传副院长接受性贿致女休克  >-009fcc?logoWidth=1" title="湘雅医院曝丑闻　传副院长接受性贿致女休克>>" alt="湘雅医院曝丑闻　传副院长接受性贿致女休克>>"></a></p>
+<p><a href="https://github.com/atiszk3034/ntdtv/blob/master/gb/2021/07/04/a103157808.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/瞌睡预言家凯西 精准预言未来 再现上一期文明>-009fcc?logoWidth=1" title="瞌睡预言家凯西　精准预言未来　再现上一期>>" alt="瞌睡预言家凯西　精准预言未来　再现上一期>>"></a></p>
 <p><a href="https://github.com/atiszk3034/ntdtv/blob/master/gb/2021/07/04/a103157712.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/蔡霞：永不叛党是黑帮帮规 只要入伙不许下山 >-009fcc?logoWidth=1" title="蔡霞：永不叛党是黑帮帮规　只要入伙不许下>>" alt="蔡霞：永不叛党是黑帮帮规　只要入伙不许下>>"></a></p>
-<p><a href="https://github.com/atiszk3034/ntdtv/blob/master/gb/2021/07/03/a103157610.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/百年党庆乏人问津，中共为何惨遭孤立？    >-009fcc?logoWidth=1" title="百年党庆乏人问津，中共为何惨遭孤立？　　>>" alt="百年党庆乏人问津，中共为何惨遭孤立？　　>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 
 
@@ -270,9 +270,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://atiszk3034.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ruxqt">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?rkjry">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?sbyzw">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?sobvh">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -316,8 +316,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?icman">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?scgvo">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ibjfg">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?ieldd">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -494,12 +494,12 @@
 <hr>
 <div align="center">
 <p><strong><a href="https://github.com/atiszk3034/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/atiszk3034/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/atiszk3034/www/blob/master/README.md?k#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/atiszk3034/www/blob/master/README.md?e%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://j.mp/777xx" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/atiszk3034/www/blob/master/README.md?i%231" title="分享本平台"></img>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/atiszk3034/www/blob/master/README.md?s#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/atiszk3034/www/blob/master/README.md?w%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://j.mp/uuvvv" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/atiszk3034/www/blob/master/README.md?p%231" title="分享本平台"></img>
 <br>
-<a href="https://git.io/zkkkk">https://git.io/zkkkk</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/bccccc">https://is.gd/bccccc</a>
-&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/777xx">https://j.mp/777xx</a>
+<a href="https://git.io/uuuu5">https://git.io/uuuu5</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/tmmmm">https://is.gd/tmmmm</a>
+&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/uuvvv">https://j.mp/uuvvv</a>
 <br>
 <br>
-<h3><a href="https://atiszk3034.github.io/vd/qr/qr2/#https://github.com/atiszk3034/www/blob/master/README.md?w#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://atiszk3034.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/osnkrv285/www/blob/master/README.md%3Fv%231%22%2C%22https://github.com/bvzsw2079/www/blob/master/README.md%3Fm%231%22%2C%22https://github.com/cvjuew306/www/blob/master/README.md%3Fe%231%22%2C%22https://github.com/ngzpqx3741/www/blob/master/README.md%3Fy%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://atiszk3034.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
+<h3><a href="https://atiszk3034.github.io/vd/qr/qr2/#https://github.com/atiszk3034/www/blob/master/README.md?q#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://atiszk3034.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/zfyjih353/www/blob/master/README.md%3Fc%231%22%2C%22https://github.com/attcqb2944/www/blob/master/README.md%3Fm%231%22%2C%22https://github.com/ieyq264/www/blob/master/README.md%3Fk%231%22%2C%22https://github.com/mmmcpr3473/www/blob/master/README.md%3Fm%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://atiszk3034.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
 </div>
