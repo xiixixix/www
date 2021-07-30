@@ -9,7 +9,7 @@
 <a id="user-content-1" href="#1">
 <div align="center">
 <a target="_blank" href="https://github.com/buonpo3603/djy/blob/master/gb/nsc413.md#1"><img src="https://raw.githubusercontent.com/buonpo3603/www/master/t/www.jpg"></a><br>
-<p><details open><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/c2222">git.io/c2222</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
+<p><details open><summary>持续收看请收藏本平台网址:&nbsp;&nbsp;<a href="https://git.io/6666u">git.io/6666u</a>&nbsp;&nbsp;同时&nbsp;&nbsp;<a href="#8">下载翻墙软件</a>&nbsp;&nbsp;....:arrow_double_down:</summary></p>
 如果打不开，隔一会儿再刷新一下。<br>  
 </details>
 <br>
@@ -17,13 +17,14 @@
 <p><a href="https://github.com/buonpo3603/ntdtv/blob/master/gb/2021/07/30/a103177890.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/河南57岁大妈躲冰柜逃生 洪水中漂浮17小时>-009fcc?logoWidth=1" title="河南５７岁大妈躲冰柜逃生　洪水中漂浮１７>>" alt="河南５７岁大妈躲冰柜逃生　洪水中漂浮１７>>"></a></p>
 <p><a href="https://github.com/buonpo3603/ntdtv/blob/master/gb/2021/07/30/a103177819.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国疫情急速扩散 疑现双爆发中心 中纪委罕见>-009fcc?logoWidth=1" title="中国疫情急速扩散　疑现双爆发中心　中纪委>>" alt="中国疫情急速扩散　疑现双爆发中心　中纪委>>"></a></p>
 <p><a href="https://github.com/buonpo3603/ntdtv/blob/master/gb/2021/07/30/a103177812.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/辽宁省委原书记闻世震去世 曾公开讽刺薄熙来 >-009fcc?logoWidth=1" title="辽宁省委原书记闻世震去世　曾公开讽刺薄熙>>" alt="辽宁省委原书记闻世震去世　曾公开讽刺薄熙>>"></a></p>
+<p><a href="https://github.com/buonpo3603/ntdtv/blob/master/gb/2021/07/29/a103177637.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/王毅隆重接待塔利班外界大跌眼镜 阿国前途堪忧>-009fcc?logoWidth=1" title="王毅隆重接待塔利班外界大跌眼镜　阿国前途>>" alt="王毅隆重接待塔利班外界大跌眼镜　阿国前途>>"></a></p>
 <p><a href="https://github.com/buonpo3603/ntdtv/blob/master/gb/2021/07/22/a103171562.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南京疫情急速扩散 市民半夜隔离当街淋雨(视频>-009fcc?logoWidth=1" title="南京疫情急速扩散　市民半夜隔离当街淋雨（>>" alt="南京疫情急速扩散　市民半夜隔离当街淋雨（>>"></a></p>
 <p><a href="https://github.com/buonpo3603/ntdtv/blob/master/gb/2021/07/29/a103177579.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/A股两天蒸发4万亿 监管开会党媒发文安抚外资>-009fcc?logoWidth=1" title="Ａ股两天蒸发４万亿　监管开会党媒发文安抚>>" alt="Ａ股两天蒸发４万亿　监管开会党媒发文安抚>>"></a></p>
+<p><a href="https://github.com/buonpo3603/ntdtv/blob/master/gb/2021/07/30/a103177944.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南京患者9成打国产疫苗 张文宏：根除流行办不>-009fcc?logoWidth=1" title="南京患者９成打国产疫苗　张文宏：根除流行>>" alt="南京患者９成打国产疫苗　张文宏：根除流行>>"></a></p>
+<p><a href="https://github.com/buonpo3603/ntdtv/blob/master/gb/2021/07/30/a103177879.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/新疆兵团前副司令、政法书记杨福林被查    >-009fcc?logoWidth=1" title="新疆兵团前副司令、政法书记杨福林被查　　>>" alt="新疆兵团前副司令、政法书记杨福林被查　　>>"></a></p>
+<p><a href="https://github.com/buonpo3603/ntdtv/blob/master/gb/2021/07/30/a103177938.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国接种疫苗超16亿剂 南京疫情仍蔓延15省>-009fcc?logoWidth=1" title="中国接种疫苗超１６亿剂　南京疫情仍蔓延１>>" alt="中国接种疫苗超１６亿剂　南京疫情仍蔓延１>>"></a></p>
 <p><a href="https://github.com/buonpo3603/ntdtv/blob/master/gb/2021/07/29/a103177684.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/美颜减肥瓜 解便秘排毒 去角质 通经络又除斑>-009fcc?logoWidth=1" title="美颜减肥瓜　解便秘排毒　去角质　通经络又>>" alt="美颜减肥瓜　解便秘排毒　去角质　通经络又>>"></a></p>
 <p><a href="https://github.com/buonpo3603/ntdtv/blob/master/gb/2021/07/30/a103177724.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/林俊廷：新唐人声乐大赛 让西方了解华人歌唱家>-009fcc?logoWidth=1" title="林俊廷：新唐人声乐大赛　让西方了解华人歌>>" alt="林俊廷：新唐人声乐大赛　让西方了解华人歌>>"></a></p>
-<p><a href="https://github.com/buonpo3603/ntdtv/blob/master/gb/2021/07/30/a103177773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人挤人！魅力湘西剧场千人看演出 超90分钟 >-009fcc?logoWidth=1" title="人挤人！魅力湘西剧场千人看演出　超９０分>>" alt="人挤人！魅力湘西剧场千人看演出　超９０分>>"></a></p>
-<p><a href="https://github.com/buonpo3603/ntdtv/blob/master/gb/2021/07/30/a103177738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆一小区爆炸致两人受伤 电梯门被炸飞(视频>-009fcc?logoWidth=1" title="重庆一小区爆炸致两人受伤　电梯门被炸飞（>>" alt="重庆一小区爆炸致两人受伤　电梯门被炸飞（>>"></a></p>
-<p><a href="https://github.com/buonpo3603/ntdtv/blob/master/gb/2021/07/30/a103177745.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南京疫情蔓延 挑战中共式抗疫？       >-009fcc?logoWidth=1" title="南京疫情蔓延　挑战中共式抗疫？　　　　　>>" alt="南京疫情蔓延　挑战中共式抗疫？　　　　　>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
 <p><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/29/n13125524.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/习亲信赴美遭起底 疫情逼近中南海？     >-009fcc?logoWidth=1" title="习亲信赴美遭起底　疫情逼近中南海？　　　>>" alt="习亲信赴美遭起底　疫情逼近中南海？　　　>>"></a></p>
 <p><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/29/n13125541.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/拜登警告中共 粉红出征惹怒日本       >-009fcc?logoWidth=1" title="拜登警告中共　粉红出征惹怒日本　　　　　>>" alt="拜登警告中共　粉红出征惹怒日本　　　　　>>"></a></p>
@@ -38,9 +39,12 @@
 <p><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/29/n13125637.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南京疫情蔓延 挑战中共式抗疫？       >-009fcc?logoWidth=1" title="南京疫情蔓延　挑战中共式抗疫？　　　　　>>" alt="南京疫情蔓延　挑战中共式抗疫？　　　　　>>"></a></p>
 <p><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/29/n13124939.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/志愿者曝灾区乱象 批政府无能        >-009fcc?logoWidth=1" title="志愿者曝灾区乱象　批政府无能　　　　　　>>" alt="志愿者曝灾区乱象　批政府无能　　　　　　>>"></a></p>
 <details><summary>更多....&nbsp;&nbsp;:arrow_double_down:<br></summary>
+<p><a href="https://github.com/buonpo3603/ntdtv/blob/master/gb/2021/07/30/a103177773.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/人挤人！魅力湘西剧场千人看演出 超90分钟 >-009fcc?logoWidth=1" title="人挤人！魅力湘西剧场千人看演出　超９０分>>" alt="人挤人！魅力湘西剧场千人看演出　超９０分>>"></a></p>
+<p><a href="https://github.com/buonpo3603/ntdtv/blob/master/gb/2021/07/30/a103177745.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/南京疫情蔓延 挑战中共式抗疫？       >-009fcc?logoWidth=1" title="南京疫情蔓延　挑战中共式抗疫？　　　　　>>" alt="南京疫情蔓延　挑战中共式抗疫？　　　　　>>"></a></p>
 <p><a href="https://github.com/buonpo3603/ntdtv/blob/master/gb/2021/07/29/a103176886.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/孙大午被“抄家灭族” 当庭向习近平喊话   >-009fcc?logoWidth=1" title="孙大午被＂抄家灭族＂　当庭向习近平喊话　>>" alt="孙大午被＂抄家灭族＂　当庭向习近平喊话　>>"></a></p>
 <p><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/29/n13124170.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/网文：中国房价一旦下跌 对经济冲击不堪设想 >-009fcc?logoWidth=1" title="网文：中国房价一旦下跌　对经济冲击不堪设>>" alt="网文：中国房价一旦下跌　对经济冲击不堪设>>"></a></p>
 <p><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/29/n13125345.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中国电荒引发电费大涨价 峰段上涨至少20  >-009fcc?logoWidth=1" title="中国电荒引发电费大涨价　峰段上涨至少２０>>" alt="中国电荒引发电费大涨价　峰段上涨至少２０>>"></a></p>
+<p><a href="https://github.com/buonpo3603/ntdtv/blob/master/gb/2021/07/30/a103177738.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/重庆一小区爆炸致两人受伤 电梯门被炸飞(视频>-009fcc?logoWidth=1" title="重庆一小区爆炸致两人受伤　电梯门被炸飞（>>" alt="重庆一小区爆炸致两人受伤　电梯门被炸飞（>>"></a></p>
 <p><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/29/n13124864.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/中共向美漫天要价 拖时间再骗美国？     >-009fcc?logoWidth=1" title="中共向美漫天要价　拖时间再骗美国？　　　>>" alt="中共向美漫天要价　拖时间再骗美国？　　　>>"></a></p>
 <p><a href="https://github.com/buonpo3603/djy/blob/master/gb/21/7/28/n13122746.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/周晓辉：南京疫情与辉瑞疫苗进中国 打脸北京 >-009fcc?logoWidth=1" title="周晓辉：南京疫情与辉瑞疫苗进中国　打脸北>>" alt="周晓辉：南京疫情与辉瑞疫苗进中国　打脸北>>"></a></p>
 <p><a href="https://github.com/buonpo3603/ntdtv/blob/master/gb/2021/07/29/a103177055.md#1" target=_blank><img width="330" height="30" src="https://img.shields.io/badge/郑州地铁灌水细节 女医忆九死一生：拣能救的救>-009fcc?logoWidth=1" title="郑州地铁灌水细节　女医忆九死一生：拣能救>>" alt="郑州地铁灌水细节　女医忆九死一生：拣能救>>"></a></p>
@@ -264,9 +268,9 @@
 
 <h1><strong>其它的真相媒体</strong></h1>
 <p><details><summary><a target="_blank" href="https://buonpo3603.github.io/vd/wm.html?from=nayunhai_852">网门动态临时版</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?ltarr">网门软件下载</a></p>
+<p><a target="_blank" href="https://github.com/odoor3/oo/blob/master/README.md?xsjwr">网门软件下载</a></p>
 </details>
-<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?qucab">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
+<p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/README.md?ykmrm">其它的新闻同步</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
 <details><summary>看中国新闻网</summary>
 <br><p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看大陆.md?t=02121122">看大陆</a></p>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;<a target="_blank" href="https://github.com/gfw-breaker/banned-news1/blob/master/indexes/S看官场.md?t=02121122">看官场</a></p>
@@ -310,8 +314,8 @@
 </details>
 </details>
 <p><details><summary><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md#%E6%98%8E%E6%85%A7%E6%9C%9F%E5%88%8A">在线看明慧期刊</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?ldqgv">明慧期刊</a></p>
-<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?dxvgc">明慧特刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/README.md?zfsbg">明慧期刊</a></p>
+<p><a target="_blank" href="https://github.com/gfw-breaker/mh-qikan/blob/master/pages/special.md?jgqyb">明慧特刊</a></p>
 </details>
 
 <p><details><summary><a target="_blank" href="https://github.com/hao2369/a/wiki/jyg">聚缘阁网页代理</a>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;:arrow_double_down:</p></summary>
@@ -418,12 +422,12 @@
 <p><strong>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年的腥风血雨，二十多年的凌辱折磨，岁月飞逝，历史见证，迫害善良原本就是违背道义不得民心的...</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;99年中共因法轮功修炼人数超过党员而疯狂镇压，不惜制造一个个谎言，导演天安门自焚案栽赃法轮功，对坚持信仰的学员绑架抄家，用尽酷刑，导致数以百万计的家破人亡、妻离子散！然而中共高估了自己的造假宣传。各国政府纷纷谴责中共暴行，高度肯定法轮功提升道德、净化心灵、强身健体的卓越成效。在国内，声援法轮功的事件此起彼伏。成千上万人为被非法抓捕的学员请愿，演绎了不畏强权反迫害的一幕又一幕。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;二十年过去了。如今法轮功“真善忍”普世价值观，超越民族文化，洪传世界一百多个国家，仅台湾就有八十万人修炼，其主要著作被译成四十多种文字，举世赞誉！而中共江泽民却因罪恶迫害，在海内外被数百万人联署举报，被二十多万人实名起诉。在这场对善良打压中，中共把法制、道德伦理都推向崩溃边缘。民心丧尽、天怒人怨!人们终于觉醒：要结束这近百年民族浩劫，重建社会道德，唤醒国人良知，全民退出中共是拯救中华民族的唯一出路。
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="http://124.12.53.254/UmhjM" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;中共活摘法轮功学员器官贩卖的事实曝光后震惊世界。大纪元社论《九评共产党》以无可辩驳的事实揭示中共这“西来幽灵”的真面目：它孳生无数腐败，毁坏中华文明，毁灭国人道德，在一场场政治运动中吞噬数千万同胞生命，是真实的魔鬼组织，必遭天惩!中国人从小加入少先队时就在血旗下宣誓要把生命献给它。在此“天灭中共”之时，退党解除毒誓，不与恶魔为伍，既是道德良知的选择，也是自我保平安的天意安排。如今超过3亿人三退。全民<a href="http://114.38.85.80/UmhjM" rel="nofollow">退出中共</a>，解除自己身上的耻辱授记，永远结束共产党对中国人的迫害，自利利他，是所有善良人们的愿望！</strong></p>
 </details>
 
 <div align="center">
 <img src="https://raw.githubusercontent.com/buonpo3603/www/master/t/01.jpg">
-<h1><strong><a href="http://124.12.53.254/UmhjM" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
+<h1><strong><a href="http://114.38.85.80/UmhjM" rel="nofollow">退出中共，远离罪恶，大瘟疫前的自救！点击这里</a></strong></h1><br>
 <br>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/buonpo3603/www/master/t/03.jpg"><br>
@@ -483,17 +487,17 @@
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史辗转到今日，以谎言和暴力得逞的中共窃权后，中华民族生存根基被摧毁得千疮百孔：五千年传承的道德标准被歪曲异化；信仰出现危机，造成中国贪官遍地，物欲横流，黑社会无孔不入。坑蒙拐骗无处不在、假冒伪劣产品泛滥成灾。历尽沧海桑田才得以形成的不可再生的自然资源被糟蹋污染。如此而往，无需多日，子孙后代将无处寻觅一方净土，一掬净水，一口纯净的空气。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;于中共无所不在的欺骗洗脑与暴力胁迫下，有多少人放弃了诚实宽厚、仁爱谦和的道德底线，变得见风使舵、落井下石，甚至为一己之私而无恶不作。</p>
 <p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;稍微盘点中共的罪恶，让人感到心情无比的沉重。了解了中共，才明白什么叫做罪恶滔天，罄竹难书。</p>
-<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="http://124.12.53.254/UmhjM" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
+<p>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;历史上无数曾不可一世的帝国随着道德堕落和物质荒淫而归于尘土，中共正踏在这一车辙中，但是它对华夏子民暴力洗脑，灌输了它的党文化，捆绑整个民族，拖向万劫不复的深渊。怎样彻底的把华夏从生死一线之危机中解救出来？请你加入到这场轰轰烈烈的民族自救运动中来-----<a href="http://114.38.85.80/UmhjM" rel="nofollow">声明退出共产党、共青团、少先队组织</a>
 </strong></p>
 <hr>
 <div align="center">
 <p><strong><a href="https://github.com/buonpo3603/djy/blob/master/gb/about-djy.md#1">大纪元时报投稿</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://github.com/buonpo3603/ntdtv/blob/master/gb/contribute.md#1">新唐人电视投稿</a></strong></p>
-手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/buonpo3603/www/blob/master/README.md?o#1<br>
-<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/buonpo3603/www/blob/master/README.md?h%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://j.mp/niiin" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/buonpo3603/www/blob/master/README.md?w%231" title="分享本平台"></img>
+手机上长按并复制下列网址或二维码分享本平台：</h4>https://github.com/buonpo3603/www/blob/master/README.md?m#1<br>
+<br><img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/buonpo3603/www/blob/master/README.md?t%231" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://j.mp/9rrr9" title="分享本平台"></img>&nbsp;&#160;<img src="https://chart.apis.google.com/chart?cht=qr&chs=240x240&choe=UTF-8&chld=M|2&chl=https://github.com/buonpo3603/www/blob/master/README.md?s%231" title="分享本平台"></img>
 <br>
-<a href="https://git.io/c2222">https://git.io/c2222</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/b55555">https://is.gd/b55555</a>
-&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/niiin">https://j.mp/niiin</a>
+<a href="https://git.io/6666u">https://git.io/6666u</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://is.gd/7jjjjj">https://is.gd/7jjjjj</a>
+&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://j.mp/9rrr9">https://j.mp/9rrr9</a>
 <br>
 <br>
-<h3><a href="https://buonpo3603.github.io/vd/qr/qr2/#https://github.com/buonpo3603/www/blob/master/README.md?u#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://buonpo3603.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/bfndkw380/www/blob/master/README.md%3Fz%231%22%2C%22https://github.com/cxovwc3509/www/blob/master/README.md%3Fi%231%22%2C%22https://github.com/vwsqav3178/www/blob/master/README.md%3Fv%231%22%2C%22https://github.com/zkndgo3544/www/blob/master/README.md%3Fa%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://buonpo3603.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
+<h3><a href="https://buonpo3603.github.io/vd/qr/qr2/#https://github.com/buonpo3603/www/blob/master/README.md?e#1" target="_blank">二维码美化</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://buonpo3603.github.io/vd/qr/qr1/?qrs=%5B%22https://github.com/qvis220/www/blob/master/README.md%3Fd%231%22%2C%22https://github.com/uwhkcb318/www/blob/master/README.md%3Fw%231%22%2C%22https://github.com/ixjkki3322/www/blob/master/README.md%3Fo%231%22%2C%22https://github.com/jzbnts3399/www/blob/master/README.md%3Fr%231%22%5D" target="_blank">一次制作多个二维码</a>&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;&nbsp;&#160;<a href="https://buonpo3603.github.io/vd/qr/qr3/qr3/" target="_blank">二维码识别</a></h3>
 </div>
